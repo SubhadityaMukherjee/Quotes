@@ -1,4 +1,4 @@
-<!-- Page 31 of 53  ·  quotes 3001–3100 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 31 of 53  ·  quotes 3001–3100 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "We want to think of families as safe havens in a heartless world and of our
 own country as populated by enlightened, civilized people. We prefer to believe
 that cruelty occurs only in faraway places like Darfur or the Congo. It is hard

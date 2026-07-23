@@ -1,4 +1,4 @@
-<!-- Page 15 of 53  ·  quotes 1401–1500 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 15 of 53  ·  quotes 1401–1500 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "I understand now that boundaries between noise and sound are conventions. All
 boundaries are conventions, waiting to be transcended. One may transcend any
 convention if only one can first conceive of doing so. Moments like this, I can

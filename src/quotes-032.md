@@ -1,4 +1,4 @@
-<!-- Page 32 of 53  ·  quotes 3101–3200 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 32 of 53  ·  quotes 3101–3200 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "this collision between one's image of oneself and what one actually is is
 always very painful and there are two things you can do about it, you can meet
 the collision head-on and try and become what you really are or you can retreat

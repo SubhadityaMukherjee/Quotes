@@ -1,4 +1,4 @@
-<!-- Page 21 of 53  ·  quotes 2001–2100 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 21 of 53  ·  quotes 2001–2100 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "You never know what worse luck your bad luck has saved you from."
 
 - "None of us are immune from life’s tragic moments. Like the small rubber boat

@@ -1,4 +1,4 @@
-<!-- Page 9 of 53  ·  quotes 801–900 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 9 of 53  ·  quotes 801–900 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Sometimes you want things to change so badly, you can’t even stand to be in
 the same room with the way things actually are."
 

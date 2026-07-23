@@ -1,4 +1,4 @@
-<!-- Page 52 of 53  ·  quotes 5101–5200 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 52 of 53  ·  quotes 5101–5200 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "He has never wanted to occupy the throne himself; he prefers the backseat — more room to spread out, you see."
 
 - "people find it far easier to forgive others for being wrong than being right,"

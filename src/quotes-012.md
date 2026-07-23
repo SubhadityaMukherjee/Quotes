@@ -1,4 +1,4 @@
-<!-- Page 12 of 53  ·  quotes 1101–1200 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 12 of 53  ·  quotes 1101–1200 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "You want to talk about real. Show mean thing that is real. There is nothing
 real from the start. Every morning to night, gathering things, big and small,
 valuables, money name and recognition; gathering it all up into your lap. Busy

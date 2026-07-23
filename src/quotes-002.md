@@ -1,4 +1,4 @@
-<!-- Page 2 of 53  ·  quotes 101–200 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 2 of 53  ·  quotes 101–200 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "It's never the enemy without who brings you down. It's always the enemy
 within."
 

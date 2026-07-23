@@ -1,4 +1,4 @@
-<!-- Page 51 of 53  ·  quotes 5001–5100 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 51 of 53  ·  quotes 5001–5100 of 5205  ·  add new quotes to ../inbox.md, not here -->
 -  "In the four seasons of life, spring won’t come just by waiting. You have to endure the
 bitter cold and struggle to break through the frozen earth. Only then can you see the
 light of day and welcome spring."

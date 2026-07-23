@@ -1,4 +1,4 @@
-<!-- Page 25 of 53  ·  quotes 2401–2500 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 25 of 53  ·  quotes 2401–2500 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "We live a very long time by your standards. We learn to appreciate the humor
 in the world, often finding amusement in places where men find little. Or you
 can call it simply a different way of looking at life."

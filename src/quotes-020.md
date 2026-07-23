@@ -1,4 +1,4 @@
-<!-- Page 20 of 53  ·  quotes 1901–2000 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 20 of 53  ·  quotes 1901–2000 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "He knows that any job, whether it's  a novel or a kitchen remodel, takes twice
 as long as he thinks and costs twice as much. He accepts that."
 

@@ -1,4 +1,4 @@
-<!-- Page 3 of 53  ·  quotes 201–300 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 3 of 53  ·  quotes 201–300 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Life is pain, highness. Anyone who says differently is selling something."
 
 - "If I got rid of my demons I d lose my angels too."

@@ -1,4 +1,4 @@
-<!-- Page 17 of 53  ·  quotes 1601–1700 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 17 of 53  ·  quotes 1601–1700 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "I understand much better than you think, Garion. You know what your problem
 is? You don't want to grow up. You want to keep on being a boy forever. You
 can't though; nobody can. No matter how much power you have - whether you're an

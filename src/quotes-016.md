@@ -1,4 +1,4 @@
-<!-- Page 16 of 53  ·  quotes 1501–1600 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 16 of 53  ·  quotes 1501–1600 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "If you are deemed insane, then all actions that would oherwise prove you are
 not do, in actuality, fall into the framework of an insane person’s actions.
 Your sound protests constitute denial. Your valid fears are deemed paranoia.

@@ -1,4 +1,4 @@
-<!-- Page 44 of 53  ·  quotes 4301–4400 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 44 of 53  ·  quotes 4301–4400 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "I did learn a lesson that night. In the void of their departure, I learned to appear
 greater than I was. My brother needed me to be more than his nine-year-old brother. I
 learned that even if I didn't have a clue about driving or having a job or being a parent,

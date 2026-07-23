@@ -1,4 +1,4 @@
-<!-- Page 24 of 53  ·  quotes 2301–2400 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 24 of 53  ·  quotes 2301–2400 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Tao is in the emptiness. Emptiness is the fast of the mind."
 
 - "What’s essential is invisible to the eye."

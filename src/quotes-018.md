@@ -1,4 +1,4 @@
-<!-- Page 18 of 53  ·  quotes 1701–1800 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 18 of 53  ·  quotes 1701–1800 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Sympathy the human species universally craves. The child eagerly displays his
 injury; or even inflicts a cut or bruise in order to reap abundant sympathy.
 For the same purpose adults . . . show their bruises, relate their accidents,

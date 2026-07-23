@@ -1,4 +1,4 @@
-<!-- Page 29 of 53  ·  quotes 2801–2900 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 29 of 53  ·  quotes 2801–2900 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Pitiful child... How can one envisage paradise's shape without ever having
 feasted one's eyes upon it?"
 

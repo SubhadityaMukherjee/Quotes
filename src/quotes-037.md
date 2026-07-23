@@ -1,4 +1,4 @@
-<!-- Page 37 of 53  ·  quotes 3601–3700 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 37 of 53  ·  quotes 3601–3700 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Paper wrapped around incense smells of incense, and string binding fish smells of
 fish."
 

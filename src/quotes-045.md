@@ -1,4 +1,4 @@
-<!-- Page 45 of 53  ·  quotes 4401–4500 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 45 of 53  ·  quotes 4401–4500 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Perfectionism is just fear in fancy shoes and a mink coat."
 
 - "Remember, efficiency is doing a lot of work; effectiveness is doing the important work.

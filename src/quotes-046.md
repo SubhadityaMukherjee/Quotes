@@ -1,4 +1,4 @@
-<!-- Page 46 of 53  ·  quotes 4501–4600 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 46 of 53  ·  quotes 4501–4600 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "You have to know what to look for, even if you're looking for absence."
 
 - "According to Minimalist principles, we have to fight the need to anthropomorphize or

@@ -1,4 +1,4 @@
-<!-- Page 34 of 53  ·  quotes 3301–3400 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 34 of 53  ·  quotes 3301–3400 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Once one has done everything that is rationally and realistically preventative, one
 should work to revert their attention back to the present, leaving all additional concern
 about the future for the future."

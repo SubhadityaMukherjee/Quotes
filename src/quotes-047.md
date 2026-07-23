@@ -1,4 +1,4 @@
-<!-- Page 47 of 53  ·  quotes 4601–4700 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 47 of 53  ·  quotes 4601–4700 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Every language is complex in its own way. Latin just happens to work its complexity
 into the shape of the word."
 

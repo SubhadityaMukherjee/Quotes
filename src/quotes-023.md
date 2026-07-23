@@ -1,4 +1,4 @@
-<!-- Page 23 of 53  ·  quotes 2201–2300 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 23 of 53  ·  quotes 2201–2300 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Who needs ethics when youve got a trust fund"
 
 - "Ambition can be a valuable tool, but so can restraint"

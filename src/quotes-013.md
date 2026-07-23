@@ -1,4 +1,4 @@
-<!-- Page 13 of 53  ·  quotes 1201–1300 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 13 of 53  ·  quotes 1201–1300 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "You are so blinded by your hate for him that you don't realize the damage that
 it's  doing in your own life. To your family."
 

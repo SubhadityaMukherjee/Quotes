@@ -1,4 +1,4 @@
-<!-- Page 6 of 53  ·  quotes 501–600 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 6 of 53  ·  quotes 501–600 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "As long as the heart is there, it doesn't matter if it is red or black. Your
 will is the most important factor. Your will is like a blade, and that blade…
 can still be used in your Third Severing. There is no need to be swept up with

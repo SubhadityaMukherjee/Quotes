@@ -1,4 +1,4 @@
-<!-- Page 4 of 53  ·  quotes 301–400 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 4 of 53  ·  quotes 301–400 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Let's say I posed this question to you: "Can all human souls be bought with
 money or not?" Now remember, the keyword here is "all". The answer is "There
 are times when you can buy them, and other times, not," right? The human being…

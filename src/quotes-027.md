@@ -1,4 +1,4 @@
-<!-- Page 27 of 53  ·  quotes 2601–2700 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 27 of 53  ·  quotes 2601–2700 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Someday even bedrock returns to dust"
 
 - "For dawn to come, there must be those willing to pierce the darkness with

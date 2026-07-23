@@ -1,4 +1,4 @@
-<!-- Page 39 of 53  ·  quotes 3801–3900 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 39 of 53  ·  quotes 3801–3900 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "In the translator's afterword to a 2010 edition of An Attempt at Exhausting a Place in
 Paris, Marc Lowenthal emphasizes the "attempt" in Perec's toc: true title, writing that
 "time, unarrestable, works against [Perec's] project….Every bus that passes, every person

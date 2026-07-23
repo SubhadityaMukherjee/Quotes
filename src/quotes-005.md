@@ -1,4 +1,4 @@
-<!-- Page 5 of 53  ·  quotes 401–500 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 5 of 53  ·  quotes 401–500 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "We are very small," Simon said between swallows. The kangkang seemed to be
 flowing in his veins like blood. "So are the stars, kundë -mannë," Sludig
 murmured. "But they each one burn as bright as they can."

@@ -1,4 +1,4 @@
-<!-- Page 42 of 53  ·  quotes 4101–4200 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 42 of 53  ·  quotes 4101–4200 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "In terms of priority, inspiration comes first. You come next. The audience comes last."
 
 - "A full, imperfect version is generally more helpful than a seemingly perfect fragment."

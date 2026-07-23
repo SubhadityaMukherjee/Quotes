@@ -1,4 +1,4 @@
-<!-- Page 48 of 53  ·  quotes 4701–4800 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 48 of 53  ·  quotes 4701–4800 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Humans have nothing but unknowns. Even if they act like they know everything, that's
 surely a lie. That's why there's no way but to spend your whole life learning it. There's
 plenty of wisdom you won't find in a book, and I agree with your opinion, Lyle."

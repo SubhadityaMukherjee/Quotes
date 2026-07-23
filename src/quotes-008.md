@@ -1,4 +1,4 @@
-<!-- Page 8 of 53  ·  quotes 701–800 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 8 of 53  ·  quotes 701–800 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "The natural state of life is desire and disorder. There is no such thing as a
 completely transparent soul. Not even cultivating the Dao can make one's Dao
 heart spotlessly pure. On the contrary, her spirit is more complex than you

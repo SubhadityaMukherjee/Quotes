@@ -1,4 +1,4 @@
-<!-- Page 7 of 53  ·  quotes 601–700 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 7 of 53  ·  quotes 601–700 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "When looking for a partner, one should look for everlasting feelings, for
 gentle feelings, for straightforward feelings, for feelings that makes them
 willing to commit. This factor will forever remain more valuable than money. To

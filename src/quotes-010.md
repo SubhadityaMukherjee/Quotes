@@ -1,4 +1,4 @@
-<!-- Page 10 of 53  ·  quotes 901–1000 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 10 of 53  ·  quotes 901–1000 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "You do not need to understand…old people like us have experienced too many
 storms, seen too many sunrises and sunsets. We have already become numb to many
 things. Often we regard the ways of the world as vapid and dull. We do not mind

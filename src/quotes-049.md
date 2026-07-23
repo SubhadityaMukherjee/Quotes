@@ -1,4 +1,4 @@
-<!-- Page 49 of 53  ·  quotes 4801–4900 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 49 of 53  ·  quotes 4801–4900 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "The maturity of a man ought not to come from his own pragmatism, but rather from his
 ability to accept this trait shown in others. To become gentle, gentle toward others, to
 let go of grudges and to look at the world with a pair of sympathetic eyes and a

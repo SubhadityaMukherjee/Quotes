@@ -1,4 +1,4 @@
-<!-- Page 26 of 53  ·  quotes 2501–2600 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 26 of 53  ·  quotes 2501–2600 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Do not be tense, but ready; not thinking, but not dreaming; not being set, but
 flexible. It is being wholly and quietly alive, aware, and alert; ready for
 whatever may come.…"

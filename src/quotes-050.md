@@ -1,4 +1,4 @@
-<!-- Page 50 of 53  ·  quotes 4901–5000 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 50 of 53  ·  quotes 4901–5000 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "There is a saying that goes that the people who are lonely may be different from each
 other, but all of them stare at the moon."
 

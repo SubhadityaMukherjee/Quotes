@@ -1,4 +1,4 @@
-<!-- Page 40 of 53  ·  quotes 3901–4000 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 40 of 53  ·  quotes 3901–4000 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Where there is anger, there is always pain underneath."
 
 - "your own light will quickly grow stronger. When a log that has only just started to

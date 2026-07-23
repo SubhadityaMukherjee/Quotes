@@ -1,4 +1,4 @@
-<!-- Page 19 of 53  ·  quotes 1801–1900 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 19 of 53  ·  quotes 1801–1900 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "We’re all pieces on someone’s board, Jorg."
 
 - "We look at the world once, in childhood. The rest is memory."

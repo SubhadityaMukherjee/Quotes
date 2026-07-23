@@ -1,4 +1,4 @@
-<!-- Page 43 of 53  ·  quotes 4201–4300 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 43 of 53  ·  quotes 4201–4300 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "As she fingered the pamphlets, I realized it was new to her, this idea of vegetarianism
 not as a mark of poverty but a conscious lifestyle choice, and coming from my place of
 privilege, I hadn't understood her wariness about it."

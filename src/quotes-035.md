@@ -1,4 +1,4 @@
-<!-- Page 35 of 53  ·  quotes 3401–3500 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 35 of 53  ·  quotes 3401–3500 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "A world where one only pursues their own freedom and success, throwing aside all morals
 and responsibilities. A world poisoned by self-indulgence."
 

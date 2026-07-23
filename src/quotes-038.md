@@ -1,4 +1,4 @@
-<!-- Page 38 of 53  ·  quotes 3701–3800 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 38 of 53  ·  quotes 3701–3800 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "During the path of cultivation, he would meet enemies one by one. If he wanted to
 improve, he would have to constantly look towards the future and review the past. Only
 then, he would be able to improve slowly."

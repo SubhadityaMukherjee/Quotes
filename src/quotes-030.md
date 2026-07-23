@@ -1,4 +1,4 @@
-<!-- Page 30 of 53  ·  quotes 2901–3000 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 30 of 53  ·  quotes 2901–3000 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "I say "amateur" only because it was fashionable for wealthy men to refer to
 their passions in this dismissive way, with a little flick of their fingers, as
 if admitting to a profession other than moneymaking might sully their

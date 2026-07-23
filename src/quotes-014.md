@@ -1,4 +1,4 @@
-<!-- Page 14 of 53  ·  quotes 1301–1400 of 5204  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 14 of 53  ·  quotes 1301–1400 of 5205  ·  add new quotes to ../inbox.md, not here -->
 - "Human beings are free except when humanity needs them. Maybe humanity needs
 you. To do something. Maybe humanity needs me—to find out what you're good for.
 We might both do despicable things, Ender, but if humankind survives, then we
