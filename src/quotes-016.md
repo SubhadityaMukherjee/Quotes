@@ -1,4 +1,4 @@
-<!-- Page 16 of 54  ·  quotes 1501–1600 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 16 · add new quotes to ../inbox.md, not here -->
 - "I see now that one’s birth is irrelevant. It’s what you do that determines who
 you are."
 

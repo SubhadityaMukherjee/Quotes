@@ -1,4 +1,4 @@
-<!-- Page 17 of 54  ·  quotes 1601–1700 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 17 · add new quotes to ../inbox.md, not here -->
 - "What do we mean by G.o.d? Being detached from life and death as well as being
 one with heaven and earth like G.o.d! In this aspect, we are no different from
 the elementalists. They also believe that they have a common origin with heaven

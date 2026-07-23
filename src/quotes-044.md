@@ -1,4 +1,4 @@
-<!-- Page 44 of 54  ·  quotes 4301–4400 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 44 · add new quotes to ../inbox.md, not here -->
 - "We're made of energy. The nature of energy is to be shared, to spread, to connect one
 thing to another. Sharing space with other people means that our energy influences theirs,
 and theirs influences ours. It's physics. And psychology. And unavoidable. And amazing."

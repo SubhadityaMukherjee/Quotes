@@ -1,4 +1,4 @@
-<!-- Page 50 of 54  ·  quotes 4901–5000 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 50 · add new quotes to ../inbox.md, not here -->
 - "What is karma? I seek a wooden house, but this mountain has no wood, so I plant this
 lone tree. During sunrise, I harvest the branches. During midday, I harvest the wood. And
 during sunset, I harvest the roots… What is karma. Planting the tree is karmic cause and

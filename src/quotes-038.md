@@ -1,4 +1,4 @@
-<!-- Page 38 of 54  ·  quotes 3701–3800 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 38 · add new quotes to ../inbox.md, not here -->
 - "If children do not receive enough attention, psychological problems often emerge."
 
 - "If I like myself, it is easy for me to like people around me. But if I am unhappy with

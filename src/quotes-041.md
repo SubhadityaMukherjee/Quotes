@@ -1,4 +1,4 @@
-<!-- Page 41 of 54  ·  quotes 4001–4100 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 41 · add new quotes to ../inbox.md, not here -->
 - "You see time as the means to salvation, whereas in truth it is the greatest obstacle to
 salvation."
 

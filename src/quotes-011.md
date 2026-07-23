@@ -1,4 +1,4 @@
-<!-- Page 11 of 54  ·  quotes 1001–1100 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 11 · add new quotes to ../inbox.md, not here -->
 - "Yan’er," he said softly, "look at the clouds, the mountains, the sky, and the
 land. Remember this image. However grand your vision is, that is how grand your
 future can be. It is also how grand… your heart can be."

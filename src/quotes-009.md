@@ -1,4 +1,4 @@
-<!-- Page 9 of 54  ·  quotes 801–900 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 9 · add new quotes to ../inbox.md, not here -->
 - "Because we can't do everything, we do nothing at all."
 
 - "Is it the nature of the world that all things seek a rhythm, and in that

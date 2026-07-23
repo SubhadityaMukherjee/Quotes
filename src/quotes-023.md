@@ -1,4 +1,4 @@
-<!-- Page 23 of 54  ·  quotes 2201–2300 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 23 · add new quotes to ../inbox.md, not here -->
 - "You realize that there’s something to be said to limiting oneself, not just
 geographically, but also emotionally. That there’s a certain depth of
 experience and meaning that can only be achieved when one picks a single piece

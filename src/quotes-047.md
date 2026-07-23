@@ -1,4 +1,4 @@
-<!-- Page 47 of 54  ·  quotes 4601–4700 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 47 · add new quotes to ../inbox.md, not here -->
 - "I do not know what India represented to Papa, but I suspect he carried nostalgia for a
 place that never existed, a utopia created by the frozen impressions and desires of a
 nine-year-old boy who moved to a white country that shunned him."

@@ -1,4 +1,4 @@
-<!-- Page 21 of 54  ·  quotes 2001–2100 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 21 · add new quotes to ../inbox.md, not here -->
 - "Give a man a fish and you feed him for a day. Teach a man to fish and you feed
 him for a lifetime so that he many never discover how much he loves steak"
 

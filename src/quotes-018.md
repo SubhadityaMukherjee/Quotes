@@ -1,4 +1,4 @@
-<!-- Page 18 of 54  ·  quotes 1701–1800 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 18 · add new quotes to ../inbox.md, not here -->
 - "Well, kid, you better learn to fly like a bird, because the age of the
 dinosaur is over"
 

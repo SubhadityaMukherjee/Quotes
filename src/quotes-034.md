@@ -1,4 +1,4 @@
-<!-- Page 34 of 54  ·  quotes 3301–3400 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 34 · add new quotes to ../inbox.md, not here -->
 - "Xiaochun…" he said softly. "You’re right. As long as we’re alive, there are
   endless possibilities. But just because we die doesn’t mean that our hopes
   and dreams die with us! "I can’t speak for anyone else, but I can say that

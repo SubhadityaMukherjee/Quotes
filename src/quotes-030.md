@@ -1,4 +1,4 @@
-<!-- Page 30 of 54  ·  quotes 2901–3000 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 30 · add new quotes to ../inbox.md, not here -->
 - "WHAT DISTRESSES US IS LESS the circumstances we find ourselves in and more the
 energy we expend in resisting them. Once we actually do the work, we are often
 surprised that it was not as hard as we imagined it to be. But when we resist,

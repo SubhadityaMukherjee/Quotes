@@ -1,4 +1,4 @@
-<!-- Page 37 of 54  ·  quotes 3601–3700 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 37 · add new quotes to ../inbox.md, not here -->
 - "But the power to shake mountains does little good if the knife is already buried in
 one's throat"
 

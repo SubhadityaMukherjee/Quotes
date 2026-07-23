@@ -1,4 +1,4 @@
-<!-- Page 10 of 54  ·  quotes 901–1000 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 10 · add new quotes to ../inbox.md, not here -->
 - "We are only here briefly, and in this moment I want to allow myself joy. So
 fuck it."
 

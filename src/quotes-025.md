@@ -1,4 +1,4 @@
-<!-- Page 25 of 54  ·  quotes 2401–2500 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 25 · add new quotes to ../inbox.md, not here -->
 - "A veil was lifted off in front of my eyes when I understood that the modern
 society has replaced religious devotion with devotion to the material and this
 means that people identify with their job now that they can't identify with a

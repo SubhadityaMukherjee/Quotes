@@ -1,4 +1,4 @@
-<!-- Page 42 of 54  ·  quotes 4101–4200 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 42 · add new quotes to ../inbox.md, not here -->
 - "Distraction is one of the best tools available to the artist when used skillfully. In
 some cases, it's the only way to get where we are going."
 

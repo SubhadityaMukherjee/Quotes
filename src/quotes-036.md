@@ -1,4 +1,4 @@
-<!-- Page 36 of 54  ·  quotes 3501–3600 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 36 · add new quotes to ../inbox.md, not here -->
 - "Sometimes the things you hate are the things you need"
 
 - "THE WISDOM OF LIFE CONSISTS IN THE ELIMINATION OF NONESSENTIALS."

@@ -1,4 +1,4 @@
-<!-- Page 28 of 54  ·  quotes 2701–2800 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 28 · add new quotes to ../inbox.md, not here -->
 - "Life is a long journey, and that's why I must travel far and wide."
 
 - "Ambition is our power in its rawest form. We cannot live without it."

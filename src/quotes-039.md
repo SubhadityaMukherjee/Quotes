@@ -1,4 +1,4 @@
-<!-- Page 39 of 54  ·  quotes 3801–3900 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 39 · add new quotes to ../inbox.md, not here -->
 - "The more fragmented and minutely timeable work becomes, the more meaningless it
 becomes."
 

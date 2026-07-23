@@ -1,4 +1,4 @@
-<!-- Page 7 of 54  ·  quotes 601–700 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 7 · add new quotes to ../inbox.md, not here -->
 - "Form is empty. But it is full of everything else in the cosmos."
 
 - "The future is a blank sheet of paper. Only my will can leave footprints on

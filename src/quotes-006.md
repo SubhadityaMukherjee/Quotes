@@ -1,4 +1,4 @@
-<!-- Page 6 of 54  ·  quotes 501–600 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 6 · add new quotes to ../inbox.md, not here -->
 - "In the dangers of the age, in the passion of violence, quietly laying down
 your life is utterly insignificant in the ever flowing passage of time. There
 is nothing stronger than the will to live."

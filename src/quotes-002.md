@@ -1,4 +1,4 @@
-<!-- Page 2 of 54  ·  quotes 101–200 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 2 · add new quotes to ../inbox.md, not here -->
 - "Human will is the strongest will ever created. There are those who are born to
 succeed and those who are determined to succeed. The former fall into it, and
 the latter pursue it at all costs. They won t be denied. Nothing daunts them."

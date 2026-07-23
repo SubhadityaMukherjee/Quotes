@@ -1,4 +1,4 @@
-<!-- Page 22 of 54  ·  quotes 2101–2200 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 22 · add new quotes to ../inbox.md, not here -->
 - "The war has already begun. It is just a continuation of past battles.The gods
 goad us on with the promise of their seven treasures. Rewards for the worthy.
 The doorway to divinity.Yet buried in the depths of this world lies smoldering

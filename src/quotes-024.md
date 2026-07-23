@@ -1,4 +1,4 @@
-<!-- Page 24 of 54  ·  quotes 2301–2400 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 24 · add new quotes to ../inbox.md, not here -->
 - "The classic approach has the paradoxical effect of training us to feel bad
 about all the things that make us feel good. It basically seeks to teach us
 self-discipline through shaming us—by making us hate ourselves for simply being

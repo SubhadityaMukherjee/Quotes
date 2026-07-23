@@ -1,4 +1,4 @@
-<!-- Page 19 of 54  ·  quotes 1801–1900 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 19 · add new quotes to ../inbox.md, not here -->
 - "Reality is merely an illusion, albeit a very persistent one."
 
 - "The first principle is that you must not fool yourself, and you are the

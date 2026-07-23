@@ -1,4 +1,4 @@
-<!-- Page 14 of 54  ·  quotes 1301–1400 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 14 · add new quotes to ../inbox.md, not here -->
 - "If that monster is your darkness, then I have a reason to fight it, no?"
 
 - "The art of hunting is aiming for the moment when the target is busy hunting

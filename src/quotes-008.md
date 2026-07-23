@@ -1,4 +1,4 @@
-<!-- Page 8 of 54  ·  quotes 701–800 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 8 · add new quotes to ../inbox.md, not here -->
 - "A man has but one life, grass but one spring, so if death comes then so be
 it!"
 

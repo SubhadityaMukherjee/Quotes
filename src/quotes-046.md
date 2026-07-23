@@ -1,4 +1,4 @@
-<!-- Page 46 of 54  ·  quotes 4501–4600 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 46 · add new quotes to ../inbox.md, not here -->
 - "The computer is a medium! I had always thought of it as a tool, perhaps a vehicle-a
 much weaker conception. What McLuhan was saying is that if the personal computer is truly
 a new medium then the very use of it would actually change the thought patterns of an

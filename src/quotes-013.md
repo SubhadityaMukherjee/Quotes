@@ -1,4 +1,4 @@
-<!-- Page 13 of 54  ·  quotes 1201–1300 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 13 · add new quotes to ../inbox.md, not here -->
 - "How to make your goals grand but not too high…how to be cautious and yet have
 the desire to charge into the heavens…you will need to handle this yourself.
 The world is divided into yin and yang, and between yin and yang lies the

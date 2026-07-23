@@ -1,4 +1,4 @@
-<!-- Page 1 of 54  ·  quotes 1–100 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 1 · add new quotes to ../inbox.md, not here -->
 - "Will you promise me that when you are sad, you'll think about the sky?" I don
 t know why he wants me to promise him that but I nod anyway. "But why?"
 

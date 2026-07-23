@@ -1,4 +1,4 @@
-<!-- Page 40 of 54  ·  quotes 3901–4000 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 40 · add new quotes to ../inbox.md, not here -->
 - "This simple gesture, and the story of the beans, made me realize how broken my mental
 mechanisms were for thinking about anything beyond the transactional exchange."
 

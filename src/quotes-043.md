@@ -1,4 +1,4 @@
-<!-- Page 43 of 54  ·  quotes 4201–4300 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 43 · add new quotes to ../inbox.md, not here -->
 - "For the artist, whose job is testing possibilities, success is as much ruling out a
 solution as finding one that works."
 

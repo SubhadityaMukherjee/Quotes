@@ -1,4 +1,4 @@
-<!-- Page 48 of 54  ·  quotes 4701–4800 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 48 · add new quotes to ../inbox.md, not here -->
 - "According to the history books, most of the falls of any ancient emperor were caused by
 their suspicions of their ministers; their suspicions made them ill and therefore led to
 their death"

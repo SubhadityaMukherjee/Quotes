@@ -1,4 +1,4 @@
-<!-- Page 33 of 54  ·  quotes 3201–3300 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 33 · add new quotes to ../inbox.md, not here -->
 - "Maybe you are like me—an overachiever, a people pleaser, a perfecter—so you
 believe success has been defined by what you do, not who you are. You fill your
 days in pursuit of this illusion of success, just as I did, but deep down you

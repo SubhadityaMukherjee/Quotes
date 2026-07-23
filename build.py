@@ -138,25 +138,34 @@ def page_filename(index):
 
 
 def write_store(entries):
-    """Write `entries` into balanced src/ page files (PAGE_SIZE each)."""
-    if SRC.exists():
-        for old in SRC.glob("quotes-*.md"):
-            old.unlink()
-    else:
-        SRC.mkdir(parents=True)
+    """Write `entries` into balanced src/ page files (PAGE_SIZE each).
+
+    Only pages whose contents actually changed are rewritten, so adding a few
+    quotes normally touches just the last page (plus a new page file when one
+    fills up). The per-page header carries no totals on purpose, so unchanged
+    pages stay byte-for-byte identical and don't show up as diffs.
+    """
+    SRC.mkdir(parents=True, exist_ok=True)
     total = len(entries)
     npages = max(1, (total + PAGE_SIZE - 1) // PAGE_SIZE)
+
+    written = 0
     for p in range(npages):
         chunk = entries[p * PAGE_SIZE : (p + 1) * PAGE_SIZE]
-        start = p * PAGE_SIZE + 1
-        end = min((p + 1) * PAGE_SIZE, total)
-        lines = [
-            f"<!-- Page {p + 1} of {npages}  ·  quotes {start}–{end} of {total}  ·  "
-            "add new quotes to ../inbox.md, not here -->",
-            "",
-        ]
+        header = f"<!-- Page {p + 1} · add new quotes to ../inbox.md, not here -->"
         body = "\n\n".join(chunk).rstrip() + "\n"
-        page_filename(p + 1).write_text("\n".join(lines) + body + "\n", encoding="utf-8")
+        text = header + "\n" + body + "\n"
+        path = page_filename(p + 1)
+        if not path.exists() or path.read_text(encoding="utf-8") != text:
+            path.write_text(text, encoding="utf-8")
+            written += 1
+
+    # drop stale page files beyond the current page count (e.g. after a re-split)
+    for old in SRC.glob("quotes-*.md"):
+        idx = int(old.stem.split("-")[1])
+        if idx > npages:
+            old.unlink()
+
     return npages
 
 

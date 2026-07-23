@@ -1,4 +1,4 @@
-<!-- Page 31 of 54  ·  quotes 3001–3100 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 31 · add new quotes to ../inbox.md, not here -->
 - "Because people become fascinated with pictures and words, and wind up
 forgetting the Language of the World."
 

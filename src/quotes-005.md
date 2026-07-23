@@ -1,4 +1,4 @@
-<!-- Page 5 of 54  ·  quotes 401–500 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 5 · add new quotes to ../inbox.md, not here -->
 - "But no one ever explained how terrible it is to be in the middle of a tale and
 not to know the ending...."
 

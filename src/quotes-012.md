@@ -1,4 +1,4 @@
-<!-- Page 12 of 54  ·  quotes 1101–1200 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 12 · add new quotes to ../inbox.md, not here -->
 - "Heaven and Earth are just resting places for the myriads of living creatures.
 Time represents the passage of hundreds of generations of passing travellers."
 A smile broke out on Meng Hao’s face. Life is a journey, every turn of which is

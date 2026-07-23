@@ -1,4 +1,4 @@
-<!-- Page 52 of 54  ·  quotes 5101–5200 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 52 · add new quotes to ../inbox.md, not here -->
 - "You feel loss keenly. It seems to stir up feelings of regret in you... But this is
 something I have long since come to terms with."
 

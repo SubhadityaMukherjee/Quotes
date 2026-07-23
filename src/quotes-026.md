@@ -1,4 +1,4 @@
-<!-- Page 26 of 54  ·  quotes 2501–2600 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 26 · add new quotes to ../inbox.md, not here -->
 - "Another study, out of Yale, looked at the part of the brain known as the
 default mode network (DMN), which is active when we’re lost in
 thought—ruminating about the past, projecting into the future, obsessing about

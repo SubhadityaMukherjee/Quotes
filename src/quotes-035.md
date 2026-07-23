@@ -1,4 +1,4 @@
-<!-- Page 35 of 54  ·  quotes 3401–3500 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 35 · add new quotes to ../inbox.md, not here -->
 - "It seemed my whole life was composed of these disjointed fractions of time, hanging
 around in one public place and then another, as if I were waiting for trains that never
 came."

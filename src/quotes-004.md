@@ -1,4 +1,4 @@
-<!-- Page 4 of 54  ·  quotes 301–400 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 4 · add new quotes to ../inbox.md, not here -->
 - "If you let yourself get depressed, you will be making light of the people who
 follow and trust you."
 

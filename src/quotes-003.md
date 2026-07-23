@@ -1,4 +1,4 @@
-<!-- Page 3 of 54  ·  quotes 201–300 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 3 · add new quotes to ../inbox.md, not here -->
 - "It is the unknown we fear when we look upon death and darkness. Nothing more."
 
 - "Life is pain, highness. Anyone who says differently is selling something."

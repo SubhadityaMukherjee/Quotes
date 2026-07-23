@@ -1,4 +1,4 @@
-<!-- Page 29 of 54  ·  quotes 2801–2900 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 29 · add new quotes to ../inbox.md, not here -->
 - "Art is in what you leave out."
 
 - "Rule of 7 in research. You can find out anything if you are willing to go

@@ -1,4 +1,4 @@
-<!-- Page 27 of 54  ·  quotes 2601–2700 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 27 · add new quotes to ../inbox.md, not here -->
 - "Jeht: I don't have family traditions, and I don't even remember my mother's
 face. I only have you, and you only have me. There is no large tree and no
 branches that tie us together.  Jeht: You might have left the desert long ago,

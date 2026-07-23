@@ -1,4 +1,4 @@
-<!-- Page 45 of 54  ·  quotes 4401–4500 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 45 · add new quotes to ../inbox.md, not here -->
 - "Psychiatrist: I feel like you're not very interested in yourself. Me: Even when I keep
 a diary of my feelings? Psychiatrist: Is that not more of a record of yourself in the
 third person?"

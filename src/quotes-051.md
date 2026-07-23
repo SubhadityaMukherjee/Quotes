@@ -1,4 +1,4 @@
-<!-- Page 51 of 54  ·  quotes 5001–5100 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 51 · add new quotes to ../inbox.md, not here -->
 - "Art, whatever kind of art it is, is like the mysterious music described in the words of
 the greatest writer of all, the "sounds and sweet airs, that give delight and hurt not."
 To bear the responsibility of giving delight and hurting not is one of the greatest

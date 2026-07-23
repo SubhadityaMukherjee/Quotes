@@ -1,4 +1,4 @@
-<!-- Page 49 of 54  ·  quotes 4801–4900 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 49 · add new quotes to ../inbox.md, not here -->
 - "It takes enormous amounts of time and energy to switch focus as an autistic person.
 I've likened it in the past to turning circles for vehicles. Neurotypicals are able to
 switch tasks as easily as a car can make a U-turn. Autistic people, on the other hand,

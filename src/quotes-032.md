@@ -1,4 +1,4 @@
-<!-- Page 32 of 54  ·  quotes 3101–3200 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 32 · add new quotes to ../inbox.md, not here -->
 - "We have multiplied everything, but we are still individual selves. There"
 
 - "To enjoy life, we might have to stop thinking about what we will never be able

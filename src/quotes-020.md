@@ -1,4 +1,4 @@
-<!-- Page 20 of 54  ·  quotes 1901–2000 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 20 · add new quotes to ../inbox.md, not here -->
 - "Just pity him, my boy. Tomorrow we’ll be on our way, but he’ll have to keep
 his own disagreeable company until the day he dies."
 

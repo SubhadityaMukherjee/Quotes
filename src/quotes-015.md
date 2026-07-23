@@ -1,4 +1,4 @@
-<!-- Page 15 of 54  ·  quotes 1401–1500 of 5377  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 15 · add new quotes to ../inbox.md, not here -->
 - "No matter how colossal a power you obtain, no matter how gigantic an army you
 bring with you, I ain't scared. While you've abandoned a hundred, I've
 connected with a thousand. While you've destroyed a thousand, I've been helped
