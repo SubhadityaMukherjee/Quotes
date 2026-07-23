@@ -1,0 +1,59 @@
+<!DOCTYPE html>
+<html lang="en" data-theme="light">
+<head>
+  <meta charset="utf-8">
+  <meta name="viewport" content="width=device-width, initial-scale=1">
+  <title>Quotes</title>
+  <meta name="description" content="A collection of quotes.">
+  <link rel="stylesheet" href="style.css">
+  <link rel="preconnect" href="https://fonts.googleapis.com">
+</head>
+<body>
+  <header class="site-header">
+    <div class="wrap">
+      <h1 class="title">Quotes</h1>
+      <div class="controls">
+        <input id="search" type="search" placeholder="Search 0 quotes…" autocomplete="off"
+               aria-label="Search quotes" spellcheck="false">
+        <button id="theme" class="theme" type="button" title="Toggle theme" aria-label="Toggle theme">◑</button>
+      </div>
+    </div>
+  </header>
+
+  <main class="wrap">
+    <p id="status" class="status" aria-live="polite">Loading…</p>
+
+    <nav id="pager" class="pager" hidden>
+      <button id="first"  type="button" title="First page">«</button>
+      <button id="prev"   type="button" title="Previous page">‹</button>
+      <span class="pageinfo">
+        Page <input id="jump" type="number" min="1" value="1" aria-label="Jump to page">
+        of <span id="total-pages">1</span>
+      </span>
+      <button id="next"   type="button" title="Next page">›</button>
+      <button id="last"   type="button" title="Last page">»</button>
+    </nav>
+
+    <section id="quotes" class="quotes"></section>
+
+    <nav id="pager-bottom" class="pager" hidden>
+      <button id="first-b"  type="button" title="First page">«</button>
+      <button id="prev-b"   type="button" title="Previous page">‹</button>
+      <span class="pageinfo">
+        Page <span id="cur-page">1</span> of <span id="total-pages-b">1</span>
+      </span>
+      <button id="next-b"   type="button" title="Next page">›</button>
+      <button id="last-b"   type="button" title="Last page">»</button>
+    </nav>
+  </main>
+
+  <footer class="site-footer">
+    <div class="wrap">
+      <p>Press <kbd>/</kbd> to search · <kbd>←</kbd> <kbd>→</kbd> to turn pages.</p>
+    </div>
+  </footer>
+
+  <script src="data/quotes.js"></script>
+  <script src="app.js"></script>
+</body>
+</html>

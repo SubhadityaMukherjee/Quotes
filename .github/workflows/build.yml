@@ -1,0 +1,64 @@
+name: Build
+
+# Runs the build (ingest inbox.md -> src/, regenerate docs/data/quotes.js) and
+# commits the result back to main — but ONLY when inbox.md actually contains
+# new quotes. If inbox.md is empty (just the template comment block), the build
+# and commit steps are skipped.
+#
+# Note: pushes made with the default GITHUB_TOKEN do not re-trigger workflows,
+# so the bot's auto-commit will not create an infinite loop.
+
+on:
+  push:
+    branches: [main]
+    paths:
+      - 'inbox.md'
+  workflow_dispatch:
+
+permissions:
+  contents: write
+
+concurrency:
+  group: build-${{ github.ref }}
+  cancel-in-progress: true
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v4
+
+      - uses: actions/setup-python@v5
+        with:
+          python-version: '3.x'
+
+      - name: Check inbox for new quotes
+        id: check
+        run: |
+          python3 - <<'PY'
+          import os
+          import build
+          text = build.INBOX.read_text(encoding="utf-8") if build.INBOX.exists() else ""
+          count = len(build.collect_quotes(text))
+          with open(os.environ["GITHUB_OUTPUT"], "a") as f:
+              f.write(f"has_new={'true' if count > 0 else 'false'}\n")
+              f.write(f"count={count}\n")
+          print(f"new quotes in inbox.md: {count}")
+          PY
+
+      - name: Build (ingest inbox + rebuild site)
+        if: steps.check.outputs.has_new == 'true'
+        run: python3 build.py build
+
+      - name: Commit regenerated files
+        if: steps.check.outputs.has_new == 'true'
+        run: |
+          git config user.name  "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          git add src docs/data/quotes.js inbox.md inbox-archive
+          if git diff --cached --quiet; then
+            echo "No changes to commit."
+          else
+            git commit -m "Auto-build: ingest ${{ steps.check.outputs.count }} quote(s) from inbox"
+            git push
+          fi
