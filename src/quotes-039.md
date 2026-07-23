@@ -1,4 +1,207 @@
-<!-- Page 39 of 53  ·  quotes 3801–3900 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 39 of 54  ·  quotes 3801–3900 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "The more fragmented and minutely timeable work becomes, the more meaningless it
+becomes."
+
+- "A psychopath would make a terrible content moderator."
+
+- "At Cognizant, where humans keep coming in for work despite the conditions, one worker
+tells Newton that they are merely "bodies in seats."
+
+- "The tragedy of fungible labor time lies first in its historical association with
+coercion, exploitation, and the imagining of people as machines. Time is the punitive
+dimension in which the wage worker is both measured and squeezed. But beyond that, an
+overemphasis on fungible time upholds an impoverished view of what time and labor are in
+the first place."
+
+- "Just because you're going forward doesn't mean I'm going backward."
+
+- "As a form of Protestantism, seventeeth-century Puritanism invited introspection and
+constant evaluation of the self against a high moral standard, a practice that included
+the use of daily journals where self-observation and measurement could take place."
+
+- "A feeling of time pressure can result from constantly having to switch tasks or
+coordinate with external factors. Here,"
+
+- "Self-help has generally promised to revolutionize your life, not the social or economic
+hierarchy—and you can't really blame anyone for not fulfilling a promise they never made.
+At the same time, even seemingly practical self-help can read as an invitation to find a
+niche in a brutal world and wait for the storm to pass you over."
+
+- "If time management is not simply an issue of numerical hours but of some people having
+more control over their time than others, then the most realistic and expansive version of
+time management has to be collective:"
+
+- "Excess work and performance escalate into auto-exploitation."
+
+- "Trained to set her sights on infinity, she never experiences the feeling of having
+actually reached a goal and, instead, exhibits the "auto-aggression" of the master and
+mastered rolled into one. She is forever "jumping over [her] own shadow," frustrated at
+the impossible gap between what is and what could be."
+
+- "Social comparison is probably as old as time, but to compare a wide range of people
+using the same grades, you have to be able to turn those people into data and decide what
+you're optimizing for."
+
+- "If, in Taylorism, the measurement of work was an attempt to intensify it, then, in
+eugenics, the measurement of people was an attempt to "mold" them in a specific direction,
+a mechanistic combination of Mendelian genetics and social Darwinism."
+
+- "this is "a terrible time to have a midlife crisis." But advice for winning the rat race
+assumes that you're running"
+
+- "But advice for winning the rat race assumes that you're running in it, rather than
+peeling away from a vanishing dream."
+
+- "Slow living is now 'for sale' and approaches a consumerist lifestyle mostly for
+middle-class metropolitan dwellers—the majority of whom are probably far from holding
+transformative, progressivist or even socialist agendas. Arguably, many would admit that
+'it all needs to slow down,' but such slowness would then be, more often than not,
+consumed, and consumed privately."
+
+- "It's just that, as the experience economy expands to include commodified notions of
+things like slowness, community, authenticity, and "nature"—all while income inequality
+yawns wider and the signs of climate change intensify—I feel the panic of watching
+possible exits blocked. I keep wanting to do something instead of consume the experience
+of it. But seeking new ways of being, I find only new ways of spending."
+
+- "Whether conspicuous, compensatory, or both, consumption has long had a relationship to
+leisure, which can make leisure a strange kind of circumscribed freedom."
+
+- "Sociologists have observed that once assembly-line jobs made it difficult to see how
+well or hard someone had worked, what became visible instead was how much someone was able
+to consume. This consumption, in turn, became the new way to signal how hard one had
+worked."
+
+- "What makes you unique?" is a standard interview question. As a result, what once looked
+like leisure so easily becomes the arena both of the eternal self-upgrade and the search
+for some uniqueness to exploit. Marketing advice formerly given to companies—for example
+to "find your niche"—is now applicable to individuals during every moment of the day."
+
+- "true leisure requires the kind of emptiness in which you remember the fact of your own
+aliveness."
+
+- "Leisure is not refreshment-for-work but something completely different that exists for
+its own sake."
+
+- "If I exhibited the leisure mindset while in line for groceries, it was at least in part
+because I wasn't worried about paying for them."
+
+- "Pieper's definition of leisure emphasizes wholeness; it is "when a man is at one with
+himself, when he acquiesces in his own being."
+
+- "Heartbreak did not make me love the birds less; it did not make the ocean less
+beautiful; it only suffused my seeing them with a deep desire for things to be different."
+
+- "momentary pattern of light. Perhaps this is precisely what Pieper meant with his
+"vertical" time—maybe it is vertical not just in that it's the opposite of horizontal, but
+also in that it reaches deep into the recesses of history even as it stretches up toward
+an infinite and utopian ideal."
+
+- "Rest is not some cute lil luxury item you grant to yourself as an extra treat after
+you've worked like a machine and are now burned out," Hersey tweeted in October 2020.
+"Rest is our path to liberation. A portal for healing. A right."
+
+- "Hersey uses social media for work but is critical of the way it encourages a grind
+culture with historical roots in capitalism and white supremacy."
+
+- "introduced"—for example, indentured or wage labor. Whereas"
+
+- "Whereas the source of boredom for the leisure class was free time, the source of
+boredom for everyone else was work, and working people had no problem deciding what to do
+with whatever leisure time they were allotted."
+
+- "In its least useful form, the concept of leisure time reflects an undignified process:
+working to buy the temporary experience of freedom and then faithfully breathing air in
+the little gaps that are allowed in the horizontal plane of work. Rest and recreation are
+applied like maintenance, the leisure machine to the feeding machine."
+
+- "At its most useful, however, leisure time is an interim means of questioning the bounds
+of the work that surrounds it. Like a stent in a culture that can't stand what looks like
+emptiness, it might provide that vertical crack in the horizontal scale of work and
+not-work—that critical pause during which the worker wonders why she works so much, where
+collective grief is processed, and where the edges of something new start to become
+visible."
+
+- "What songs are audible when the wind stops? What has been kept alive in the time
+snatched from work and sheltered from ongoing destruction—what moments of recognition,
+what ways of relating, what other imagined worlds, what other selves? What other kinds of
+time?"
+
+- "In his 2021 special, Inside, Bo Burnham deadpans that "the outside world, the
+non-digital world, is merely a theatrical space in which one stages and records content
+for the much more real, much more vital, digital space. One should only engage with the
+outside world as one engages with a coal mine. Suit up, gather what is needed, and return
+to the surface."
+
+- "For Bergson, time was duration—something creating, developing, and somewhat mysterious,
+as opposed to abstract and measurable. According to him, all our problems conceiving of
+the true nature of time stemmed from wanting to imagine discrete moments sitting side by
+side in space. He further noted that this "space" was not concrete environmental space,
+but something purely conceptual: Think of that green-on-black grid that sometimes shows up
+in the virtual nonspace of sci-fi movies, and think of moments in this kind of time as
+cubes existing in that space. (This conception also provided the grounds for the concept
+of fungible time I mention in chapters 1 and 2.) Bergson thought that our predisposition
+toward thinking of time in these kinds of spatial terms came from our experience
+manipulating inert matter; we wanted to see time in the same way, as something we could
+cut up, stack, and move around."
+
+- "Time as expressed in these processes—which Bergson explains using what he calls the
+élan vital (usually translated as "vital impetus" or "life force")—is not an abstract
+quantity to be counted up and measured. Instead, it's another irreversible turn of the
+kaleidoscope, something driving division, reproduction, growth, decay, and complexity. The
+old adage "You never step in the same river twice" also speaks quite well to what Bergson
+is describing, especially if you go on to consider the shifts in evolution of the
+riverbank, the canyon that the river may be slowly carving, and maybe even the cellular
+processes in your foot."
+
+- "Meanwhile, as you stand there thinking about it, the live edge of the lava is moving
+forward into the future, which is imminent in every present moment but also contains the
+history of everything that happened before. Another example would be a seed that has
+fallen from one individual in a generation of plants and that contains the instructions
+for a future plant."
+
+- "Clock time is not the only form of time reckoning we experience, but it is certainly
+primary in how many of us think about the "stuff" of time. And it was an allegiance to
+clock time that allowed colonists, anthropologists, and contemporary Western observers in
+general to view non-Western and indigenous cultures as being without, or outside, time."
+
+- "We don't have a word for nonlinear in our languages because nobody would consider
+traveling, thinking, or talking in a straight line in the first place. The winding path is
+just how a path is, and therefore it needs no name."
+
+- "by every subsequent wave. Look again at the pebbles. Make no mistake: They are neither
+signs nor symbols of time. No—they really are two things at once: seafloor from the last
+ice age, and future sand."
+
+- "Resting here gives us a very different sense of being "on time." Rather than avatars
+passing through an empty calendar square, we are actually on top of the material outcome
+of processes that span millions of years into both the past and the future. Suddenly,
+everything we look at is suffused with concrete time: not just the pebbles, crags, and
+cliffs, but also the fog's slow movement to the south; each wave's unrepeatable expression
+of tides and wind; the frenetic activity of the beach flies; the dispersion of air and
+water through our bodies; and even the chemicals flashing across our synapses as we think
+these very thoughts. They, too, will never repeat, and they, too, make the world anew."
+
+- "ROCKS WILL TEACH you the inseparability of time and space."
+
+- "I see that the events of the past are still present….This impression is a glimpse not
+of timelessness but timefulness, an acute consciousness of how the world is made
+by—indeed, made of—time."
+
+- "Newtonian time is the kind of time that can be measured, bought, and sold. Wage work
+requires us to see time as "stuff" divorced from bodies and environmental context."
+
+- "There is no inherent reason for a season to be any length of time, much less of four
+equal, mutually exclusive lengths. Until relatively recently, the naming and recognition
+of seasons or seasonal entities was an indicator of some action to be taken: collecting,
+hunting, harvesting."
+
+- "If, as Deloria puts it, each place exhibits a "personality," then it is made out of as
+much when as who: a string of overlapping developments like the tracks of a song. This
+song sounds slightly different in each place:"
+
+- "invisibility is part of the very nature of habit."
+
 - "In the translator's afterword to a 2010 edition of An Attempt at Exhausting a Place in
 Paris, Marc Lowenthal emphasizes the "attempt" in Perec's toc: true title, writing that
 "time, unarrestable, works against [Perec's] project….Every bus that passes, every person
@@ -255,218 +458,4 @@ different kinds of lives, with wanting, doing, and being otherwise."
 cynicism, apathy, and anger to which there is no outlet."
 
 - "To keep walking is to keep living, to keep inquiring, and to keep hoping."
-
-- "This simple gesture, and the story of the beans, made me realize how broken my mental
-mechanisms were for thinking about anything beyond the transactional exchange."
-
-- "Time can have many rhythms, and rhythms can take on many meanings."
-
-- "Tempo and intensity surround us at every level: we know that a birthday tomorrow can
-feel like an eternity to a little child whilst a birthday one year ago can seem like only
-yesterday to an old person. The dormant period of winter is followed by a burst of growth
-in spring….'Our' social time as it emerges from common usage is inseparable from the
-rhythms of the earth. Complexity reigns supreme."
-
-- "Saying it meant that you could take time and give time, but also that you could plant
-time and grow more of it and that there were different varieties of time. It meant that
-all your time grew out of someone else's time, maybe out of something someone planted long
-ago. It meant that time was not the currency of a zero-sum game and that, sometimes, the
-best way for me to get more time would be to give it to you, and the best way for you to
-get some would be to give it back to me. If time were not a commodity, then time, our
-time, would not be as scarce as it seemed just a moment ago. Together, we could have all
-the time in the world."
-
-- "In "Why Time Management Is Ruining Our Lives," Oliver Burkeman observes that keeping a
-detailed log of your time use, in an effort to save time or spend it more wisely,
-ironically "heightens your awareness of the minutes ticking by, then lost forever."
-Whether on the level of minutes or of life stages and benchmarks, the more you stare at
-time, the more cruelly it seems to slip through your fingers."
-
-- "the product offered by a capitalist version of wellness is "the means to remake oneself
-into an ever more perfect self-correcting machine capable of setting goals and moving
-toward them with smooth determination."
-
-- "How long does it take, or should it take, for a body to move through the world, the
-forty-plus-hour work week, the demands of caregiving for ailing parents, the daily commute
-of the body with its changing needs over the life span—a pregnant body, an aging one, a
-body in recovery after a bad injury?" Hendren asks. "Is the clock of industrial time built
-for bodies at all?"
-
-- "It's actually okay to be on a spectrum of reality. It means that there are times when
-it's juicier, there are times when it's drier, there's times when I'm gonna be tired,
-there's times when I'm going to have a lot of energy. It's actually part of being alive.
-It is being alive."
-
-- "Too worn out to grasp, and forced to sit back, the tired and resigned person finds that
-something else floods in: the world, in all its detail, its constantly acting and
-infinitely dispersed agents, and its minute-by-minute changes."
-
-- "deep tiredness loosens the strictures of identity. Things flicker, twinkle, and vibrate
-at the edges."
-
-- "Maybe "the point" isn't to live more, in the literal sense of a longer or more
-productive life, but rather, to be more alive in any given moment—a movement outward and
-across, rather than shooting forward on a narrow, lonely track."
-
-- "Disability highlights something that is true for all of us: No matter how independent
-and fit we may feel, we are not simply alive but, rather, kept alive—against odds that
-some people are nonetheless privileged enough to ignore."
-
-- "People do not spring up from the soil like mushrooms," she writes. "People need to be
-cared for and nurtured throughout their lives by other people."
-
-- "For me, death is when I can no longer engage with the world around me; when I can no
-longer take anything in and, therefore, can no longer connect."
-
-- "what's the use of building your body if you can't build your mind?"
-
-- "It is, therefore, a severe and grave misinterpretation of man to deal with him as if he
-were a closed system."
-
-- "A lack of "direct access" to the mental states of those selves makes us less prone to
-see them as having evolving inner lives."
-
-- "No matter how optimized, healthy, and productive I am, I simply will not become more or
-better forever, which means there are things I will never do and never be. Just like this
-book, which could have been anything when I started it, my life will take some paths and
-not others—and then it will end, the thread pulled out of the ball, with no witch to
-indulge me by taking it back. Realizing that I cannot be everything is in one sense
-incredibly freeing: It means I am not responsible for being everything. Yet the fact that
-life ends, for anyone who enjoys being alive and in the world, is also inherently
-sorrowful."
-
-- "I feel alive if I'm not alone in the air, but embraced by it. I feel alive when
-someone's eyes light up, and mine do too. I feel alive if I can look at a deer and see it
-looking back at me; if, when geese speak, it sounds like language; if, when I walk on the
-ground, I feel it pushing back against me."
-
-- "No one is responsible for an emergence; no one can glory in it, since it always occurs
-in the interstice."
-
-- "But when I understand that this glass is already broken, every minute with it is
-precious."
-
-- "With nothing but distance between you and your destination, it may as well have already
-taken place. It's as though you had an amazing set of binoculars that let you see
-something far away in such detail that you didn't actually need to go there. Let's just
-get it over with, says the heartbroken subject, unable to enjoy her already-broken cup."
-
-- "You're turning time into space, he would say. You're imagining empty blocks of time
-stretching out in front of you, mentally crossing that distance toward the thing you think
-has already happened, instead of admitting the creative aspect of time that is ever
-evolving and shifting, each second heaving the world—and you—through the crust of the
-present and into the future."
-
-- "Could it be that the opposite of looking assuredly through binoculars at a flat space
-would be the perspective you get when rounding a mountain trail—one where, even though you
-know where you are, things look different at every turn?"
-
-- "Though my episodic memory goes back only so far, my existence is explained by older
-things: my mother's immigration, a war whose exigencies threw my grandparents together,
-and the fish swimming off the coast of Estancia, on the eastern tip of Iloilo. The people
-who fished there have something to do with me, just as I continue to have something to do
-with them."
-
-- "Kinship moves in cycles, the land moves in seasonal cycles, the sky moves in stellar
-cycles, and time is so bound up in those things that it is not even a separate concept
-from space. We experience time in a very different way from people immersed in flat
-schedules and story-less surfaces. In our spheres of existence, time does not go in a
-straight line, and it is as tangible as the ground we stand on."
-
-- "Compared to chronos, kairos sounds like the domain of those wayfarers who knew that
-time is inseparable from space and that every place-moment demands close attention, lest
-you miss your opportunity. It's not that you can't plan, but that the time in the plan
-doesn't appear flat, dead, inert. Instead, in the "meantime," you wait with your ear to
-the ground for patterns of vibration that will never repeat themselves. Faced with
-flatness, you look for an opening. When it comes, you take it, and you don't look back."
-
-- "You can make the same mistake in the opposite direction, forgetting that the future
-will contain many such moments of doubt—or even neglecting to notice when you're in one."
-
-- "The past would crush you with tradition, and the future would crush you with
-determinism. Hence the importance and fragility of the "gap" (another term for "non-time")
-in the toc: true title of Arendt's preface, "The Gap between Past and Future." To live in
-the gap between past and future is quite simply the human condition, even if culturally
-dominant and politically convenient views of time, history, and the future obscure it from
-us. Looking mournfully to the future in which something new can never happen, we can't see
-ourselves standing in the gap, the only place where anything new is capable of happening.
-It makes me wonder if one meaning of "having time" is to halve time—to make a cut in
-chronos and hold the past and the future apart as much as hope will allow.[*5] — EVERY
-PIECE OF writing is a time capsule. It assembles fragments of its own world and sends them
-onward to a reader who exists in a different one, not just in space but also in time. Even
-writing privately in a journal presupposes a future self who will be reading it—and a
-future at all. In the case of this book, I cannot know what has happened between the time
-I am writing this and the time in which you are encountering it. But I can tell you that I
-am living in a moment of doubt. Perhaps you are, too. That evening when I saw the
-indistinguishable figure, I had been headed to the place where the road ends, a designated
-"natural area" called Raab's Lagoon. There, after the pavement turns to grass, you pass
-under alder and fir trees and come to a bench dedicated to a man who died in 2016. If you
-keep going, the pathway juts out into the water, part of an artificial barrier between the
-waters of Quartermaster Harbor and the smaller lagoon. Across a small breach through which
-the harbor water flows, the barrier continues on until it hits the other side of the
-lagoon. The first time I visited, the water in the breach didn't seem to be moving in any
-particular direction. It was high tide, though I didn't know that at the time; having just
-arrived, I thought the area always looked like that. Over the course of a few weeks, I
-inevitably became familiar with the tides, because Quartermaster Harbor was right outside
-the door of my room. When the tide was high, you could hear the water plopping and the
-plastic canoe docks banging against the wooden posts, something I started to call "the
-song of the dock." When the tide was lower, white-winged scoters, migratory diving ducks
-with a surreal flourish of a white feather under their eyes, would appear in loose flocks
-and dive for the mussels at the bottom. When the tide was all the way out, the mussel
-shells were maximally revealed, and both people"
-
-- "The mind always wants to categorize and compare,"
-
-- "A belief may be comforting. Only through your own experience, however, does it become
-liberating."
-
-- "So the single most vital step on your journey toward enlightenment is this: learn to
-disidentify from your mind. Every time you create a gap in the stream of mind, the light
-of your consciousness grows stronger."
-
-- "Emotion arises at the place where mind and body meet."
-
-- "If you really want to know your mind, the body will always give you a truthful
-reflection, so look at the emotion or rather feel it in your body. If there is an apparent
-conflict between them, the thought will be the lie, the emotion will be the truth."
-
-- "Even when the sky is heavily overcast, the sun hasn't disappeared. It's still there on
-the other side of the clouds."
-
-- "All cravings are the mind seeking salvation or fulfillment in external things and in
-the future as a substitute for the joy of Being."
-
-- "Pain is inevitable as long as you are identified with your mind, which is to say as
-long as you are unconscious, spiritually speaking."
-
-- "The pain that you create now is always some form of nonacceptance, some form of
-unconscious resistance to what is."
-
-- "In other words, the more you are identified with your mind, the more you suffer."
-
-- "Yes, we need the mind as well as time to function in this world, but there comes a
-point where they take over our lives, and this is where dysfunction, pain, and sorrow set
-in."
-
-- "The accumulation of time in the collective and individual human mind also holds a vast
-amount of residual pain from the past."
-
-- "Always say "yes" to the present moment. What could be more futile, more insane, than to
-create inner resistance to something that already"
-
-- "What could be more futile, more insane, than to create inner resistance to something
-that already is?"
-
-- "By watching the mechanics of the mind, you step out of its resistance patterns, and you
-can then allow the present moment to be."
-
-- "Accept then act. Whatever the present moment contains, accept it as if you had chosen
-it. Always work with it, not against it. Make it your friend and ally, not your enemy.
-This will miraculously transform your whole life."
-
-- "Pain can only feed on pain. Pain cannot feed on joy. It finds it quite indigestible."
-
-- "Once the pain-body has taken you over, you want more pain. You become a victim or a
-perpetrator. You want to inflict pain, or you want to suffer pain, or both. There isn't
-really much difference between the two."
 

@@ -1,4 +1,163 @@
-<!-- Page 43 of 53  ·  quotes 4201–4300 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 43 of 54  ·  quotes 4201–4300 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "For the artist, whose job is testing possibilities, success is as much ruling out a
+solution as finding one that works."
+
+- "In the process of experimentation, we allow ourselves to make mistakes, to go too far,
+to go even further, to be inept. There is no failure, as every step we take is necessary
+to reach our destination, including the missteps. Each experiment is valuable in its own
+way if we learn something from it. Even if we can't comprehend its worth, we are still
+practicing our craft, moving ever so much closer to mastery."
+
+- "Humanity breathes in mistakes."
+
+- "Making great art may not always require great effort, but without it, you'll never
+know."
+
+- "Creativity is something you are, not only something you do."
+
+- "Quality isn't based on the amount of time invested."
+
+- "If you sit down to write with no preparation or forethought, you might bypass the
+conscious mind and draw from the unconscious. You may find that what emerges holds a
+charge that cannot be duplicated through rational means."
+
+- "If we were to learn anything, it would be to free ourselves from any beliefs or baggage
+or dogma that gets in the way of us acting according to our true nature. The closer we get
+to a childlike state of free self-expression, the purer our test and the better our art."
+
+- "Once a work is complete, no amount of testing can guarantee we've made the best
+possible version. These qualities are not measurable. We test to identify which is the
+best version from the options at hand."
+
+- "When the work has five mistakes, it's not yet completed. When it has eight mistakes, it
+might be."
+
+- "If we like what we are creating, we don't have to know why. Sometimes the reasons are
+obvious, sometimes not. And they can change over time. It could be good for any of a
+thousand different reasons. When we're making things we love, our mission is accomplished.
+There's nothing at all to figure out."
+
+- "Holding your work hostage to meaning is a limitation."
+
+- "is far more powerful than our plans"
+
+- "Art is far more powerful than our plans for it."
+
+- "Art is above and beyond judgment. It either speaks to you or it doesn't. The artist's
+only responsibility is to the work itself. There are no other requirements. You're free to
+create what you will."
+
+- "Whether you have a powerful passion or a tortured compulsion, neither makes the art any
+better or worse. If you are able to choose between these paths, consider selecting the
+more sustainable one. An artist earns the toc: true title simply through self-expression,
+as they work in their own way at their own pace."
+
+- "Established artists generally draw from their personal experience and recommend the
+solutions that worked for them. These tend to be specific to their journey, not yours.
+It's worth remembering that their way is not the way."
+
+- "The passive element of practice is as important as the active one."
+
+- "I'm both a professor and student, because if you're no longer a student, you don't have
+the right to call yourself a professor."
+
+- "If you feel unable to hit a note or faithfully paint an image, it's helpful to remember
+that the challenge is not that you can't do it, but that you haven't done it yet. Avoid
+thinking in impossibilities."
+
+- "Having the knowledge won't hurt the work. How you use the knowledge may. You have new
+tools. You don't have to use them."
+
+- "If we train ourselves to step away from the work, to truly detach from it, to distract
+ourselves completely, to dive fully into something else . . . After being away for a long
+enough period of time, when we come back, we just may be able to see it as if for the
+first time."
+
+- "A way to practice keeping a clean slate is to avoid looking at the work too often. If
+you finish a section or come to a sticking point, consider putting the project away and
+not engaging with it for a period of time. Let it sit for a minute, a week, or longer,
+while you go get lost."
+
+- "The context changes the content."
+
+- "The social norms of any time and place are another contextual box that art lives in."
+
+- "When a piece isn't living up to your expectations, consider changing the context. Look
+past the principle element, examine the variables around it. Play with different
+combinations. Place it next to other works. Surprise yourself."
+
+- "If the work is thrilling one day and isn't for a long while after, you may have
+experienced a false indicator. When the moments of joy seem like a distant memory and the
+work feels like an obligation to a past idea, this could mean you've either gone too far
+or that particular seed wasn't actually ready to germinate yet."
+
+- "Every artist creates a dynamic history. A living museum of finished objects. One work
+after another. Begun, completed, released. Begun, completed, released. Over and over
+again. Each a time stamp commemorating a moment of passage. A moment filled with energy,
+now forever embodied in a work of art."
+
+- "Within every artist, there's a child emptying a box of crayons onto the floor,
+searching for just the right color to draw the sky."
+
+- "If you're looking for the work to support you, you may be asking too much of it. We
+create in service to art, not for what we can get from art."
+
+- "Creativity is contagious."
+
+- "If asked to participate in a fellow creator's project, proceed delicately."
+
+- "Sometimes the most valuable touch a collaborator can have is no touch at all."
+
+- "Believing an idea is best because it's ours is an error of inexperience. The ego
+demands personal authorship, inflating itself at the expense of the art. It can reject new
+methods that appear counterintuitive and protect familiar ones."
+
+- "Great decisions aren't made in a spirit of sacrifice. They're made by the mutual
+recognition of the best solution available."
+
+- "The more clinical the feedback, the better it will be received."
+
+- "Our ego can perceive assistance as interference."
+
+- "It helps to keep in mind that language is an imperfect means of communication."
+
+- "We like to think of ourselves as consistent, rational beings, possessing certain
+attributes and not others. Yet a person who is completely consistent, who possesses no
+contradictions, comes across as less real. Wooden. Plastic."
+
+- "Art goes deeper than thought. Deeper than the stories about yourself. It breaks through
+inner walls and accesses what's behind. If we get out of the way and let the art do its
+work, it may yield the sincerity we seek. And sincerity may look nothing like we
+expected."
+
+- "The editor's role is to gather and sift. Amplifying what's vital and whittling away the
+excess. Culling the work down to the best version of itself."
+
+- "The editor is required to set ego aside. Ego pridefully attaches to individual elements
+of a work. The editor's role is to remain unattached and see beyond these passions to find
+unity and balance. Talented artists who are unskilled editors can do subpar work and fail
+to live up to their gift's promise."
+
+- "As we move closer to the completion of a project, it can be helpful to drastically cut
+the work back to only what's necessary, to conduct a ruthless edit."
+
+- "Making the simple complicated is commonplace," Charles Mingus once said. "Making the
+complicated simple, awesomely simple, that's creativity."
+
+- "Art is a reverberation of an impermanent life."
+
+- "Just as each small stroke on a canvas can't step aside to see the whole painting, we're
+unable to take in the great whole of relationships and counterbalance that surrounds us in
+all directions."
+
+- "The magic is not in the analyzing or the understanding. The magic lives in the wonder
+of what we do not know."
+
+- "The widespread use of chopsticks shaped the development of Chinese cuisine—the reason
+there's so much preparatory chopping involved in making a Chinese meal is because dishes
+had to consist of bite-size pieces that could easily be grasped with chopsticks, since
+nothing was sliced at the table."
+
 - "As she fingered the pamphlets, I realized it was new to her, this idea of vegetarianism
 not as a mark of poverty but a conscious lifestyle choice, and coming from my place of
 privilege, I hadn't understood her wariness about it."
@@ -182,213 +341,4 @@ experience."
 
 - "Contact with another person is a basic biological need; loneliness is a form of
 starvation."
-
-- "We're made of energy. The nature of energy is to be shared, to spread, to connect one
-thing to another. Sharing space with other people means that our energy influences theirs,
-and theirs influences ours. It's physics. And psychology. And unavoidable. And amazing."
-
-- "people tend to take better care of themselves when they're in a high-quality
-relationship. In other words, our "self-care" is facilitated by the ways we care for and
-are cared for by someone else."
-
-- "Rage gives you strength and energy and the urge to fight, and sharing that energy in
-the Bubble changes it from something potentially dangerous to something safe and
-potentially transformative."
-
-- "The pleasure of synchronized movement is built into our biology, and it's a powerful
-tool to access your greatest well-being."
-
-- "When it's inconvenient, it's probably doing the most for you."
-
-- "What makes you stronger is whatever happens to you after you survive the thing that
-didn't kill you. What makes you stronger is rest."
-
-- "You don't have to set yourself on fire to keep other people warm."
-
-- "Caring for myself is not self-indulgence, it is self-preservation, and that is an act
-of political warfare."
-
-- "Mental rest is not idleness; it is the time necessary for your brain to process the
-world."
-
-- "Boredom is the discomfort you experience when your brain is in active-attention mode,
-but can't latch on to anything to attend"
-
-- "Everybody knows a muscle that isn't used will atrophy. We all know a muscle that is
-worked constantly, without rest, will grow fatigued and eventually fail in exhaustion. And
-we all know a muscle that gets worked and rested and worked and rested will grow
-stronger."
-
-- "Our whole body, including our brain, is working hard as we sleep, to accomplish
-life-preserving tasks that can be best achieved when we're not around to interfere."
-
-- "If you've dealt with the stressors but haven't dealt with the stress itself, your brain
-won't let you rest. It will constantly scan for the lion that's about to come after you,
-so when you try to go to sleep, your brain won't let you fall asleep, or it will wake you
-up over and over, checking for that lion. Complete the cycle, so your brain can transition
-into rest."
-
-- "I don't want a doctor who's been awake for twenty hours; I don't want a lawyer who
-bills more than twelve hours a day—I know how sloppy work gets when somebody is
-fatigued—and you shouldn't want an engineer who isn't sleeping seven hours a night. Your
-work is crap if your brain isn't rested."
-
-- "Hi, rage. I know our family raised us to believe we didn't matter unless we were
-perfect, and perfect means we never stop working, and it's right to be angry that we
-didn't get the warm, unconditional acceptance every child is born deserving. Let's treat
-ourselves as we wanted to be treated, granting ourselves permission to be human."
-
-- "Mine is more like a teenage version: the smart, quiet, yet sad and downtrodden girl who
-always sat in the back of class and no one talked to….When something goes wrong, I can
-hear her 'told you so' voice in the back of my mind."
-
-- "This uncomfortable, fragile part of ourselves serves a very important function. She
-grew inside us, to manage the chasm between who we are and who Human Giver Syndrome
-expects us to be. She is the part of us that has the impossible, tormenting task of
-bridging the unbridgeable chasm between us and this "expected-us." It's a form of torture,
-like Sisyphus rolling a rock up a hill only to have it roll back down each time. She's
-forever oscillating from rage to helpless despair."
-
-- "Listen to her stories—never forgetting she's a madwoman. Remind her that you are the
-grown-up, the homeowner, or the teacher, and she can trust you to maintain the attic so
-that she always has a safe place to stay. Thank her for the hard work she has done to help
-you survive."
-
-- "Guilt is, 'I made a mistake.' Shame is, 'I am a mistake.' " With guilt, as opposed to
-shame, there is at least a pretense that one day you might deserve to participate fully in
-the human experience. With shame, your core self is judged."
-
-- "Are we really working toward our goals only because we'll torture ourselves if we stop,
-so that as soon as we put down the whip we'll sink into eternal apathy? Of course not. In
-fact, it's the opposite: We only whip ourselves because our goals matter so much that
-we're willing to suffer this self-inflicted pain if that's what it takes. And we believe
-that because we've always done it that way, it must be why we've accomplished as much as
-we have."
-
-- "When people with depression try to be self-reassuring, their brains respond with threat
-activation.12 In fact, fear of compassion for self is linked to fear of compassion from
-others. That means that somewhere inside them, they believe that if they're isolated,
-that's good; isolation protects others from their real, core badness."
-
-- "And she realized "Perfect Julie" was just a defense she had constructed, to protect her
-real madwoman—who wasn't a woman at all, but a little girl. This little girl was sensitive
-and afraid of rejection. She loved books and theater. She put on "Perfect Julie" the way a
-little girl might put on her mother's shoes and lipstick, playing pretend. She wore
-"adulting" as a costume. It had been a game at first, like playing house, back when she
-was Diana's age. But as Julie had gotten older, the Perfect Julie costume became necessary
-to disguise the fact that she was, underneath it all, just a girl who didn't want to make
-anyone mad."
-
-- "Beating ourselves up results in pain, obviously, so at the same time that we're beating
-ourselves up, we're looking for ways to manage that pain, to make it bearable."
-
-- "Whichever metaphor you prefer, self-compassion isn't always a comfortable or peaceful
-experience, but it does help us grow mightier."
-
-- "lot of us have a quiet little voice worrying that we'll get up in that corporate office
-and have no idea what we're actually doing. As a person with a hobby, you're not ready for
-all of that now, and it's difficult to imagine what it will feel like and how ready you
-could be after you go through the process of growing. The difficulty of imagining
-ourselves with the knowledge, expertise, and strengths we will gain in the future can stop
-us entirely from moving toward that future."
-
-- "It's really strange when we're doing our best, and our best falls short of what the
-world expects from us. When we can turn toward that strangeness with observational
-distance, then we are best enabled to be the change we want to see in the world."
-
-- "Being grateful for good things doesn't erase the difficult things"
-
-- "The cure for burnout is not "self-care"; it is all of us caring for one another. So
-we'll say it one more time: Trust your body. Be kind to yourself. You are enough, just as
-you are right now. Your joy matters. Please tell everyone you know."
-
-- "Humans are not built to do big things alone; we are built to do them together."
-
-- "even if I felt like a social pariah in my classes, at least I would have a better
-vocabulary than these philistines"
-
-- "I realized that there was some prestige in being smart, or at least appearing smart.
-Sounding smart was not the same social Teflon as being good-looking or athletic or funny,
-but hell, if someone could give me some props for being good at school, I would take nerd
-props over no props at all."
-
-- "They belonged in a way that I never could, and their regard for me was sweet and sour.
-How Asian."
-
-- "But in the course of reading great books, something happened. My reading molded me, the
-tool hammering its hand into shape. By some miracle—and by miracle, I mean great
-teachers—I pushed past the shallowness and stupidity of my own motivations. I fell in love
-with the actual literature and the actual ideas of great literature."
-
-- "The medium has no depth, but the content does."
-
-- "If you catch me in my off-guard moments, I'll tell you that at some points in my life,
-I wanted to be white. It's not a proud feeling, but it's not a feeling that comes from the
-shame of being brown. It's a tired feeling. Tired of the crushing racism. Tired of not
-belonging. It's the exhaustion from fighting for your right to exist."
-
-- "Faith. Knowledge. Doubt. They weaved in and out of our lives with a baroque intricacy,
-a background fugue to our stumblings on the stage."
-
-- "What do you have control over? And what is beyond your control? As Camus's protagonist,
-Dr. Rieux offers an answer: when the world is coming apart, you do your job."
-
-- "That was the delusion. We weren't like everybody else. I now had the menace of knowing,
-and it infected everything I did. I was reminded of it constantly in ways large and small:
-my parents' wobbly accents as my English became arrow-straight, the long and confusing
-searches in the grocery stores for simple items, the stares from strangers at the mall.
-These reminders that my family was not a normal American family—that we didn't look like
-the rest of our town, that we were from somewhere else—wove into my very fabric a need to
-belong, a need that was a glittering and slippery yarn. I would never be able to untangle
-it from who I was and who I wanted to be, and it seemed that if I tugged on this thread,
-everything would unravel and leave me exposed."
-
-- "Bà Ngoại's ire wasn't the anger of personal damages but the anger of being shamed, a
-singular dishonor that she and my parents bore heavily. If our elders felt that we kids
-had done something to embarrass them or to cause them to lose face, our punishment was
-administered as if the entire town were watching and judging them as parents. Puritanical
-in its purity and unflinching in its deliverance. The severity of our punishment was
-commensurate to their own perception of their parenting."
-
-- "Bà Ngoại, my grandmother. Gentle one moment, violent in the next. Violence was
-sometimes kindness. Sometimes it was love. Sometimes it was rage. But it was everywhere,
-always."
-
-- "But if I allowed myself to be harmed by words, I was showing them that I belonged at
-least by virtue of understanding their language. And all I wanted was to belong."
-
-- "Kids covet things. They see something that other kids have, and they want that thing.
-They see a cool T-shirt with Darth Vader on it, and they want that shirt, too. Soon they
-want the house, the hair, the skin color."
-
-- "As an adult, I can explain and even understand where his anger came from (PTSD as a
-refugee, his own abuse as a child, the cycle of abuse that can perpetuate itself in a
-culture that equated obedient children with great parenting). As a second grader, I knew
-this violence as my only reality. If I spilled something, disobeyed, did something too
-quickly or too slowly."
-
-- "The wish for different parents fuels the archetypal fairy tales about evil stepmothers
-and children left in the woods. These fairy tales pivot around the wish that our parents,
-irascible and imperfect, aren't even our real parents, that a fairy godmother will reveal
-to us our true royal bloodline or magical lineage. Whether you're Harry Potter or Luke
-Skywalker or Cinderella, the fantasy is that the adults who are raising you aren't even
-your real parents, that your real parents are kinder and magical."
-
-- "My past was worse than my present, and if my present indicated my future, I could live
-with that."
-
-- "As an adult, I've been able to understand that my father was not as trapped by his past
-as I thought he was. He was often violent and angry, but now I can look back and see that
-he tried to do fun things from time to time, things that didn't fit into the narrow,
-cartoonish image that I formed of him."
-
-- "But even if the past is unchangeable, maybe our perspective of the past can change. And
-maybe the way we see past events can change, and if that can change, maybe the past event
-itself does change—not in action or outcome but in purpose and intent."
-
-- "How could I explain to Lou that we were symbols? That some people would never be able
-to see us as just people? That we were symbols of a painful and confusing war? Symbols of
-the refugees they saw on TV? Symbols of what they were afraid of? Symbols of the people
-who had shot at them and killed their friends, brothers, and sons? Symbols of whatever
-they wanted to see?"
 

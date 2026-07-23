@@ -1,4 +1,100 @@
-<!-- Page 15 of 53  ·  quotes 1401–1500 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 15 of 54  ·  quotes 1401–1500 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "No matter how colossal a power you obtain, no matter how gigantic an army you
+bring with you, I ain't scared. While you've abandoned a hundred, I've
+connected with a thousand. While you've destroyed a thousand, I've been helped
+by ten thousand. So what's  an army of a few thousand? We have protected
+everything as just three people."
+
+- "I choose my own battlefields. Not by my blood, but by my heart! I stand on the
+battlefield to protect what's  important to me. And if anyone stands in my way,
+I don't care if it's  one of my kind, my brother or anyone else… I'll crush
+them all!"
+
+- "It's  as if you are stuck in some predetermined program, following some
+predetermined script. If you really want to live in reality, then fight against
+it. Break through destiny with your own hands, and build your own reality!"
+
+- "There is no need for any proof. There is no need to create any. We just have
+to live every second to the fullest, and the traces of the path we lived will
+burn into the ground. That will serve as proof of our existence."
+
+- "No matter how beautiful a person may be, they will still age and ultimately -
+die. But even so, even if appearances change, don't you believe that we have,
+in us, things that don't change? Even as our bodies crumble, even as the months
+and years take their toll... don't you believe that we all have something that
+time can't spoil? Even if you cover us with wrinkles, we won't lose to you.
+That's  because we know what beauty truly is."
+
+- "People need to live their life with a clear conscience. When you want to walk
+on a straight path, somehow you get yourself stained with mud. However, as long
+as we never give up, one day the mud on you will dry up and fall off"
+
+- "Even if you can't move anymore, or your back gets bent out of shape, it
+doesn't matter! What matters is what's  inside! Not what someone looks like,
+dammit!"
+
+- "What is right? What is wrong? In this mixed up world, deciding what is right
+and wrong is not easy. You can't just go by somebody else's  rules. If you let
+yourself be controlled like that, you'll just become a puppet that can't make
+decisions on it's  own. You have to live by your rules."
+
+- "No matter how hard you blow, you can never extinguish our fire. As long as a
+single flare remains, the others can be relit."
+
+- "It hasn't withered. I won't let it wither. We might just be little branches,
+but if the branches break off, the tree really will wither. That's  why I won't
+break off. Even if winter comes and the leaves fall off, even if the wind comes
+and all the other little branches break off... Even if I am the last branch
+left, I won't break off. I'm sure we'll be together till the end."
+
+- "Trying to shoulder the burden all by yourself? Don't be a stranger. Weep and
+ask for help. Lean on me with your runny nose. Cry when you feel like crying.
+Laugh when you feel like laughing. When you're tearing up with an ugly face,
+I'll give you a good cry with an uglier face. When you're laughing so hard your
+stomach hurts, I'll laugh in a louder voice. That's  how it should be. It's far
+better to get dirty while living true to yourself, than to throw away yourself
+and die a clean death."
+
+- "The country? the skies? You can have them. I'm busy just protecting what's
+right in front of me. I don't know what'll happen to me in the future, but if
+something has fallen at my feet, then the least I can do is pick it up."
+
+- "The zipper is a window to society."
+
+- "The best way to live a full life is to be a child, no matter your age."
+
+- "It may be tough now, but the worst is surely yet to come. Keep that in mind,
+and you'll be fine."
+
+- "That's  a good attitude. You should hate me more, curse me more, and detest
+me! Then you should take the power of that hatred and use it to survive in this
+rotten world"
+
+- "If Only Life Was as Beautiful as It Seemed at First Sight"
+
+- "There is no light for this who do not know the darkness. Live on and endure
+the shadows and brightness shall come your way."
+
+- "The more one tries to look away, the more one gets pre occupied. Once your
+heart is preoccupied, your sword will not be true. Then you will die. Dont be
+preoccupied with a single spot. See everything in its entirety effortlessly."
+
+- "Be aware of yourself. And accept yourself as you are. Thats where your
+training should begin."
+
+- "Our lives are not our own. From womb to tomb, we are bound to others. Past and
+present. And by each crime and every kindness, we birth our future."
+
+- "Belief, like fear or love, is a force to be understood as we understand the
+Theory of Relativity and Principles of Uncertainty: phenomenon that determine
+the course of our lives. Yesterday, my life was headed in one direction. Today,
+it is headed in another. Yesterday I believed that I would never have done what
+I did today. These forces that often remake time and space, that can shape and
+alter who we imagine ourselves to be, begin long before we are born and
+continue after we perish. Our lives and our choices, like quantum trajectories,
+are understood moment to moment. At each point of intersection, each encounter
+suggests a new potential direction."
+
 - "I understand now that boundaries between noise and sound are conventions. All
 boundaries are conventions, waiting to be transcended. One may transcend any
 convention if only one can first conceive of doing so. Moments like this, I can
@@ -240,84 +336,4 @@ Truly skilled trainers should try to win with all their favorites."
 
 - "A Caterpie may change into a Butterfree, but the heart that beats inside
 remains the same."
-
-- "I see now that one’s birth is irrelevant. It’s what you do that determines who
-you are."
-
-- "There’s no sense in going out of your way to get somebody to like you."
-
-- "It’s more important to master the cards you’re holding than to complain about
-the ones your opponent was dealt."
-
-- "Do you always need a reason to help somebody?"
-
-- "You see, sometimes friends have to go away, but a part of them stays behind
-with you."
-
-- "If we live a monotonous life, do we get used to it and stop thinking about how
-to change it?"
-
-- "If somewhere in this world there is someone who understands you, it feels like
-that person is right beside you, even if youre as far apart as the end of the
-land and the top of the sky"
-
-- "So, this is my power... but what is my purpose?"
-
-- "The Earth is so pretty, so blue…"
-
-- "A good friend left me and, I miss her, every day... but I... I know we'll
-always be friends forever!"
-
-- "To all of my beautiful future children who taught me how to believe. I offer
-all of you now my sincerest hopes, and wishes that the future world will become
-more and more beautiful. And that is exactly the kind of world you find
-yourselves in."
-
-- "We're all architecting our lives day by day, and when our life comes to an
-end, people will see what mattered to us most by looking at what we built. When
-you look back on your life, you'll see what you've built and you'll see what
-you've loved...and you'll realize that you build what you love. Your most
-powerful artifact in which you build your life upon are people. When you
-understand this, you begin to realize that your building blocks are the
-relationships you have, sustain, and influence. don't just want to be a builder
-of applications. I don't just want to be a builder of systems. I don't just
-want to be a builder of brands. I want to be a builder of people, using those
-avenues to do so. When lay on my deathbed, I want to look back on my life and
-see that what I built was people. I want to see that what I built was the
-product of a love for humanity. You build what you love. What are you
-building?’
-
-- "Which is worse, to live as a monster or to die as a good man?"
-
-- "Sanity is not a choice Marshall, you can't just choose to get over it."
-
-- "What if while you were looking into them, they were looking into you?"
-
-- "Wounds can create monsters and you are wounded, martial. And wouldn't you
-agree, when you see a monster, you must stop it?"
-
-- "God loves violence. I... I hadn't noticed. Sure you have. Why else would there
-be so much of it? It's  in us. It's  what we are. We wage war, we burn
-sacrifices, and pillage and plunder and tear at the flesh of our brothers. And
-why? Because God gave us violence to wage in his honor. I thought God gave us
-moral order. There's  no moral order as pure as this storm. There's  no moral
-order at all. There's  just this: can my violence conquer yours??
-
-- "Do you know how pain enters the body, Marshal? Do you? Depends on where you're
-hurt? No, it has nothing to do with the flesh. The brain controls pain."
-
-- "That's  the beauty of it. Mental Patients make the perfect subjects, if they
-talk nobody listens to them!"
-
-- "He wanted to ask her what sound a heart made when it broke from pleasure, when
-just the sight of someone filled you the way food, blood, and air never could,
-when you felt as if you'd been born for only one moment and this, for whatever
-reason, was it."
-
-- "This world can only give me reminders of what I don't have, can never have,
-didn't have for long enough."
-
-- "The brain controls pain. It controls fear. Sleep. Empathy. Hunger. Everything
-we associate with the heart or the soul or the nervous system is actually
-controlled by the brain. Everything. What if you could control it?"
 

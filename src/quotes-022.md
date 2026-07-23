@@ -1,4 +1,171 @@
-<!-- Page 22 of 53  ·  quotes 2101–2200 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 22 of 54  ·  quotes 2101–2200 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "The war has already begun. It is just a continuation of past battles.The gods
+goad us on with the promise of their seven treasures. Rewards for the worthy.
+The doorway to divinity.Yet buried in the depths of this world lies smoldering
+remains, a warning to those that dare trespass."That throne in the sky is not
+reserved for you"But mortal arrogation never stops.None will escape the
+flames.See for yourself."
+
+- "The world is full of lost ballads just waiting to be rediscovered"
+
+- "The wind permeates all, cleansing both mind and body"
+
+- "All things are impermanent, and to exist is to suffer. We yakshas have no need
+of sympathy or tears."
+
+- " Life is a precious thing, yes... But when I think of the burden that the
+Conqueror of Demons must bear... *sigh* death seems to me to have been the easy
+way out. A selfish indulgence, even."
+
+- "Rex Lapis once said: "Ones who break their contracts shall suffer the Wrath of
+the Rock."
+
+- "The story continues that some among her people realized at last that this
+gentle, kind, but weak god could never protect anyone in wartime. The Archon
+War was cruel in the extreme. Instead of consigning her to the agony of defeat,
+they thought, perhaps it would be better to give her a quick release."
+
+- "Faith in a god who has already passed will do you no good."
+
+- "Kun Jun: Then again, the memories of ore can shift with the passage of time
+and the changing of the environment. Is there a pattern to it? Hmm, difficult
+to say... I feel that ore memories tend to be from the recent past. So there's
+never any ancient memories? Rocks endure, but as eons pass their memories are
+erased. Those memories that survive are rooted in powerful emotion or thought."
+
+- "The memories of rocks do not last long. Those memories that survive are
+rooted in powerful emotion. But as time passes, so these memories fade into
+obscurity. Erosion is the world's  greatest destroyer of memories. Eragon:
+Erosion...? Kun Jun: Erosion ground Azhdaha's  consciousness into oblivion.
+Slowly, he forgot the face of his old friend, and his memories of defending
+Liyue Harbor disintegrated. Kun Jun: Azhdaha, now incomplete, became
+irascible... aggressive."
+
+- "A heart of stone is a heart nonetheless"
+
+- "Zhongli : People abandon and surrender the things they love to pursue the
+right path. Perhaps this is the erosion imposed on me by the natural order of
+this world. Zhongli: But I was a god of mankind. My identity may change, but my
+eyes will bear witness to the history of humanity."
+
+- "You make a pinkie promise, you keep it all your life. You break a pinkie
+promise, I throw you on the ice. The cold will kill the pinkie that once
+betrayed your friend, the frost will freeze your tongue off so you never lie
+again."
+
+- " Childe: Anyway, childhood dreams are all too easily shattered. Even if you
+just leave them be, they all fall to pieces all by themselves. Childe: So
+someone has to protect them, right? Childe: If you make a promise, you keep it,
+if you make a mistake, you apologize... Childe: And if you give someone a
+dream, you defend it to the end... Childe: That is what family is all
+about, isn't it?"
+
+- " Albedo: I'm willing to pour all my energy into research, and yet specimens
+are finite. As the unknown transitions into the realm of scientific
+understanding, the feeling of enlightenment is lost. Albedo: All these things
+that start out as objects of fascination end up possessing the prosaic
+mundanity of a Sunsettia or a Sweet Flower. They cease to be noteworthy.
+Paimon: Oh... So that's  why you wanted to paint those hilichurls? Because you
+got to see something new and interesting in the differences between them?
+Albedo: Precisely. To quote my exact words from earlier, these creatures are,
+for the most part, "quite boring... not worth closer inspection." There is
+precious little about them that serves to pique my curiosity now."
+
+- " Albedo: *sigh* It would seem that that's  as far as we go. A transient bloom
+of incomparable beauty... Life's  proudest achievement. Pamon: Paimon thought,
+with all our efforts, unght have bloomed forever. And it  didn't even have any
+fruit... Albedo: Life is a manifold tapestry of free entities, its value
+shouldn't derive from how long it stays with us. Even a momentary burst is
+precious. Albedo: A short life can be well-lived. A life lived efficiently,
+lived to perfection, is"
+
+- " Venti: Warriors wear their battle scars with pride, and shields are no
+different. Venti: Surely, an intact shield is one that has shied away from the
+battlefield. Is not the broken and splintered shield the one that has fought in
+countless wars and lived to tell the tale? Venti: Though the soldier's  body be
+tired and torn, still they fight till the very end, till they have no blood
+left to bleed. Such magnificent strength of will... is that not the true
+meaning of honor?"
+
+- "You’re not an artist unless you want to quit atleast once"
+
+- "According to Su Li's  words, this was a very stupid sword style, so only the
+stupidest of people could learn it. This sword style was also the most natural,
+because there was simply no way it could be used to face one's  enemies. It
+could only be used for defense.  It was called the Stupid Sword because to
+learn this sword, there was no other method but practice through repetition, to
+practice until the seas dried up and stones rotted away, to practice until the
+stars turned and the Big Dipper moved, to practice for as long as the heavens
+existed and the earth persisted, such that it should be impossible for someone
+to ever confirm that they had learned it.  When Chen Changsheng heard these
+words, he had completely put the idea of learning this sword out of his mind.
+Only when Su Li said that this Stupid Sword could be considered the world's
+most powerful defensive sword style did he change his mind. Once the sword had
+left Mount Li, Su Li's  attainments on the path of the sword had become even
+more exceptional, and his experience was broad and deep. His judgment would
+naturally not be wrong.  But when Chen Changsheng began to properly learn this
+Stupid Sword, he began to regret his decision.  Because not even Su Li had
+successfully learned this sword. In all of Mount Li, even in all of the
+continent, there was not one person that had successfully learned this sword.
+Not even along the course of the interminable river of history could one find a
+person that had learned this sword. To describe it another way, this sword
+style existed only in books, existed only in some imaginary path of the sword.
+It had never appeared in reality.  Su Li had said that the reason he had never
+been able to learn this sword was that he was just too much of a genius. His
+sword was free and unburdened, unwilling to accept such constraints. But there
+was truly a possibility that Chen Changsheng could learn this sword. This was
+because…in certain aspects, Chen Changsheng really was very stupid."
+
+- "Your biggest supporter is a stranger. Your biggest hater is someone you know."
+
+- "Somewhere in another universe, someone is writing the life you lived, are
+living, have yet to live, or will never live."
+
+- "Each of these lives is the right one, every path is the right path, everything
+could have been anything else, and it would have just as much meaning."
+
+- "If our ancestors hadn’t had this flaming urge for a feeling of importance,
+civilization would have been impossible. Without it, we should have been just
+about like animals"
+
+- "I was here. I explored. I saw this. Remember me."
+
+- " You only get a diversity of problems solved if you have a diversity of people
+solving them"
+
+- "Once upon a time, I, Zhuangzi, dreamt was a butterfly, fluttering hither and
+thither, to all intents and purposes a butterfly. I was conscious only of my
+happiness as a butterfly, unaware that I was Zhuangzi. Soon awakened and there
+was, veritably myself again. Now do not know whether was then a man dreaming
+was a butterfly, or whether am now a butterfly, dreaming am a man. Between a
+man anda butterfly there is necessarily a distinction. The transition is called
+the transformation of material thing."
+
+- "But he did say that many people who go insane find in insanity a feeling of
+importance that they were unable to achieve in the world of reality."
+
+- "Once I did bad and that I heard ever/Twice I did good, but that I heard
+never."
+
+- "We are born from human boxes and live in big box houses and are buried in
+boxes when we die. Why are you crying?"
+
+- "Thousands of salespeople are pounding the pavements today, tired, discouraged
+and underpaid. Why? Because they are always thinking only of what they want.
+They don’t realize that neither you nor I want to buy anything. If we did, we
+would go out and buy it. But both of us are eternally interested in solving our
+problems. And if salespeople can show us how their services or merchandise will
+help us solve our problems, they won’t need to sell us. We’ll buy. And
+customers like to feel that they are buying—not being sold."
+
+- "Self-expression is the dominant necessity of human nature."
+
+- "First, arouse in the other person an eager want. He who can do this has the
+whole world with him. He who cannot walks a lonely way."
+
+- "All of us, be we workers in a factory, clerks in an office or even a king upon
+his throne—all of us like people who admire us."
+
 - "Remember that a person’s name is to that person the sweetest and most
 important sound in any language"
 
@@ -225,155 +392,4 @@ often overrated."
 - "Again, not to be a stick in the mud, but those happy kids playing in sewage
 pipes and shitting in buckets will be lucky to make it to middle age without
 serious violence, addiction or health problems in their lives."
-
-- "You realize that there’s something to be said to limiting oneself, not just
-geographically, but also emotionally. That there’s a certain depth of
-experience and meaning that can only be achieved when one picks a single piece
-of creation and says, "This is it. This is where I belong."
-
-- "Perpetual world travel literally gives you a whole world of experience. But it
-also takes another away."
-
-- "The vast majority of people don’t care what you say or do the vast majority of
-the time. And this is liberating."
-
-- "But what you quickly notice is that the world moves on. And what may feel like
-a suicide-inducing embarrassment for you is usually but a mild novelty or smirk
-for everybody around you. Understanding this is healthy. And it’s a lesson
-that’s hard to learn sitting comfortably at home, and spending your
-life shuttling between the same three or four locations every day."
-
-- "unsavory friends–they’re then able to see how they actually"an
-
-- "Because once you learn that the vast majority of the planet doesn’t care who
-you are or what you’re doing, you realize that there is no reason to not be who
-you want to be. There is no one to please. There is no one to impress. Most of
-the time, it’s just you, yourself and the stories you invent in your mind."
-
-- "Because uncertainty breeds skepticism, it breeds openness, and it breeds
-non-judgment. Because uncertainty helps you to grow and evolve."
-
-- "And when you go long enough being uncertain of who you really are, what
-results is a form of subtle, long-term meditation–a persistent and necessary
-acceptance of whatever is arising, because you don’t actually know if it was
-the food that made you sick, and you don’t actually know if you like Eastern
-European cultures anymore, and you don’t really know how you feel about income
-inequality anymore, and you don’t know if your career path is the best for you
-or not, and you don’t really know if you miss your friends back home or if you
-just like the idea of missing your friends back home. And at some point, you
-just stop asking questions. And start listening. To the waves and the wind and
-the calls for love in all of the beautiful languages you will never understand.
-You just let it be. And keep moving."
-
-- "We tend to judge the immorality of addiction by the damage it causes to
-others. But Kant believed that, first, over-indulgence was fundamentally the
-act of being immoral to oneself. The harm it did to others was merely
-collateral damage. It was a failure to confront the reality of one’s own mind
-and own consciousness, and this failure is akin to lying to oneself or cheating
-oneself out of precious life potential."
-
-- "Respect was also sacred within Kant’s moral framework because Kant believed
-that all conscious creatures have a fundamental dignity that must be respected
-at all times, and by everyone. For Kant, consent was the act of demonstrating
-respect."
-
-- "Therefore, Kant argued, the only logical way to improve the world is through
-improving ourselves. This is because the only thing we can truly experience
-with any certainty is ourselves."
-
-- "He showed me that what you actually do doesn’t matter as much as the purpose
-behind doing it. And until you find the right purpose, you haven’t found much
-of anything at all."
-
-- "To develop character, a person must master their own actions and master
-themselves. And while few of us can accomplish that in a lifetime, Kant
-believed it’s something we each have a duty to work towards."
-
-- "We didnt know we were making memories. we only knew we were having fun"
-
-- "Don’t oversaturate your life With art"
-
-- "A wiseman speaks because he has something to say. A fool speaks because he has
-to say something."
-
-- "The key to creativity isnt in knowing all the solutions, its in asking the
-strongest questions."
-
-- "If you wish to be wealthy, learn to live like you're poor"
-
-- "Beware of little expenses; a small leak will sink a great ship."
-
-- "No one can remember more than three points."
-
-- "Nothing in this world can take the place of persistence. Nothing is more
-common than unsuccessful men with talent. Persistence and determination alone
-are omnipotent"
-
-- "You are absolutely not going to be gaga over each other every single day for
-the rest of your lives, and all this happily ever after’ bullshit is just
-setting people up for failure. They go into relationships with these
-unrealistic expectations. Then, the instant they realize they aren’t gaga’
-anymore, they think the relationship is broken and over, and they need to get
-out. No! There will be days, or weeks, or maybe even longer, when you aren’t
-all mushy-gushy in-love. You’re even going to wake up some morning and think,
-- "Ugh, you’re still here…." That’s normal! And more importantly, sticking it out
-is totally worth it, because . . . in a day, or a week, or maybe even longer,
-you’ll look at that person and a giant wave of love will inundate you, and
-you’ll love them so much you think your heart can’t possibly hold it all and is
-going to burst. Because a love that’s alive is also constantly evolving. It
-expands and contracts and mellows and deepens. It’s not going to be the way it
-used to be, or the way it will be, and it shouldn’t be. I think if more couples
-understood that, they’d be less inclined to panic and rush to break up or
-divorce."
-
-- "God gave man a brain and a penis and only enough blood to operate one at a
-time."
-
-- "Respect yourself and your wife. Never talk badly to or about her. If you don’t
-respect your wife, you don’t respect yourself. You chose her—live up to that
-choice."
-
-- "There can be no secrets. Secrets divide you. Always."
-
-- "Don’t ever give up who you are for the person you’re with. It will only
-backfire and make you both miserable. Have the courage to be who you are, and
-most importantly, let your partner be who they are. Those are the two people
-who fell in love with each other in the first place."
-
-- "If you love your partner enough you will let them be who they are—you don’t
-own them, who they hang with, what they do or how they feel. Drives me nuts
-when I see women not let their husbands go out with the guys or are jealous of
-other women."
-
-- "One day many years from now, you will wake up and your spouse will be a
-different person—make sure you fall in love with that person, too."
-
-- "The relationship is a living, breathing thing. Much like the body and muscles,
-it cannot get stronger without stress and challenge. You have to fight. You
-have to hash things out. Obstacles make the marriage."
-
-- "But there’s no way on God’s green earth this is her fault alone. There were
-times when I saw huge red flags. Instead of trying to figure out what in the
-world was wrong, I just plowed ahead. I’d buy more flowers, or candy, or do
-more chores around the house. I was a "good" husband in every sense of the
-word. But what I wasn’t doing was paying attention to the right things… And
-instead of saying something, I ignored all of the signals."
-
-- "When you end up being right about something—shut up. You can be right and be
-quiet at the same time. Your partner will already know you’re right and will
-feel loved knowing that you didn’t wield it like a bastard sword."
-
-- "Everyone says that compromise is key, but that’s not how my husband and I see
-it. It’s more about seeking understanding. Compromise is bullshit, because it
-leaves both sides unsatisfied, losing little pieces of themselves in an effort
-to get along. On the other hand, refusing to compromise is just as much of a
-disaster, because you turn your partner into a competitor ("I win, you lose").
-These are the wrong goals, because they’re outcome-based rather than
-process-based. When your goal is to find out where your partner is coming
-from—to truly understand on a deep level—you can’t help but be altered by the
-process. Conflict becomes much easier to navigate because you see . . . the
-context."
-
-- "You cant use possibility to justify a certainty. Base your decision on the
-action itself"
 

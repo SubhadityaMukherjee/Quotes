@@ -43,6 +43,11 @@ MASTER = ROOT / "quotes.md"
 
 PAGE_SIZE = 100  # quotes per source file / per website page
 
+# A markdown bullet list item, e.g. "- quote", "* quote", "+ quote".
+# Such a line starts a new entry even without a preceding blank line, so a
+# pasted block of back-to-back bullets is split into one entry per bullet.
+LIST_ITEM_RE = re.compile(r"[-*+]\s+\S")
+
 # --------------------------------------------------------------------------- #
 # Parsing
 # --------------------------------------------------------------------------- #
@@ -70,9 +75,14 @@ def _flush(cur, entries):
 def collect_quotes(text):
     """Return the list of quote entries in `text`.
 
-    An entry is a maximal run of consecutive non-blank lines. Skipped (never
-    counted as quotes): YAML front matter, markdown headings (`#`),
-    and `<!-- ... -->` comment blocks (may span multiple lines).
+    An entry is a maximal run of consecutive non-blank lines, EXCEPT that any
+    line beginning with a markdown bullet (`- `, `* `, `+ `) starts a new
+    entry. So a block of back-to-back bullets with no blank line between them
+    is correctly split into one entry per bullet, while a single soft-wrapped
+    quote (only its first line starts with a bullet) stays one entry.
+
+    Skipped (never counted as quotes): YAML front matter, markdown headings
+    (`#`), and `<!-- ... -->` comment blocks (may span multiple lines).
     """
     _fm, body, _ = strip_front_matter(text)
     entries, cur = [], []
@@ -99,6 +109,8 @@ def collect_quotes(text):
         if stripped.startswith("#"):                # markdown heading
             cur = _flush(cur, entries)
             continue
+        if LIST_ITEM_RE.match(stripped):            # a bullet starts a new entry
+            cur = _flush(cur, entries)
         cur.append(line)
     _flush(cur, entries)
     return entries
@@ -322,9 +334,12 @@ def _write_empty_inbox():
     INBOX.write_text(
         "<!--\n"
         "  INBOX — paste NEW quotes BELOW this comment block.\n"
-        "  One quote per entry, separated by a blank line. Same format as the collection, e.g.:\n"
+        "  One quote per bullet (- ...). A blank line between bullets is optional:\n"
+        "  each line starting with '- ' begins a new quote, so a tight list works too.\n"
+        "  Quotation marks are added automatically if missing.\n"
         "\n"
-        "      - \"your new quote here\"\n"
+        "      - your new quote here\n"
+        "      - \"or with quotes, fine either way\"\n"
         "\n"
         "  Then run:  python3 build.py\n"
         "  This whole block is ignored; only the quotes below it get merged into the site.\n"

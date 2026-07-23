@@ -1,4 +1,238 @@
-<!-- Page 31 of 53  ·  quotes 3001–3100 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 31 of 54  ·  quotes 3001–3100 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Because people become fascinated with pictures and words, and wind up
+forgetting the Language of the World."
+
+- "If he pushed forward impulsively, he would fail to see the signs and omens
+left by God along his path."
+
+- "Until then, he had considered the omens to be things of this world. Like
+eating or sleeping, or like seeking love or finding a job. He had never thought
+of them in terms of a language used by God to indicate what he should do."
+
+- "Don't be impatient," he repeated to himself. "It's like the camel driver said:
+'Eat when it's time to eat. And move along when it's time to move along."
+
+- "The dunes are changed by the wind, but the desert never changes."
+
+- "Isn't wine prohibited here?" the boy asked "It's not what enters men's mouths
+that's evil," said the alchemist. "It's what comes out of their mouths that
+is."
+
+- "Remember that wherever your heart is, there you will find your treasure.
+You've got to find the treasure, so that everything you have learned along the
+way can make sense."
+
+- "Camels are traitorous: they walk thousands of paces and never seem to tire.
+Then suddenly, they kneel and die. But horses tire bit by bit. You always know
+how much you can ask of them, and when it is that they are about to die."
+
+- "You must understand that love never keeps a man from pursuing his Personal
+Legend. If he abandons that pursuit, it's because it wasn't true love . . . the
+love that speaks the Language of the World."
+
+- "Men dream more about coming home than about leaving,"
+
+- "If what one finds is made of pure matter, it will never spoil. And one can
+always come back. If what you had found was only a moment of light, like the
+explosion of a star, you would find nothing on your return."
+
+- "There is only one way to learn," the alchemist answered. "It's through action.
+Everything you need to know you have learned through your journey."
+
+- "The desert will give you an understanding of the world; in fact, anything on
+the face of the earth will do that. You don't even have to understand the
+desert: all you have to do is contemplate a simple grain of sand, and you will
+see in it all the marvels of creation"
+
+- "Listen to your heart. It knows all things, because it came from the Soul of
+the World, and it will one day return there."
+
+- "Why do we have to listen to our hearts?" the boy asked, when they had made
+camp that day. "Because, wherever your heart is, that is where you'll find your
+treasure."
+
+- "My heart is a traitor," the boy said to the alchemist, when they had paused to
+rest the horses. "It doesn't want me to go on." "That makes sense," the
+alchemist answered. "Naturally it's afraid that, in pursuing your dream, you
+might lose everything you've won."
+
+- "Well, then, why should I listen to my heart?" "Because you will never again be
+able to keep it quiet. Even if you pretend not to have heard what it tells you,
+it will always be there inside you, repeating to you what you're thinking about
+life and about the world."
+
+- "You will never be able to escape from your heart. So it's better to listen to
+what it has to say. That way, you'll never have to fear an unanticipated blow."
+
+- "He lost his fear, and forgot about his need to go back to the oasis, because,
+one afternoon, his heart told him that it was happy. "Even though I complain
+sometimes," it said, "it's because I'm the heart of a person, and people's
+hearts are that way. People are afraid to pursue their most important dreams,
+because they feel that they don't deserve them, or that they'll be unable to
+achieve them. We, their hearts, become fearful just thinking of loved ones who
+go away forever, or of moments that could have been good but weren't, or of
+treasures that might have been found but were forever hidden in the sands.
+Because, when these things happen, we suffer terribly."
+
+- "Tell your heart that the fear of suffering is worse than the suffering itself.
+And that no heart has ever suffered when it goes in search of its dreams,
+because every second of the search is a second's encounter with God and with
+eternity."
+
+- "Every second of the search is an encounter with God," the boy told his heart.
+
+- "When I have been truly searching for my treasure, every day has been luminous,
+because I've known that every hour was a part of the dream that I would find
+it. When I have been truly searching for my treasure, I've discovered things
+along the way that I never would have seen had I not had the courage to try
+things that"
+
+- "Because a grain of sand is a moment of creation, and the universe has taken
+millions of years to create it. "Everyone on earth has a treasure that awaits
+him," his heart said. "We, people's hearts, seldom say much about those
+treasures, because people no longer want to go in search of them. We speak of
+them only to children. Later, we simply let life proceed, in its own direction,
+toward its own fate. But, unfortunately, very few follow the path laid out for
+them—the path to their Personal Legends, and to happiness. Most people see the
+world as a threatening place, and, because they do, the world turns out,
+indeed, to be a threatening place."
+
+- "So, we, their hearts, speak more and more softly. We never stop speaking out,
+but we begin to hope that our words won't be heard: we don't want people to
+suffer because they don't follow their hearts." "Why don't people's hearts tell
+them to continue to follow their dreams?" the boy asked the alchemist. "Because
+that's what makes a heart suffer most, and hearts don't like to suffer."
+
+- "What you still need to know is this: before a dream is realized, the Soul of
+the World tests everything that was learned along the way. It does this not
+because it is evil, but so that we can, in addition to realizing our dreams,
+master the lessons we've learned as we've moved toward that dream. That's the
+point at which most people give up. It's the point at which, as we say in the
+language of the desert, one 'dies of thirst just when the palm trees have
+appeared on the horizon."
+
+- "When you possess great treasures within you, and try to tell others of them,
+seldom are you believed."
+
+- "Does a man's heart always help him?" the boy asked the alchemist. "Mostly just
+the hearts of those who are trying to realize their Personal Legends. But they
+do help children, drunkards, and the elderly, too." "Does that mean that I'll
+never run into danger?" "It means only that the heart does what it
+can," the alchemist said."
+
+- "Trust in your heart, but never forget that you're in the desert. When men are
+at war with one another, the Soul of the World can hear the screams of battle.
+No one fails to suffer the consequences of everything under the sun."
+
+- "And then there were the others, who were interested only in gold. They never
+found the secret. They forgot that lead, copper, and iron have their own
+Personal Legends to fulfill. And anyone who interferes with the Personal Legend
+of another thing never will discover his own."
+
+- "The sea has lived on in this shell, because that's its Personal Legend. And it
+will never cease doing so until the desert is once again covered by water."
+
+- "Don't give in to your fears," said the alchemist, in a strangely gentle voice.
+
+- "If you do, you won't be able to talk to your heart."
+
+- "If a person is living out his Personal Legend, he knows everything he needs to
+know. There is only one thing that makes a dream impossible to achieve: the
+fear of failure."
+
+- "Usually the threat of death makes people a lot more aware of their lives."
+
+- "What is love?" the desert asked. "Love is the falcon's flight over your sands.
+Because for him, you are a green field, from which he always returns with game.
+He knows your rocks, your dunes, and your mountains, and you are generous to
+him." "The falcon's beak carries bits of me, myself," the desert said. "For
+years, I care for his game, feeding it with the little water that I have, and
+then I show him where the game is. And, one day, as I enjoy the fact that his
+game thrives on my surface, the falcon dives out of the sky, and takes away
+what I've created." "But that's why you created the game in the first place,"
+the boy answered. "To nourish the falcon. And the falcon then nourishes man.
+And, eventually, man will nourish your sands, where the game will once again
+flourish. That's how the world goes." "So is that what love is?" "Yes, that's
+what love is. It's what makes the game become the falcon, the falcon become
+man, and man, in his turn, the desert. It's what turns lead into gold, and
+makes the gold return to the earth."
+
+- "The wind has many names. In that part of the world, it was called the sirocco,
+because it brought moisture from the oceans to the east. In the distant land
+the boy came from, they called it the levanter, because they believed that it
+brought with it the sands of the desert, and the screams of the Moorish wars.
+Perhaps, in the places beyond the pastures where his sheep lived, men thought
+that the wind came from Andalusia. But, actually, the wind came from no place
+at all, nor did it go to any place; that's why it was stronger than the desert.
+Someone might one day plant trees in the desert, and even raise sheep there,
+but never would they harness the wind."
+
+- "You can't be the wind," the wind said. "We're two very different things."
+"That's not true," the boy said. "I learned the alchemist's secrets in my
+travels. I have inside me the winds, the deserts, the oceans, the stars, and
+everything created in the universe. We were all made by the same hand, and we
+have the same soul. I want to be like you, able to reach every corner of the
+world, cross the seas, blow away the sands that cover my treasure, and carry
+the voice of the woman I love."
+
+- "When you are loved, you can do anything in creation. When you are loved,
+there's no need at all to understand what's happening, because everything
+happens within you, and even men can turn themselves into the wind. As long as
+the wind helps, of course."
+
+- "This is why alchemy exists," the boy said. "So that everyone will search for
+his treasure, find it, and then want to be better than he was in his former
+life. Lead will play its role until the world has no further need for lead; and
+then lead will have to turn itself into gold."
+
+- "That's what alchemists do. They show that, when we strive to become better
+than we are, everything around us becomes better, too."
+
+- "A current of love rushed from his heart, and the boy began to pray. It was a
+prayer that he had never said before, because it was a prayer without words or
+pleas. His prayer didn't give thanks for his sheep having found new pastures;
+it didn't ask that the boy be able to sell more crystal; and it didn't beseech
+that the woman he had met continue to await his return. In the silence, the boy
+understood that the desert, the wind, and the sun were also trying to
+understand the signs written by the hand, and were seeking to follow their
+paths, and to understand what had been written on a single emerald. He saw that
+omens were scattered throughout the earth and in space, and that there was no
+reason or significance attached to their appearance; he could see that not the
+deserts, nor the winds, nor the sun, nor people knew why they had been created.
+But that the hand had a reason for all of this, and that only the hand could
+perform miracles, or transform the sea into a desert . . . or a man into the
+wind. Because only the hand understood that it was a larger design that had
+moved the universe to the point at which six days of creation had evolved into
+a Master Work. The boy reached through to the Soul of the World, and saw that
+it was a part of the Soul of God. And he saw that the Soul of God was his own
+soul. And that he, a boy, could perform miracles."
+
+- "But this payment goes well beyond my generosity," the monk responded. "Don't
+say that again. Life might be listening, and give you less the next time."
+
+- "Everything that happens once can never happen again. But everything that
+happens twice will surely happen a third time."
+
+- "No matter what he does, every person on earth plays a central role in the
+history of the world. And normally he doesn't know it."
+
+- "But here he was, at the point of finding his treasure, and he reminded himself
+that no project is completed until its objective has been achieved"
+
+- "While I was fighting, I heard other people speaking in the name of freedom,
+and the more they defended this unique right, the more enslaved they seemed to
+be to their parents' wishes, to a marriage in which they had promised to stay
+with the other person "for the rest of their lives," to the bathroom scales, to
+their diet, to half-finished projects, to lovers to whom they were incapable of
+saying "No" or "It's over," to weekends when they were obliged to have lunch
+with people they didn't even like. Slaves to luxury, to the appearance of
+luxury, to the appearance of the appearance of luxury. Slaves to a life they
+had not chosen, but which they had decided to live because someone had managed
+to convince them that it was all for the best. And so their identical days and
+nights passed, days and nights in which adventure was just a word in a book or
+an image on the television that was always on, and whenever a door opened, they
+would say: "I'm not interested. I'm not in the mood."
+
 - "We want to think of families as safe havens in a heartless world and of our
 own country as populated by enlightened, civilized people. We prefer to believe
 that cruelty occurs only in faraway places like Darfur or the Congo. It is hard
@@ -213,188 +447,4 @@ it is seven in the morning."
 - "We often find ourselves wishing for more hours in the day, but that wouldn't
 help anything. The problem, clearly, isn't that we have a shortage of time.
 It's more that we have an overload of everything else."
-
-- "We have multiplied everything, but we are still individual selves. There"
-
-- "To enjoy life, we might have to stop thinking about what we will never be able
-to read and watch and say and do, and start to think of how to enjoy the world
-within our boundaries. To live on a human scale. To focus on the few things we
-can do, rather than the millions of things we can't. To not crave parallel
-lives. To find a smaller mathematics. To be a proud and singular one. An
-indivisible prime."
-
-- "The world's brain is a common but fitting metaphor. We are the nerve cells of
-the world's brain, transmitting ourselves to all the other nerve cells. Sending
-the overload back and forth. Overloaded neurons on a nervous planet. Ready to
-crash."
-
-- "And things are happening too quickly for us to take stock of it all. Certainly
-quicker than in Tolstoy's time. All this falling out. All this information. All
-this technological connection. The world's brain is a common but fitting
-metaphor. We are the nerve cells of the world's brain, transmitting ourselves
-to all the other nerve cells. Sending the overload back and forth. Overloaded
-neurons on a nervous planet. Ready to crash."
-
-- "The Internet is the first thing that humanity has built that humanity doesn't
-understand, the largest experiment in anarchy that we have ever had."
-
-- "LIFE OVERLOAD IS a feeling that partly stems from how contracted and
-concentrated the world seems to have become. The human world has sped up and
-has effectively shrunk, too."
-
-- "The trouble is that if we are plugged in to a vast nervous system, our
-happiness – and misery – is more collective than ever. The group's emotions
-become our own."
-
-- "The whole internet is one step removed from the physical world. The most
-powerful aspects of the internet are mirrors of the offline world, but
-replications of the external world aren't the actual external world. It is the
-real internet, but that's all it can be."
-
-- "Don't be steered towards being a caricature of yourself."
-
-- "Be a mystery, not a demographic. Be someone a computer could never quite know.
-Keep empathy alive. Break patterns. Resist robotic tendencies. Stay human."
-
-- "I used to think social media was harmless. I used to think I was on it because
-I enjoyed it. But then I was still on it even when I wasn't enjoying it. I
-remembered that feeling. It was the feeling you get at three in the morning in
-a bar after your friends have gone home."
-
-- "The internet age encourages choice and comparison, but don't do this to
-yourself. 'Comparison is the thief of joy,' said Theodore Roosevelt. You are
-you. The past is the past. The only way to make a better life is from inside
-the present. To focus on regret does nothing but turn that very present into
-another thing you will wish you did differently. Accept your own reality. Be
-human enough to make mistakes. Be human enough not to dread the future. Be
-human enough to be, well, enough."
-
-- "Accepting where you are in life makes it so much easier to be happy for other
-people without feeling terrible about yourself."
-
-- "We would do well to remember that this feeling we have these days – that each
-year is worse than the one previously – is partly just that: a feeling. We are
-increasingly plugged in to the ongoing travesties and horrors of world news and
-so the effect is depressing. It's a global sinking feeling. And the real worry
-is that all the increased fears we feel in themselves risk making the world
-worse."
-
-- "It is like someone who is ill with a compulsive disorder continually
-underlining their fears – staying indoors, or washing their hands 200 times a
-day. They are actually doing more to hurt themselves, in the name of protecting
-themselves. But this time the disorder isn't individual. It is social. It is
-global."
-
-- "Shock may be an unpleasant thing for an individual or a society to experience,
-but it can be a useful political tool."
-
-- "Naomi Klein coined the term the 'shock doctrine' to describe the cynical
-tactic of systematically using 'the public's disorientation following a
-collective shock' for corporate or political gain."
-
-- "We don't go into a state of shock when something big and bad happens,' she
-says. 'It has to be something big and bad that we do not yet understand."
-
-- "I remember once, during depression, staring up at a clear sky of stars. The
-wonder of the universe. At the bottom of the pit, I always had to force myself
-to find the beauty, the goodness, the love, however hard it was. It was hard to
-do. But I had to try. Change doesn't just happen by focusing on the place you
-want to escape. It happens by focusing on where you want to reach.
-Boost the good guys, don't just knock the bad guys. Find the hope that
-is already here and help it grow."
-
-- "The medium isn't just the message, it's the emotional intensity of that
-message."
-
-- "Realise the world is not as violent as it feels. Many writers on this
-subject – such as the famed cognitive psychologist Steven Pinker – have pointed
-out that, despite all its horrors, society is less violent than it used to be."
-
-- "Some people talk to animals. Not many listen though. That's the problem."
-
-- "Cynicism was a luxury for the non-suicidal."
-
-- "One thing mental illness taught me is that progress is a matter of acceptance.
-Only by accepting a situation can you change it. You have to learn not to be
-shocked by the shock. Not to be in a state of panic about the panic. To change
-what you can change and not get frustrated by what you can't."
-
-- "There is no panacea, or utopia, there is just love and kindness and trying,
-amid the chaos, to make things better where we can. And to keep our minds wide,
-wide open in a world that often wants to close them."
-
-- "sleep has traditionally been an enemy of consumerism. We can't shop in our
-sleep. We can't work or earn or post to Instagram in our sleep. Very few
-companies – beyond bed manufacturers and duvet sellers and makers of black-out
-blinds – have actually made money from our sleep."
-
-- "And now, at this later stage of capitalism, sleep has become seen not just as
-something that slows work down, but as an actual business rival. The chief
-executive of Netflix, Reed Hastings,"
-
-- "We live in 24-hour societies but not 24-hour bodies."
-
-- "EVEN WHEN THE world is not overtly terrifying us, the speed and pace and
-distraction of modern existence can be a kind of mental assault that is hard to
-identify. Sometimes life just seems too complicated, too dehumanising, and we
-lose sight of what matters."
-
-- "Accentuating the things that make you feel good, cutting back the things that
-make you feel bad, and letting people feel truly connected to the world around
-them."
-
-- "That is the biggest paradox, I think, about the modern world. We are all
-connected to each other but we often feel shut out."
-
-- "Because often identifying a problem, being mindful of it, becomes the solution
-itself."
-
-- "individualism has replaced collectivism and community. We have face-to-face
-conversations less and less, and more interactions with avatars."
-
-- "The more stimulation we have, the easier it is to feel bored."
-
-- "She thought the cure to misery was to 'decorate one's inner house so richly
-that one is content there, glad to welcome anyone who wants to come and stay,
-but happy all the same when one is inevitably alone'."
-
-- "1.Don't feel you always have to be there. In the not-so olden days of letters
-and landlines, contacting someone was slow and unreliable and an effort. In the
-age of WhatsApp and Messenger it's free and easy and instant. The flipside of
-this ease is that we are expected to be there. To pick up the phone. To get
-back to the text. To answer the email. To update our social media. But we can
-choose not to feel that obligation. We can sometimes just let them wait. We can
-risk our social media getting stale."
-
-- "There is no final checking of your phone. Think of all the times you checked
-your phone yesterday. Did you really need to so often?"
-
-- "Because there is no end to the uncertainty. There is no final checking of your
-phone."
-
-- "Illness has a lot to teach wellness."
-
-- "When it comes to our minds, awareness is very often the solution itself."
-
-- "This was an already familiar tactic of mine: trying to distract myself from
-one torment by finding another."
-
-- "In a world of a million distractions you are still left with only one mind."
-
-- "I SO WISH I could explain something to my younger self. I wish I could tell
-myself that it wasn't all me. I wish I could say that there were things I could
-do. Because my anxiety, my depression, wasn't just there. Illness, like injury,
-often has context."
-
-- "When I fall into a frantic or despairing state of mind, full of unwelcome
-thoughts that can't slow down, it is often the result of a series, a sequence
-of things. When I do too much, think too much, absorb too much, eat too badly,
-sleep too little, work too hard, get too frazzled by life, there it is. A
-repetitive strain injury of the mind."
-
-- "6.Don't grab life by the throat. 'Life should be touched, not strangled,"
-
-- "save lives. But, as C.S. Lewis once put it, 'The frequent attempt to conceal
-mental pain increases the burden: it is easier to say "My tooth is aching" than
-to say "My heart is broken"."
 

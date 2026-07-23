@@ -1,4 +1,51 @@
-<!-- Page 8 of 53  ·  quotes 701–800 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 8 of 54  ·  quotes 701–800 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "A man has but one life, grass but one spring, so if death comes then so be
+it!"
+
+- "The heart is the limit."
+
+- "In both worlds, when many people discover that they lack the ability to
+accomplish their dreams, they will feel lost, disappointed, disjointed, and
+inferior. Many of them will resort to immersing themselves in great pain,
+imagining success, going into isolation or hoping to go back to the past. It is
+not wrong for a person to walk on a single path. Suffering may be brought to
+those around this person but eventually, this person may succeed. However, the
+people who have the determination to immediately choose a new way deserve even
+more respect. Life is interesting because picking another road of life requires
+more determination and bravery than continually walking on the same path."
+
+- "To think about the past bring out the pain and cry that penetrates the heart
+and mind. but it must be endured. He has yet to succeed but has already drank
+the poison. He endured it all. No words can be written to express my thought"
+
+- "The end of religion is the beginning of spirituality. At the end of
+spirituality is reality. The end of reality is the real bliss."
+
+- "Today we find so many sects and creeds, each worshipping its own god or
+goddess in its own particular way. Evidently the goal
+
+before their eye is not even liberation but in most cases deliverance from some
+particular form of misery or some material gain."
+
+- "The time you feel alone is the time you most need to be by yourself."
+
+- "Earth teach me to forget myself as melted snow forgets its life. Earth teach
+me resignation as the leaves which die in the fall. Earth teach me courage as
+the tree which stands all alone. Earth teach me regeneration as the seed which
+rises in the spring."
+
+- "Our Lord has written the promise of resurrection. Not in books alone but in
+every leaf in springtime."
+
+- "The world is a cruel place. So go out there and make it a little less so."
+
+- "It's incredibly pretentious how man can think it has power over every other
+living being. It's possible that no species can be controlled at all. And like
+that. You have to respect every form of life. Man protects other species for
+fear of loss. He protects the environment thinking that's how he ll survive.
+And he's just being selfish. But not that there's anything wrong with that.
+It's actually necessary. We can t Belittle any species at all."
+
 - "The natural state of life is desire and disorder. There is no such thing as a
 completely transparent soul. Not even cultivating the Dao can make one's Dao
 heart spotlessly pure. On the contrary, her spirit is more complex than you
@@ -248,6 +295,7 @@ type of pressure?" Chen Changsheng pointed towards the tuber in her
 hand, and said, "Eat first while it's warm. We can talk casually." Xu
 Yourong listened to what he said and tore open the slightly burnt outer
 skin of the tuber. A faint fragrance spread out.Chen Changsheng said,
+
 - "Firstly, we need to know what we want to do the most; the reason why
 we live." Looking at her expression, he said hurriedly, "Don t say the
 word perfection again—using perfection to describe the level is not
@@ -256,6 +304,7 @@ most is cultivate." "Then cultivate," he said. Xu Yourong felt slightly
 unhappy, thinking, was he not fooling with people? Chen Changsheng
 explained, "Other than cultivate, you don t want to do anything else."
 Xu Yourong said, "But those things still exist." Chen Changsheng said,
+
 - "Close your eyes and the sky goes dark. If you can t see the world, the
 world doesn't exist." Xu Yourong said, "That is only speaking
 idealistically. How can it persuade people? Also, cultivation is only a
@@ -278,6 +327,7 @@ Since the stars can be moved, where does it say that fate cannot change? With
 change, how can you calculate? Su Li gazed at the night sky. He did not see the
 convergence of those two rivers of stars in the south, and only saw the
 snowflakes that constantly fell before the shadow. With a soft voice, he said,
+
 - "Everything in the world is constantly changing. After a long time of snowing,
 accumulating more and more, there will always be a moment where an avalanche
 occurs. How do you calculate that?"
@@ -353,6 +403,7 @@ something really good every single time, or something even better."
 - "Ninny, tell me, why are you girls so beautiful and yet so foolish?" Bebe sat
 there on the chair, staring at the nearby Nisse. Nisse considered for a moment,
 then immediately said, "Oh, I know."Nisse wrinkled her little nose, then said,
+
 - "Women are beautiful so as to let you men fall in love with us. As for why
 women are foolish…it’s to make me fall in love with you!" Bebe stared. "You are
 foolish, thus you fell in love with me?" If I wasn’t foolish, why would I fall
@@ -530,76 +581,4 @@ ants."
 
 - "The irony of ironies will one day reveal, how the great Indian heritage… fell
 to its knees. At the mercy of the innocent little printing machine."
-
-- "Because we can't do everything, we do nothing at all."
-
-- "Is it the nature of the world that all things seek a rhythm, and in that
-rhythm a sort of peace? Certainly it has always seemed so to me. All events, no
-matter how earthshaking or bizarre, are diluted within moments of their
-occurrence by the continuance of the necessary routines of day-to-day living.
-Men walking a battlefield to search for wounded among the dead will still stop
-to cough, to blow their noses, still lift their eyes to watch a V of geese in
-flight. I have seen farmers continue their plowing and planting, heedless of
-armies clashing but a few miles away. "
-
-- "Reading ten thousand books is not equal to traveling ten thousand li"
-
-- "Little San is right. The departed are already gone, the living are still
-alive. He’s stronger than me, he’s resurrected you in just a few years. Child,
-treasure the people before you. Don’t be sad and grieving. The past has already
-passed, you both should face a new life."
-
-- "Parents never owe their children, no matter when or how. That you brought me
-into this world is already the biggest, biggest favor, one I’ll never be able
-to repay in my life. Without you, there would be no me. My life was given by
-you. There are no other debts beside that"
-
-- "It’s difficult to hide people in the world, but the best place to hide people
-is amongst people, so traveling with people is the safest, and also the most
-dangerous. The outcome between the two relies on how devoted you are to it."
-
-- "The world is formed from the dark night and the daytime. In the days before,
-we always traveled in the dark night, so all we saw was the color of the night,
-and all we met was darkness. However, if we walked under the sun, perhaps we
-can see sunlight."
-
-- "Nobody likes to kill others, and neither do I." Su Li ended it with these
-words, "If too much blood flows, it's  very troublesome to clean the sword, let
-alone the clothes. So I don't like killing. But there are times when there are
-some people that have to die, when blood has to flow."
-
-- "In living in this world, if you want to live freely and protect those that you
-love from harm, you have to be strong enough—so strong that the whole world
-will admit that you are strong, will fear your strength. How can you prove it,
-and make the world admit this point? You must be willing to kill others,
-willing to let the entire world bleed"
-
-- "Ecstasy was often a shocked happiness, coming from something unimaginable.
-Warmth was more mild, more profound, and more lingering. It was gratification
-that arose from the perfect match of one's  desires and reality. "
-
-- "An even more brilliant and lovely spring sunshine would eventually fade away.
-An ever-constant echo would also eventually dissipate."
-
-- "There is no person whose moral character will improve with age. In the vast
-majority of cases, a young sucker would turn into an old sucker—old bastards,
-old suckers."
-
-- "Calmly welcoming death is acting serious? Then I don't like acting serious.
-Given a choice to die on the battlefield in the endless mountains or die
-comfortably in bed in the bosom of a beauty, I would definitely choose the
-latter."
-
-- "The torrential great river is divided into two shores. Even if you look and
-don't speak, you still have to pick a side."
-
-- "The ten thousand things share the same principle, so there are naturally
-places where the mortal world and the divine intersect."
-
-- "To be old and not die, what is that? It's  a thief, an old thief. Ah, people.
-They're just like trees. When they're at their healthiest and sturdiest, they
-should do their best to brag in the spring wind. When they grow too old and
-still cling desperately to their lives, their bodies will grow old and their
-wood will rot, until finally a lightning bolt cleaves down and turns them into
-burnt ash. Just what meaning is there in that?"
 

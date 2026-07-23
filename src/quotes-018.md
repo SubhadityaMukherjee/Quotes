@@ -1,4 +1,94 @@
-<!-- Page 18 of 53  ·  quotes 1701–1800 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 18 of 54  ·  quotes 1701–1800 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Well, kid, you better learn to fly like a bird, because the age of the
+dinosaur is over"
+
+- " The best way to understand the mind is to build it"
+
+- " We have to learn about love before we can learn about hate. Otherwise,
+everything goes to hell"
+
+- " We can make anything we fancy in this arena of infinite promise, and this is
+what we come up with? Weapons? War? Surely we have more imagination than that."
+
+- " We can fix this world. All the bad things. We just got to start over."
+
+- " Time travel does not give one the opportunity to change oneself. But rather,
+to eradicate oneself and allow something else to form in the wake of what once
+was."
+
+- " The secret of life. If you feel safe when you’re young, you will feel safe
+when you’re old."
+
+- " The money is a tool, you see. Nothing more. Power. Because without power, who
+would listen?"
+
+- " People get too close. They touch you and you disappear. And then they’re
+inside. In your belly and in your head. And when you get back, there’s a smell.
+Someone else’s smell is inside your nose. And you check out. You tell people,
+
+- "It’s fine. I don’t own my body." You say, "My power is like a vacation. I get
+to be a tourist in someone else’s life." Who cares if every time I come back
+home, I feel dirty?"
+
+- " No one who dies is really dead. You see that, right? The past changes, and
+the future disappears."
+
+- " Love isn’t gonna save us. It’s what we have to save. Pain makes us strong
+enough to do it. All our scars, our anger, our despair, it’s armor. Baby, God
+loves the sinners best because our fire burns bright, bright, bright. Burn with
+me"
+
+- " It’s not crazy babies that worry me. It’s the men they become. Like a fire,
+falling in love with a fire. We try to smother them, put them out, but they
+just burn us up"
+
+- " If we don’t believe in change, then we don’t believe in time."
+
+- " I tell them I’m sane, they think I’m crazy, and if I say, "You know what?
+You’re right, I am crazy," then they up my dosage."
+
+- " Do you know what love is? It’s a hot bath. What happens to things when you
+leave them in a bath for too long? They get soft, fall apart."
+
+- " An army cannot sneak up on a man. But a lover can."
+
+- " All that love, it doesn’t just disappear. It must be transformed into an
+emotion of equal intensity. That is the law of the universe."
+
+- " All animals fight to live. Whether they want to or not."
+
+- "If a person’s heart can change due to persistently holding onto something,
+then why can’t that persistence grant me peace?"
+
+- "The Golden Roc’s heart and its will are reflected as it flies through the
+world. Within its eyes, there is nothing in the world that can stop its path.
+It can fly endlessly in this vast sky"
+
+- "Always treat it as if he is still alive and kill him again, maybe twice, or
+even more."
+
+- " But the techno-utopians do get tiresome with their platitudes and their
+ability to prattle on for hours without saying much of substance. More
+disconcerting is their underlying message that humans are flawed and our
+humanity is an annoying burden that needs to be dealt with in due course."
+
+- "I think there are probably too many smart people pursuing Internet stuff,
+finance, and law," Musk said on the way. "That is part of the reason why we
+haven’t seen as much innovation."
+
+- "He does what he wants, and he is relentless about it. It’s Elon’s world, and
+the rest of us live in it."
+
+- "Maybe I read too many comics as a kid," Musk said. "In the comics, it always
+seems like they are trying to save the world. It seemed like one should try to
+make the world a better place because the inverse makes no sense."
+
+- "The only reason he did not outrank the other boys was a lack of interest in
+the work prescribed by the school."
+
+- "In every work of genius we recognize our own rejected thoughts; they come back
+to us with a certain alienated majesty."
+
 - "Sympathy the human species universally craves. The child eagerly displays his
 injury; or even inflicts a cut or bruise in order to reap abundant sympathy.
 For the same purpose adults . . . show their bruises, relate their accidents,
@@ -243,84 +333,4 @@ her limitations."
 narrow field."
 
 - "Ordinarily he was insane, but he had lucid moments when he was merely stupid."
-
-- "Reality is merely an illusion, albeit a very persistent one."
-
-- "The first principle is that you must not fool yourself, and you are the
-easiest person to fool."
-
-- "Options—the ability to choose—is real power."
-
-- " It just so happens, paradoxically, that you can make more money—a lot more
-money—by doing half of what you are doing now."
-
-- "Civilization had too many rules for me, so I did my best to rewrite them."
-
-- "In 21st century America, old-fashioned notions like honor and fair play are
-for suckers. The credo of our time is that as if it ain’t technically illegal,
-it’s awesome. The people who rise to the top are no longer those who
-accomplish truly great things, but those who figure out how to most
-attractively package their shortcuts and fake-outs."
-
-- "Once you say you're going to settle for second, that's  what happens to you in
-life."
-
-- "If the recipe sucks, it doesn't matter how good a cook you are."
-
-- "Named must your fear be before banish it you can."
-
-- "No more passing days as the living dead, no more dinners where his colleagues
-compared cars, riding on the sugar high of a new BMW purchase until someone
-bought a more expensive Mercedes. It was over."
-
-- "Set aside a certain number of days, during which you shall be content with the
-scantiest and cheapest fare, with course and rough dress, saying to yourself
-the while: "Is this the condition that I feared?"
-
-- "There's  no difference between a pessimist who says, "Oh, it's  hopeless, so
-don't bother doing anything," and an optimist who says, "Don't bother doing
-anything, it's  going to turn out fine anyway." Either way, nothing happens."
-
-- "Don't save it all for the end. There is every reason not to."
-
-- "I am an old man and have known a great many troubles, but most of them never
-happened."
-
-- "Doing the unrealistic Is easier than doing the realistic"
-
-- "The fishing is best where the fewest go, and the collective insecurity of the
-world makes it easy for people to hit home runs while everyone else is aiming
-for base hits. There is just less competition for bigger goals."
-
-- "Remember—boredom is the enemy, not some abstract "failure."
-
-- "The existential vacuum manifests itself mainly in a state of boredom."
-
-- "Perfection is not when there is no more to add, but no more to take away."
-
-- "It is vain to do with more what can be done with less."
-
-- "Doing something unimportant well does not make it important."
-
-- "In other words, I was working because I felt as though I should be doing
-something from 9-5.1  didn't realize that working every hour from 9-5 isn't the
-goal; it's  simply the structure most people use, whether it's  necessary or
-not."
-
-- "Most things make no difference. Being busy is a form of laziness—lazy thinking
-and indiscriminate action."
-
-- "Since we have 8 hours to fill, we fill 8 hours. If we had 15, we would fill
-
-1. If we have an emergency and need to suddenly leave work in 2 hours but have
-pending deadlines, we miraculously complete those assignments in 2 hours."
-
-- "Parkinson's  Law dictates that a task will swell in (perceived) importance and
-complexity in relation to the time allotted for its completion."
-
-- "Am I being productive or just active?"
-
-- "Reading, after a certain age, diverts the mind too much from its creative
-pursuits. Any man who reads too much and uses his own brain too little falls
-into lazy habits of thinking."
 

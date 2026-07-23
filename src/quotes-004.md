@@ -1,4 +1,13 @@
-<!-- Page 4 of 53  ·  quotes 301–400 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 4 of 54  ·  quotes 301–400 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "If you let yourself get depressed, you will be making light of the people who
+follow and trust you."
+
+- "Happiness is like glass. It may be all around you… Yet be invisible. But if
+you can change your angle of viewing a little, then it will reflect light more
+beautifully than any other object around you."
+
+- "I ll leave tomorrow's problems to tomorrow's me."
+
 - "Let's say I posed this question to you: "Can all human souls be bought with
 money or not?" Now remember, the keyword here is "all". The answer is "There
 are times when you can buy them, and other times, not," right? The human being…
@@ -424,15 +433,4 @@ home—unless you lose your head, of course ..."
 - "When you stopped to think about it, he reflected, there weren t many things in
 life one truly needed. To want too much was worse than greed: it was
 stupidity—a waste of precious time and effort."
-
-- "But no one ever explained how terrible it is to be in the middle of a tale and
-not to know the ending...."
-
-- "He was not great; he was, in fact, very small. At the same moment, though, he
-was important, just as any point of light in a dark sky might be the star that
-led a mariner to safety, or the star watched by a lonely child during a
-sleepless night...."
-
-- "Also," Binabik said gravely, "it may or may not be foolishness to pray to the
-gods, but there is certainly being no wisdom in cursing them."
 

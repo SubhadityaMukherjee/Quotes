@@ -1,4 +1,116 @@
-<!-- Page 52 of 53  ·  quotes 5101–5200 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 52 of 54  ·  quotes 5101–5200 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "You feel loss keenly. It seems to stir up feelings of regret in you... But this is
+something I have long since come to terms with."
+
+- "I suppose, but so what? Don't forget, time takes many forms. The past, present, and
+future co-exist, and all are equally important. Even if the future ends in destruction,
+that's still no reason to give up on the here and now. And it's precisely because we
+humans cannot know our fate that we will never give up on our struggle."
+
+- "Wealth leads to unending conflicts between people, yet you alone transcend the value of
+gold. Baleful thunder and wrathful waves bring terror to mortal hearts, yet again and
+again, you've braved them to find new worlds."
+
+- "A family does whatever it takes to protect their own."
+
+- "When walking in the forest, it is only natural to encounter wild beasts. However, not
+every beast has the courage to come out and bite."
+
+- "May your flame forever burn pure and bright."
+
+- "A new future deserves a new meaning, a chance to take a definitive step forward."
+
+- "For those cursed with immortality, release from the mortal coil is the greatest form of
+peace."
+
+- "We are the inheritors of memory and legend. Those who grew alongside sun and wind.
+Those who forged our own destiny and future. That is Natlan's fire, the lifeblood of our
+nation. The fallen are never truly lost to us. We will be reunited one day."
+
+- "The weight of fate is decided by the one who has to bear it."
+
+- "Sing your final song with pride, like a hero's march to the other side."
+
+- "In the beginning, there was darkness. Until someone set themselves aflame. Only then did the universe know light."
+
+- "Having foretold his own death, the omniscient man holds a feast in celebration."
+
+- "We love this world because it contains everything we hold dear... everything that has
+happened here has moved us, shaped us, and turned us into who we are today. Giving up our
+memories and history would mean rewriting everything. The people of this world would then
+become fundamentally different beings, their physical bodies the only connection to their
+former selves."
+
+- "No matter what path lies before us, we still have a destination. If we lose our way now, we will lose the meaning of our existence."
+
+- "Never slow down, and never hold back. Spread your wings and fly free, like the fiercest qucusaur in the sky. Show the world who the bravest Flower-Feather warrior is... Because that's who you are... and that's the sister I'm proud of."
+
+- "How unfair life can be... She's had the odds stacked against her from the very beginning, and each step forward has been an agonizing one. Maybe she would have been better off embracing her pain... But her journey goes on, and one question looms large in her mind: If she could rise above the layers of pain, and ascend over the dark clouds of her mind... what, then, would she find? Maybe the glorious light of the sun, or maybe a dark, empty void. There is only one way to find out. She needs to spread her wings and soar to new heights... that is the true meaning of life."
+
+- "My life's suffering shall be my epitaph. To remember the pain I endured...And, finally, transcended."
+
+- "We fight for the people we love, and also for the chance to see them again."
+
+- "As long as blood still runs through your veins, even the tiniest spark of steel against stone can ignite a flame."
+
+- "Even amid everlasting darkness, our bonds remain eternal."
+
+- "It's important to listen to your limits. Just like in training, pushing too hard will only hurt you in the long run. Everyone needs time to rest."
+
+- "When facing an impossible situation, you just need to act. And if you fail, so what? That's just life."
+
+- "But, I am of the belief that, in this world, no destiny is unchangeable, no death inevitable, and no rule unbreakable. So, before the final moment truly arrives, we must fight harder than ever."
+
+- "Maybe you'll change in the future, but you can still be proud of who you are now."
+
+- "Y'know, I used take a lot of things for granted. Growing up, it's easy to think that everything around you will just exist forever. But the battle taught me that very few things in life are permanent. Like this path, for example... It's the same one we walked before, but now, the view is completely different. It makes the things we love even more precious. So, I want to do as much as I can to defend my family and friends, so I can move forward without regrets."
+
+- "When future generations look back on our accomplishment, they, too, will see our deeds for their greater significance."
+
+- "May the skies forever be clear and bright, and may we always be free to spread our wings and soar."
+
+- "The dead draw solace from the living, and the living push forward in honor of the dead."
+
+- "We all have our own journey, and we need to see it through to the end. Not all adventurers go down in history..."
+
+- "The most idealistic and righteous among us are the most fragile, so I must protect his edge. A strong hand is required to stand against a strong foe."
+
+- "We embark on a pilgrimage, for the wishes of the people. We choose to battle, to earn a glorious name. And in the end, we burn to cinders for a dream."
+
+- "With fear comes darkness, and with darkness comes dominion. In darkness the world was born, and so it shall return."
+
+- "When you're hungry, you go eat something tasty, and when you're tired, you go lie down in a nice comfy bed, alright? Seriously, don't punish yourself like this."
+
+- "It is only by fate that people's paths may cross."
+
+- "It was like I took a look at the world and, on the surface, it looked like a vast realm with so many places I could go. Then I looked a little closer. And there was nowhere for me to go at all."
+
+- "The play has an ending, but life goes on."
+
+- "Strange how nearsighted being invisible can make you"
+
+- "After all, to the well-organized mind, death is but the next great adventure. You know, the Stone was really not such a wonderful thing. As much money and life as you could want! The two things most human beings would choose above all — the trouble is, humans do have a knack of choosing precisely those things that are worst for them."
+
+- "You-Know-Who —” “Call him Voldemort, Harry. Always use the proper name for things. Fear of a name increases fear of the thing itself."
+
+- "Always use the proper name for things. Fear of a name increases fear of the thing itself."
+
+- "You think the dead we have loved ever truly leave us? You think that we don’t recall them more clearly than ever in times of great trouble?"
+
+- "Dumbledore was the one who stuck up for me after Dad went. Got me the gamekeeper job . . . trusts people, he does. Gives ’em second chances . . . tha’s what sets him apar’ from other Heads, see. He’ll accept anyone at Hogwarts, s’long as they’ve got the talent. Knows people can turn out okay even if their families weren’ . . . well . . . all tha’ respectable. But some don’ understand that. There’s some who’d always hold it against yeh . . . there’s some who’d even pretend they just had big bones rather than stand up an’ say — I am what I am, an’ I’m not ashamed. ‘Never be ashamed,’ my ol’ dad used ter say, ‘there’s some who’ll hold it against you, but they’re not worth botherin’ with.’"
+
+- "Understanding is the first step to acceptance, and only with acceptance can there be recovery."
+
+- "Numbing the pain for a while will make it worse when you finally feel"
+
+- "If I thought I could help you,” Dumbledore said gently, “by putting you into an enchanted sleep and allowing you to postpone the moment when you would have to think about what has happened tonight, I would do it. But I know better. Numbing the pain for a while will make it worse when you finally feel it."
+
+- "As Hagrid had said, what would come, would come . . . and he would have to meet it when it did."
+
+- "Trivial hurts, tiny human accidents,” said Firenze, as his hooves thudded over the mossy floor. “These are of no more significance than the scurryings of ants to the wide universe, and are unaffected by planetary movements."
+
+- "Youth cannot know how age thinks and feels. But old men are guilty if they forget what it was to be young . . ."
+
 - "He has never wanted to occupy the throne himself; he prefers the backseat — more room to spread out, you see."
 
 - "people find it far easier to forgive others for being wrong than being right,"
@@ -100,102 +212,4 @@
 - "Everybody has their own idiopathic reaction to their childhood home."
 
 - "So you have to promise me, Quentin. Let’s never get like this, with these stupid hobbies nobody cares about. Just doing pointless things all day and hating each other and waiting to die."
-
-- "So you have to promise me, Quentin. Let’s never get like this, with these stupid hobbies nobody cares about. Just doing pointless things all day and hating each other and waiting to die.” “Well, you drive a hard bargain,” he said. “But okay. I promise.” “I’m serious, Quentin. It’s not going to be easy. It’s going to be so much harder than you think. They don’t even know, Quentin. They think they’re happy. That’s the worst part."
-
-- "Sometimes I wonder if man was really meant to discover magic,” Fogg said expansively. “It doesn’t really make sense. It’s a little too perfect, don’t you think? If there’s a single lesson that life teaches us, it’s that wishing doesn’t make it so. Words and thoughts don’t change anything. Language and reality are kept strictly apart—reality is tough, unyielding stuff, and it doesn’t care what you think or feel or say about it. Or it shouldn’t. You deal with it, and you get on with your life. “Little children don’t know that. Magical thinking: that’s what Freud called it. Once we learn otherwise we cease to be children. The separation of word and thing is the essential fact on which our adult lives are founded. “But somewhere in the heat of magic that boundary between word and thing ruptures. It cracks, and the one flows back into the other, and the two melt together and fuse. Language gets tangled up with the world it describes. “I sometimes feel as though we’ve stumbled on a flaw in the system, don’t you? A short circuit? A category error? A strange loop? Is it possible that magic is knowledge that would be better off forsworn? Tell me this: Can a man who can cast a spell ever really grow up?"
-
-- "I think you’re magicians because you’re unhappy. A magician is strong because he feels pain. He feels the difference between what the world is and what he would make of it. Or what did you think that stuff in your chest was? A magician is strong because he hurts more than others. His wound is his strength. “Most people carry that pain around inside them their whole lives, until they kill the pain by other means, or until it kills them. But you, my friends, you found another way: a way to use the pain. To burn it as fuel, for light and warmth. You have learned to break the world that has tried to break you."
-
-- "Or you know what it is? You hate yourself so much, you’ll hurt anybody who loves you. That’s it, isn’t it? Just to get even with them for loving you. I never saw that before now."
-
-- "(“any education that neglects the experience of delight will be a dry and tasteless diet with no nourishment in it”)."
-
-- "all, as Philip says, free and democratic reading is a vital part of the Republic of Heaven, and delight always an aspect of storytelling."
-
-- "I take it that art, literature, children’s literature, do not exist in an ivory tower; I take it that we’re inextricably part of the world, the whole world; and that we have several kinds of responsibility that follow from that."
-
-- "I’m just going to say that we should all insist that we’re properly paid for what we do. We should sell our work for as much as we can decently get for it, and we shouldn’t be embarrassed about it. Some tender and sentimental people—especially young people—are rather shocked when I tell them that I write books to make money, and I want to make a lot, if I can."
-
-- "Here’s a useful piece of advice to young writers: cultivate a reputation—which need have no basis in reality—but cultivate a reputation of being very fond of money. If the people you have to deal with think that you like the folding stuff a great deal, they’ll think twice before they offer you very small amounts of it. What’s more, by expecting to get paid properly for the work we do, we’re helping our fellow writers in their subsequent dealings with schools, or festivals, or prisons, or whatever. I feel not a flicker of shame about declaring that I want as much money for my work as I can get. But, of course, what that money is buying, what it’s for, is security, and space, and peace and quiet, and time."
-
-- "We should try always to use language to illuminate, reveal and clarify rather than obscure, mislead and conceal. The language should be safe in our hands—safer than it is in those of politicians, for example; at the least, people should be able to say that we haven’t left it any poorer, or clumsier, or less precise."
-
-- "When it comes to imaginative language, to rich and inventive imagery, we have to beware. But what we have to beware of is too much caution. We must never say to ourselves: “That’s a good image—very clever; too clever for this book, though—save it up for something important."
-
-- "Stories should earn their own tears and not pilfer them from elsewhere."
-
-- "When it comes to the sheer craft of depicting things, describing them, saying what happened, the film director and playwright David Mamet said something very interesting. He said that the basic storytelling question is: “Where do I put the camera?"
-
-- "A storyteller should be invisible, as far as I’m concerned; and the best way to make sure of that is to make the story itself so interesting that the teller just…disappears."
-
-- "A culture that never encounters any others becomes first inward-looking, and then stagnant, and then rotten. We are responsible—there’s that word again—for bringing fresh streams of story into our own cultures from all over the world, and welcoming experience from every quarter, and offering our own experience in return."
-
-- "Some commentators—not very well-informed ones, but they have quite loud voices—say that children’s books shouldn’t deal with matters like sex and drugs, with violence, or homosexuality, or abortion, or child abuse. Taboos do change over time: only a couple of generations ago, it was rare to find a children’s book that confronted divorce. Against that, I’ve heard it said that children should be able to find in a children’s book anything that they might realistically encounter in life. Children do know about these things: they talk about them, they ask questions about them, they meet some of them, sometimes, at home; shouldn’t they be able to read about them in stories?"
-
-- "to be said for it, but we should remember that tragedy is uplifting too, if it shows the human spirit at its finest."
-
-- "The true aim of writing,” said Samuel Johnson, “is to enable the reader better to enjoy life, or better to endure it.” Children need both those kinds of help, just as grown-ups do."
-
-- "Easy cynicism is no more truthful than easy optimism, though it seems to be so to the young."
-
-- "The last responsibility I want to look at is one that every storyteller has to acknowledge, and it’s a responsibility that trumps every other. It’s a responsibility to the story itself. I first became conscious of this when I noticed that I’d developed the habit of hunching my shoulders to protect my work from prying eyes. There are various equivalents of the hunched shoulder and the encircling arm: if we’re working on the computer, for example, we tend to keep a lot of empty space at the foot of the piece, so that if anyone comes into the room we can immediately press that key that takes us to the end of the file, and show nothing but a blank screen. We’re protecting it. There’s something fragile there, something fugitive, which shows itself only to us, because it trusts us to maintain it in this half-resolved, half-unformed condition without exposing it to the harsh light of someone else’s scrutiny, because a stranger’s gaze would either make it flee altogether or fix it for good in a state that might not be what it wanted to become."
-
-- "no man can serve two masters."
-
-- "have to keep the story’s counsel: there are secrets between us, and it would be the grossest breach of confidence to give them away."
-
-- "To become so grand that you refuse to let your work be edited—and we can all think of a few writers who got to that point—is to be a bad servant, not a good one."
-
-- "Art, whatever kind of art it is, is like the mysterious music described in the words of the greatest writer of all, the “sounds and sweet airs, that give delight and hurt not.” To bear the responsibility of giving delight and hurting not is one of the greatest privileges a human being can have, and I ask nothing more than the chance to go on being responsible for it till the end of my days."
-
-- "The world of books is not a collection of random units of self-interest, but a living ecology. Or it used to be, and should be still. Whenever we can see something going on in any field where we can make a difference on the side of virtue, we have a responsibility to make it."
-
-- "The dao of the heavens is something everyone can prove and everyone can confirm. The heavens is not dao. Dao is formed by the will of the heavens and earth. Everyone can have this will! “Just like the fish that lives in the river. It doesn’t violate the heavens or provoke yin and yang, it lives peacefully and free! This river is the heavens, the world. The fish is all living things that exist inside the world! “However, the net pulls the fish out from the river. This net is dao, the laws of the world! No matter where you are, you won’t be able to escape dao! “This net will one day pull the fish out from the river. Once out of the river, the fish will face the laws of the world. Either it obeys and enters the reincarnation cycle or it must revolt! Break the net and revolt! “Cultivators are like the struggling fish. The more they fiercely the struggle, the more they defy dao! “This is dao! Whether it is life and death or karma, all of it is formed by the will of dao! I’m karma!"
-
-- "People have spirit, so they can comprehend dao. Beasts have souls, so they can also be enlightened. Everything in this world that has a spirit or soul can comprehend dao! “This planet has a soul and can also be enlightened!"
-
-- "For the first time, he personally felt that the passage of time was like a ruthless river that washed away all his good memories of the past..."
-
-- "For us cultivators, one hundred years, one thousand years pass in the blink of an eye. Most relatives will have passed away, and those that remain feel alienated… Once you step on the path of cultivation, you are doomed to a life of hardship. “When you’re walking down the path of cultivation, when you turn your head you can’t see where you came from, and when you look at the path ahead, it is shrouded in fog."
-
-- "Cultivation, cultivation, mortals yearn to become immortal and enter the cultivation world. Yet they don’t know how many cultivators are envious of a mortal’s bland life. “How many more died in foreign places like Sun Tai, their ashes scattering with the wind, unable to return home… However, many parents and relatives weren’t able to meet their children even at their dying moment. If one had the chose again, would they still take that step to become a cultivator…"
-
-- "The flame moved with the wind just like how the wind makes the plants move, which makes it look like the mountain is moving, but in reality…” Wang Lin pondered. “In reality, the mountain didn’t move, the flame didn’t move, what moved was the wind! The wind only blew the surface, yet the mountain seemed to move, but in reality, it was my heart that moved! My heart moved, so the mountain moved!"
-
-- "The apricot tree blooms white flowers. The daughter won’t be taken by a daoist family. Last year, Lang the Second went up the mountain, and a year later, Lang the First was a bag of bones. The cry of the daughter accompanies the dead but takes the coffin as family… The apricot tree blooms white flowers and children shouldn’t be taken by daoists. If asked about my age, I still haven’t found my dao. The dog barks, the cat scratches, scaring the daoist back home."
-
-- "We are all antennae for creative thought. Some transmissions come on strong, others are more faint. If your antenna isn’t sensitively tuned, you’re likely to lose the data in the noise. Particularly since the signals coming through are often more subtle than the content we collect through sensory awareness. They are energetic more than tactile, intuitively perceived more than consciously recorded."
-
-- "The world is the doer and we are the witness."
-
-- "Changing the instrument is not always the easiest way to change the sound of the music, but it can be the most powerful. No matter what tools you use to create, the true instrument is you."
-
-- "What we create allows us to share glimpses of an inner landscape, one that is beyond our understanding. Art is our portal to the unseen world."
-
-- "When we take notice of the cycles of the planet, and choose to live in accordance with its seasons, something remarkable happens. We become connected. We begin to see ourselves as part of a greater whole that is constantly regenerating itself. And we may then tap into this all-powerful propagating force and ride its creative wave."
-
-- "Living life as an artist is a practice. You are either engaging in the practice or you’re not."
-
-- "You know, it’s funny. When you have the flu you feel like you are going to die, but when you are dying, most of the time you feel just fine."
-
-- "The core premise of economic theory is that people choose by optimizing."
-
-- "Economists get in trouble when they make a highly specific prediction that depends explicitly on everyone being economically sophisticated."
-
-- "Just as all that appears imperishable tends toward its own destruction, those moments that at the time seem the most fleeting recreate themselves - not only in my memory (which in the final accounting loses nothing) but in the throbbing of my heart and the prickling of my hair, making themselves new just as our Commonwealth reconstitutes itself each morning in the shrill tones of its own clarions."
-
-- "Certain mystes aver that the real world has been constructed by the human mind, since our ways are governed by the artificial categories into which we place essentially undifferentiated things, things weaker than our words for them."
-
-- "We believe that we invent symbols. The truth is that they invent us; we are their creatures, shaped by their hard, defining edges. When soldiers take their oath they are given a coin, an asimi stamped with the profile of the Autarch. Their acceptance of that coin is their acceptance of the special duties and burdens of military life - they are soldiers from that moment, though they may know nothing of the management of arms. I did not know that then, but it is a profound mistake to believe that we must know of such things to be influenced by them, and in fact to believe so is to believe in the most debased and superstitious kind of magic. The would-be sorcerer alone has faith in the efficacy of pure knowledge; rational people know that things act of themselves or not at all."
-
-- "Before they come too near to being men, boys often have an almost female insight."
-
-- "I felt that it could have and should have changed everything, but it was only the episode of a few months, and when it was over and he was gone, it was only another winter passed and the"
-
-- "There are encounters that change nothing. Urth turns her aged face to the sun and he beams upon her snows; they scintillate and coruscate until each little point of ice hanging from the swelling sides of the towers seems the Claw of the Conciliator, the most precious of gems. Then everyone except the wisest believes that the snow must melt and give way to a protracted summer beyond summer. Nothing of the sort occurs. The paradise endures for a watch or two, then shadows blue as watered milk lengthen on the snow, which shifts and dances under the spur of an east wind. Night comes, and all is at it was."
-
-- "love him, so another may love him. You love him, so you may love another.""
-
-- "You love him, so another may love him. You love him, so you may love another.""
 

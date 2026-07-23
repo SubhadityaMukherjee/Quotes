@@ -1,4 +1,196 @@
-<!-- Page 25 of 53  ·  quotes 2401–2500 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 25 of 54  ·  quotes 2401–2500 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "A veil was lifted off in front of my eyes when I understood that the modern
+society has replaced religious devotion with devotion to the material and this
+means that people identify with their job now that they can't identify with a
+common religion or background."
+
+- "The ancient greeks would probably think of you as a slave if you talked about
+work so much. Free men pursued the arts. Anyone at my job who only talks about
+work, I put them in the same box."
+
+- "Intentionally or not, when you say words like "how pitiful," you're alienating
+yourself from the other person and their experience. It dismisses and
+trivializes their pain."
+
+- "The world's first Mora is probably just an ordinary coin created by Rex Lapis.
+As for its fate? The same as all Mora, I suspect - it was simply spent
+somewhere."
+
+- "For how could a god who had never once resisted - even till the end-nurse
+hatred for her people in her heart?"
+
+- "Instead of explaining yourself to me, you should face your true self."
+
+- "The body and the mind are one. If something worries your mind, your body can
+help you find a solution."
+
+- "Besides, they're just kids. They should be allowed to believe it if it makes
+them happy. That's more important to them than questioning what's real and what
+isn't."
+
+- "Yoimiya: No matter where your journey takes you, and no matter what hardships
+might lie ahead, I hope you'll always be able to look back fondly on the
+fireworks you saw tonight. I believe that as time goes by, this firework will
+only grow brighter and more beautiful in your heart."
+
+- "Yoimiya: Fireworks that disappear in a flash of light are probably the
+furthest thing away from the eternity that our Shogun desires. Yoimiya: But
+people's feelings don't just disappear, and it's those feelings that give
+fireworks their purpose. If nobody wanted to watch fireworks, then they
+wouldn't exist. Eragon: That's another kind of eternity. Yoimiya: Also,
+consider You have to the Naganoharas, because so many people are emotionally
+invested in the existence of fireworks. Yoimiya: If we didn't exist, their
+wishes would go unfulfilled, wouldn't they?"
+
+- "Ei: I am me. There is only one of me, but I can exist in many different forms.
+It's not important what form I exist in. Ei: The Shogun, for example, is one of
+my forms of existence. The question of whether or not she is me is not
+determined by any of her components. Paimon: In that case, this picture is one
+of your forms of existence, too. Ei: Hmm. So even I, who seeks Eternity, am
+constantly changing my form of existence... Ei: Then, how can I ask Inazuma and
+everyone who lives here to remain unchanging?"
+
+- "To put it nicely, even deities indulge in wishful thinking. To put it more
+bluntly, there are things that even The Seven can't do when faced with
+something even more powerful than themselves."
+
+- "Because she is a god. It's not that gods don't need the company of others,
+just that the idea of a god having company seems indulgent to her."
+
+- "Sometimes like uh you get so creative that you don't know how to construct
+creatively the words in order to express your thought you know you just know
+how to create it you don't know how to verbalize your creative ideas like kanye
+west for instance his interviews people didn't know what the hell he was
+talking about when he was talking about his uh his clothing line right and then
+he created a billion dollar clothing line and i was like okay well maybe we
+can't we do we should listen to kanye west maybe it's like a bit of a genie for
+motivation-wise kanye is actually a really good example because this is
+actually a really big deal to me i feel like i have really good ideas and i can
+see what's happening in my head and then i go to a professional or i go to a
+loved one this is this is where it really hurts me is when i go to somebody
+that i love and i say i got this crazy idea let me tell you about and then i
+tell them what's happening scene for scene and then after that they go yeah
+it's pretty cool and i'm like you don't understand like what what i just said
+like that could be a full-on feature film or a tv show and they're like yeah
+it's cool it's cool and i'm like oh that hurts it's cool like that hurts me and
+then i'm thinking is it that wasn't a good idea that wasn't a good idea and
+then i'm like i don't do it anymore you gotta know the right people to share
+with you you you really do you're a little careful you you really your energy i
+think that's the biggest point that i can save for motivation for me is because
+some people are low in their life and they don't want anybody to be above them
+they want you to suffer with them and sit where they are in life and that's not
+everybody but there are people that want you know they're doing it they don't
+know they're doing it yeah they'd still love you too but they don't want you to
+be better than them and subconsciously some people will bring you down that way
+and some people are just like yeah it's cool because they can't see what's in
+your head but for me i can see what's in my head this is this is what happened
+personally with me and one of my students they were trying to explain to me
+what they were their story was about i'm like yeah that's cool and i don't know
+if i didn't motivate them or not but and i just couldn't really imagine what
+they were talking about it was just words all right they're just going
+blah blah blah blah blah and i'm like yeah yeah yeah keep on talking
+and then they showed me what they were working on a week later and i'm
+like this is incredible i didn't know that this is what you were
+talking about these were your words last week this is like this hit me
+in my heart and i wish that you could have explained it that way but
+you can't explain it you have to show it through your art and put music
+in it don't lose motivation whenever somebody says yeah that's a cool
+idea or whatever because they don't know what's in your flipping head
+that's the biggest thing that i would say i would walk away from the
+main thing to walk away from is that everybody has their own type of
+motivation and we've all shared our types of motivation and if you
+don't like it you can probably just shut up"
+
+- "Beware of destination addiction.... until you give up the idea that happiness
+is somewhere else, it will never be where you are."
+
+- "The thought was this: that all my life had been murk and depths, but I was not
+a part of that dark water. I was a creature within it."
+
+- "No wonder I have been so slow, I thought. All this while, I have been a weaver
+without wool, a ship without the sea. Yet now look where I sail."
+
+- "Gods hate all toil, it is their nature."
+
+- "Each spell was a mountain to be climbed anew. All I could carry with me from
+last time was the knowledge that it could be done."
+
+- "Zeus so angry." "Tell me," he said, "who gives better offerings, a miserable
+man or a happy one?" "A happy one, of course." "Wrong," he said. "A happy man
+is too occupied with his life. He thinks he is beholden to no one. But make him
+shiver, kill his wife, cripple his child, then you will hear from him. He will
+starve his family for a month to buy you a pure-white yearling calf. If he can
+afford it, he will buy you a hundred."
+
+- "You can teach a viper to eat from your hands, but you cannot take away how
+much it likes to bite."
+
+- "I watched her dance, arms curving like wings, her strong young legs in love
+with their own motion. This was how mortals found fame, I thought. Through
+practice and diligence, tending their skills like gardens until they glowed
+beneath the sun. But gods are born of ichor and nectar, their excellences
+already bursting from their fingertips. So they find their fame by proving what
+they can mar: destroying cities, starting wars, breeding plagues and monsters.
+All that smoke and savor rising so delicately from our altars. It leaves only
+ash behind."
+
+- "But in a solitary life, there are rare moments when another soul dips near
+yours, as stars once a year brush the earth. Such a constellation was he to
+me."
+
+- "A golden cage is still a cage."
+
+- "Every moment mortals died, by shipwreck and sword, by wild beasts and wild
+men, by illness, neglect, and age. It was their fate, as Prometheus had told
+me, the story that they all shared. No matter how vivid they were in life, no
+matter how brilliant, no matter the wonders they made, they came to dust and
+smoke."
+
+- "Even the best iron grows brittle with too much beating."
+
+- "The fear of missing out goes into full effect. How can we say no; the offer is
+right here for the taking. We might never have gone after it, but now it is so
+easy to get it we consider it. But if we just say yes because it is an easy
+reward, we run the risk of having to later say no to a more meaningful one."
+
+- "This feeling is normal; studies have found that we tend to value things we
+already own more highly than they are worth, and thus find them more difficult
+to get rid of."
+
+- "Resistance is not a peripheral opponent. Resistance arises from within. It is
+self-generated and self-perpetuated. Resistance is the enemy within."
+
+- "It is one thing to study war and another to live the warrior’s life."
+
+- "My friend Tony Keppelman snapped me out of it by asking if I was gonna quit.
+Hell, no! "Then be happy. You’re where you wanted to be, aren’t you? So you’re
+taking a few blows. That’s the price for being in the arena and not on the
+sidelines. Stop complaining and be grateful." That was when I realized I had
+become a pro. I had not yet had a success. But I had had a real failure."
+
+- "The professional, though he accepts money, does his work out of love. He has
+to love it. Otherwise he wouldn’t devote his life to it of his own free will."
+
+- "The professional has learned, however, that too much love can be a bad thing.
+Too much love can make him choke. The seeming detachment of the professional,
+the cold-blooded character to his demeanor, is a compensating device to keep
+him from loving the game so much that he freezes in action."
+
+- "The sign of the amateur is overglorification of and preoccupation with the
+mystery."
+
+- "The professional shuts up. She doesn’t talk about it. She does her work."
+
+- "The professional dedicates himself to mastering technique not because he
+believes technique is a substitute for inspiration but because he wants to be
+in possession of the full arsenal of skills when inspiration does come. The
+professional is sly. He knows that by toiling beside the front door of
+technique, he leaves room for genius to enter by the back."
+
+- "Boys," said Kulgan, shaking his head. "You hold a festival, give them a badge
+of craft, and suddenly they expect to be men. But they're still boys, and no
+matter how hard they try, they still act like boys, not men."
+
 - "We live a very long time by your standards. We learn to appreciate the humor
 in the world, often finding amusement in places where men find little. Or you
 can call it simply a different way of looking at life."
@@ -120,6 +312,7 @@ the limits further than anyone else and the latest scientific evidence suggests
 we evolved for precisely this purpose. We're life's path-finders."
 
 - "Forty-five percent of what we do every day is habitual ," say the researchers,
+
 - " performed almost without thinking in the same location or at the same time
 each day, usually because of subtle cues ."
 
@@ -271,228 +464,4 @@ decade & you would know it's true. So Live it up TODAY, because TOMORROW, even
 what is today might CHANGE."
 
 - "Our minds are like furry little gibbons: always agitated, never at rest"
-
-- "Another study, out of Yale, looked at the part of the brain known as the
-default mode network (DMN), which is active when we’re lost in
-thought—ruminating about the past, projecting into the future, obsessing about
-ourselves. The researchers found meditators were not only deactivating this
-region while they were practicing, but also when they were not meditating."
-
-- "It was a little embarrassing to be reading a self-help writer and thinking,
-This guy gets me. But it was in this moment, lying in bed late at night, that I
-first realized that the voice in my head—the running commentary that had
-dominated my field of consciousness since I could remember—was kind of an
-asshole."
-
-- "What the science was showing was that our levels of well-being, resilience,
-and impulse control were not simply God-given traits, our portion of which we
-had to accept as a fait accompli. The brain, the organ of experience, through
-which our entire lives are led, can be trained. Happiness is a skill."
-
-- "Studies showed that the best way to engineer an epiphany was to work hard,
-focus, research, and think about a problem—and then let go. Do something else."
-
-- "between me and reality. As one Buddhist author put it, the "craving to be
-otherwise, to be elsewhere" permeated my whole life."
-
-- "According to the Buddha, we have three habitual responses to everything we
-experience. We want it, reject it, or we zone out. Cookies: I want. Mosquitoes:
-I reject. The safety instructions the flight attendants read aloud on an
-airplane: I zone out. Mindfulness is a fourth option, a way to view the
-contents of our mind with nonjudgmental remove. I found this theory elegant,
-but utterly unfeasible."
-
-- "the only way to tame the monkey mind, to truly glimpse impermanence and defeat
-our habitual tendency toward clinging, was to meditate—and I had absolutely no
-intention of following their advice. Meditation struck me as the distillation
-of everything that sucked hardest about the granola lifestyle. I pictured
-myself seated in an unbearable cross-legged position (my disavowal of yoga
-having left me less limber than I would have liked) in a room that smelled like
-feet, with a group of smug "practitioners" ringing bells, ogling crystals,
-intoning om, and attempting to float off into some sort of cosmic goo. My
-attitude was summed up nicely by Alec Baldwin’s character on 30 Rock, who said,
-- "Meditation is a waste of time, like learning French or kissing after sex."
-Compounding my resistance was my extremely limited attention span. (Another of
-the many reasons I went into TV.) I assumed there was no way my particular
-mind—whirring at best, at worst a whirlwind—could ever stop thinking."
-
-- "The ego thrives on drama. It keeps our old resentments and grievances alive
-through compulsive thought."
-
-- "Meditation suffers from a towering PR problem, largely because its most
-prominent proponents talk as if they have a perpetual pan flute accompaniment.
-If you can get past the cultural baggage, though, what you’ll find is that
-meditation is simply exercise for your brain."
-
-- "When you’re totally present, whatever the situation is, good or bad, it’s
-gonna pass. The only thing that remains is the moment."
-
-- "When you have one foot in the future and the other in the past, you piss on
-the present."
-
-- "Striving is fine, as long as it’s tempered by the realization that, in an
-entropic universe, the final outcome is out of your control. If you don’t waste
-your energy on variables you cannot influence, you can focus much more
-effectively on those you can. When you are wisely ambitious, you do everything
-you can to succeed, but you are not attached to the outcome—so that if you
-fail, you will be maximally resilient, able to get up, dust yourself off, and
-get back in the fray. That, to use a loaded term, is enlightened
-self-interest."
-
-- "We all have an innate feeling of being separate from the world, peering out at
-life from behind our own little self, and vying against other isolated selves.
-But how can we truly be separate from the same world that created us? "Dust to
-dust" isn’t just something they say at funerals, it’s the truth. You can no
-more disconnect from the universe and its inhabitants than a wave can extricate
-itself from the ocean."
-
-- "We can do more than just think; we also have the power simply to be aware of
-things—without judgment, without the ego. This is not to denigrate thinking,
-just to say that thinking without awareness can be a harsh master."
-
-- "The Buddha embraced an often overlooked truism: nothing lasts—including us. We
-and everyone we love will die. Fame fizzles, beauty fades, continents shift.
-Pharaohs are swallowed by emperors, who fall to sultans, kings, kaisers, and
-presidents—and it all plays out against the backdrop of an infinite universe in
-which our bodies are made up of atoms from the very first exploding stars. We
-may know this intellectually, but on an emotional level we seem to be hardwired
-for denial."
-
-- "None of us has moved very far from the seven-year-old who vigilantly watches
-to see who got more."
-
-- "If you’re never looking up, I now realized, you’re always just looking
-around."
-
-- "It’s not me telling you," she said. "It’s neuroscience that would say that our
-capacity to multitask is virtually nonexistent. Multitasking is a
-computer-derived term. We have one processor. We can’t do it." "I think that
-when I’m sitting at my desk feverishly doing seventeen things at once that I’m
-being clever and efficient, but you’re saying I’m actually wasting my time?"
-- "Yes, because when you’re moving from this project to this project, your mind
-flits back to the original project, and it can’t pick it up where it left off.
-So it has to take a few steps back and then ramp up again, and that’s where the
-productivity loss is." This problem was, of course, exacerbated in the age of
-what had been dubbed the "info-blitzkrieg," where it took superhuman strength
-to ignore the siren call of the latest tweet, or the blinking red light on the
-BlackBerry. Scientists had even come up with a term for this condition:
-- "continuous partial attention." It was a syndrome with which I was intimately
-familiar, even after all my meditating."
-
-- "I was a frequent mental inventory taker, scanning my consciousness for objects
-of concern, kind of like pressing a bruise to see if it still hurts."
-
-- "Thoughts calcify into opinions, little seeds of discontent blossom into bad
-moods, unnoticed back pain makes me inexplicably irritable with anyone who
-happens to cross my path."
-
-- "The voice comes braying in as soon as we open our eyes in the morning, and
-then heckles us all day long with an air horn. It’s a fever swamp of urges,
-desires, and judgments. It’s fixated on the past and the future, to the
-detriment of the here and now. It’s what has us reaching into the fridge when
-we’re not hungry, losing our temper when we know it’s not really in our best
-interest, and pruning our inboxes when we’re ostensibly engaged in conversation
-with other human beings. Our inner chatter isn’t all bad, of course. Sometimes
-it’s creative, generous, or funny. But if we don’t pay close attention—which
-very few of us are taught how to do—it can be a malevolent puppeteer."
-
-- "Do you know what normally happens after your funeral? In a few hours the cry
-sound will be completely stopped. Family will be busy ordering food from hotels
-for relatives.. Grandchildren running and playing. Some men would go to the tea
-shop for walk before going to bed. Your neighbour will be angry,
-thinking that your people may have thrown the Ritual leaves close to
-their gate. A relative will talk to your daughter on the phone about
-not being able to come in person due to an emergency situation. At the
-next day's dinner, few relatives get reduced, and few complains not
-having enough salt in the curry. Foreign relations would have secretly
-planned tourism, as if they had never looked so far on the way there. A
-relative may be complaining about funeral that he has spent a few
-hundred rupees more on his share. The crowd will slowly begin to
-dissolve.. In the coming days Some calls may come to your phone without
-knowing you are dead. Your office will be rushing to find someone to
-replace you. One week later, after hearing the news of your death, Some
-Facebook friends may search with curious sadness to know what your last
-post was. In two weeks your son and daughter will return to work after
-their emergency leave get over. By the end of the month, Your spouse
-will be watching a comedy show and laughing.  In the coming months,
-your close relationships will return to the cinema and the beach.
-Everybody's life will go back to normal Just as there is no difference
-between a withered leaf of a big tree and what you live and die for, it
-all happens so easily,so fast, without any movement. Rains have
-started, the election is coming, the crowds on the buses are as usual,
-an actress is getting married, the festival is coming, the World Cup
-cricket is going as planned, the flowers are in full bloom, and your
-pet gave birth to next puppy. You will be forgotten by this world at an
-astonishing pace. In the meanwhile your first year death anniversary
-will be celebrated in a grand manner. In the blink of an eye Years have
-passed and there is no one to talk about you. One day, just looking at
-old photos, one of your close friend may remember you, In your
-hometown, of the thousands of people you've become acquainted with,
-only one person may remember and talk about sometime. You maybe living
-elsewhere, as someone else, if reincarnation is true. Tell me now...
-Otherwise, you will be nothing and will be plunged into darkness for
-decades. People are waiting to forget you easily Then who are you
-running around for? And who are you worried for? For most part of your
-life, say 80%, you think about what your relatives and neighbors think
-about you.. Are you living a life to satisfy them? NO USE Life is only
-Once, just live it up Fully"
-
-- "Be good to yourself first, then to others"
-
-- "When we say that someone is "good," we often mean that the person complies
-with the will of others and isn’t self-assertive. In other words, people who
-are good at suppressing their own desires in deference to another’s are the
-ones who frequently get called "good."
-
-- "But the problem is that, by living in accordance with the demands of others,
-we unwittingly neglect our own desires and needs. If as a child you were
-indifferent to your own feelings, minimizing them or not considering them
-important, as an adult you will not be able to tell what it is you yourself
-want to do, or who you are as a person. And then when you encounter someone who
-treats you unfairly or makes things difficult for you, since you do not know
-how to properly express your own feelings, the anger that ought to be directed
-toward its instigator is trapped inside you and ends up attacking you instead.
-- "Why am I such an idiot, that I can’t express my feelings properly, can’t even
-speak up honestly?"
-
-- "One of our common mistakes is to compare how we feel inside with how our
-friends appear outside."
-
-- "Compare yourself not with others, but with the old you"
-
-- "Not everything that appears in your mind is true."
-
-- "If you hear a voice within you say, 'You cannot paint,' then by all means
-paint, and that voice will be silenced."
-
-- "Don't let the internet rush you. Nobody is posting their failures"
-
-- "Any half-awake materialist well knows – that which you hold holds you."
-
-- "The more stuff you own, the more your stuff owns you"
-
-- "You can’t have everything. Where would you put it?"
-
-- "Our actions will always follow the true desire of our heart. What our heart
-believes and loves always determines the path of our life. We can mask our true
-wants for only a short while. Without a true heart change, we always return to
-our heart’s first love."
-
-- "Becoming minimalist has modeled for my children that personal belongings are
-not the key to happiness, that security is found in their character, and that
-the pursuit of happiness runs a different road than the pursuit of
-possessions."
-
-- "Madison Avenue has controlled our finances for too long. Since the day we were
-born, it has told us what needs to be bought, when it needs to be purchased,
-and what store we should visit to find the best value. When we chose freedom
-from material possessions, we broke the control that our consumer-driven,
-capitalistic society has had over us. Suddenly, we have been freed to use our
-finances to pursue endeavors far greater than those offered at our local
-department store."
-
-- "Everything has a home."
-
-- "The good life is a process, not a state of being. It is a direction, not a
-destination."
 

@@ -1,4 +1,84 @@
-<!-- Page 19 of 53  ·  quotes 1801–1900 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 19 of 54  ·  quotes 1801–1900 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Reality is merely an illusion, albeit a very persistent one."
+
+- "The first principle is that you must not fool yourself, and you are the
+easiest person to fool."
+
+- "Options—the ability to choose—is real power."
+
+- " It just so happens, paradoxically, that you can make more money—a lot more
+money—by doing half of what you are doing now."
+
+- "Civilization had too many rules for me, so I did my best to rewrite them."
+
+- "In 21st century America, old-fashioned notions like honor and fair play are
+for suckers. The credo of our time is that as if it ain’t technically illegal,
+it’s awesome. The people who rise to the top are no longer those who
+accomplish truly great things, but those who figure out how to most
+attractively package their shortcuts and fake-outs."
+
+- "Once you say you're going to settle for second, that's  what happens to you in
+life."
+
+- "If the recipe sucks, it doesn't matter how good a cook you are."
+
+- "Named must your fear be before banish it you can."
+
+- "No more passing days as the living dead, no more dinners where his colleagues
+compared cars, riding on the sugar high of a new BMW purchase until someone
+bought a more expensive Mercedes. It was over."
+
+- "Set aside a certain number of days, during which you shall be content with the
+scantiest and cheapest fare, with course and rough dress, saying to yourself
+the while: "Is this the condition that I feared?"
+
+- "There's  no difference between a pessimist who says, "Oh, it's  hopeless, so
+don't bother doing anything," and an optimist who says, "Don't bother doing
+anything, it's  going to turn out fine anyway." Either way, nothing happens."
+
+- "Don't save it all for the end. There is every reason not to."
+
+- "I am an old man and have known a great many troubles, but most of them never
+happened."
+
+- "Doing the unrealistic Is easier than doing the realistic"
+
+- "The fishing is best where the fewest go, and the collective insecurity of the
+world makes it easy for people to hit home runs while everyone else is aiming
+for base hits. There is just less competition for bigger goals."
+
+- "Remember—boredom is the enemy, not some abstract "failure."
+
+- "The existential vacuum manifests itself mainly in a state of boredom."
+
+- "Perfection is not when there is no more to add, but no more to take away."
+
+- "It is vain to do with more what can be done with less."
+
+- "Doing something unimportant well does not make it important."
+
+- "In other words, I was working because I felt as though I should be doing
+something from 9-5.1  didn't realize that working every hour from 9-5 isn't the
+goal; it's  simply the structure most people use, whether it's  necessary or
+not."
+
+- "Most things make no difference. Being busy is a form of laziness—lazy thinking
+and indiscriminate action."
+
+- "Since we have 8 hours to fill, we fill 8 hours. If we had 15, we would fill
+
+1. If we have an emergency and need to suddenly leave work in 2 hours but have
+pending deadlines, we miraculously complete those assignments in 2 hours."
+
+- "Parkinson's  Law dictates that a task will swell in (perceived) importance and
+complexity in relation to the time allotted for its completion."
+
+- "Am I being productive or just active?"
+
+- "Reading, after a certain age, diverts the mind too much from its creative
+pursuits. Any man who reads too much and uses his own brain too little falls
+into lazy habits of thinking."
+
 - "We’re all pieces on someone’s board, Jorg."
 
 - "We look at the world once, in childhood. The rest is memory."
@@ -191,11 +271,13 @@ heart dies, then it forgets… that is death."
 water falling, then this puddle is death. Dead water is water without life and
 flow."Then his right hand casually pointed again and this time it was on the
 men next to the fire. The void in his eyes became even stronger and he said,
+
 - "Today they can enjoy, be angry, be sad, or be happy. That is life. In the
 future, they won’t be able to enjoy, be angry be sad, or be happy, and that is
 death."His hand suddenly moved and pointed at a praying mat. He said, "This
 shrine was alive when the statue of the god was here. Now that it is without
 it, it is dead!"Speaking of this, he stood up, pointed at the sky, and said,
+
 - "These raindrops are born in the sky and die on the earth. What’s in the middle
 is their life. I look at this rain not for the sky, earth, or the rain itself,
 but the raindrop’s entire life… this cycle of life and death."
@@ -353,130 +435,4 @@ fire lend. What does your flickering portend?"
 
 - "Call a jack a jack. Call a spade a spade. But always call a whore a lady.
 Their lives are hard enough, and it never hurts to be polite."
-
-- "Just pity him, my boy. Tomorrow we’ll be on our way, but he’ll have to keep
-his own disagreeable company until the day he dies."
-
-- "A poet is a musician who can’t sing. Words have to find a man’s mind before
-they can touch his heart, and some men’s minds are woeful small targets. Music
-touches their hearts directly no matter how small or stubborn the mind of the
-man who listens."
-
-- "Bones mend. Regret stays with you forever."
-
-- "Because pride is a strange thing, and because generosity deserves generosity
-in return. But mostly because it felt like the right thing to do, and that is
-reason enough."
-
-- "Besides, anger can keep you warm at night, and wounded pride can spur a man to
-wondrous things."
-
-- "Anyone who thinks boys are innocent and sweet has never been a boy himself, or
-has forgotten it. And anyone who thinks men aren’t hurtful and cruel at times
-must not leave his house often. And he has certainly never been a physicker."
-
-- "That’s why stories appeal to us. They give us the clarity and simplicity our
-real lives lack."
-
-- "Music is a proud, temperamental mistress. Give her the time and attention she
-deserves, and she is yours. Slight her and there will come a day when you call
-and she will not answer."
-
-- "And while my suite of rooms at the Horse and Four had been luxurious, my tiny
-room at Anker’s was comfortable. Think in terms of shoes. You don’t want the
-biggest you can find. You want the pair that fits. In time, that tiny room at
-Anker’s came to be more of a home to me than anywhere else in the world."
-
-- "If you are searching for a pattern in anything, you will most likely find it"
-
-- "It had been treated unkindly in the past, but that didn’t make it less lovely
-underneath. So yes. It had flaws, but what does that matter when it comes to
-matters of the heart? We love what we love. Reason does not enter into it. In
-many ways, unwise love is the truest love. Anyone can love a thing because.
-That’s as easy as putting a penny in your pocket. But to love something
-despite. To know the flaws and love them too. That is rare and pure and
-perfect."
-
-- "You know you’re clever. That’s your weakness. You assume you know what you’re
-getting into, but you don’t."
-
-- "My point is this. In each of us there is a mind we use for all our waking
-deeds. But there is another mind as well, a sleeping mind. It is so powerful
-that the sleeping mind of an eight-year-old can accomplish in one second what
-the waking minds of seven members of the Arcanum could not in fifteen minutes."
-
-He made a sweeping gesture. "Your sleeping mind is wide and wild enough to hold
-the names of things. This I know because sometimes this knowledge bubbles to
-the surface. Inyssa has spoken the name of iron. Her waking mind does not know
-it, but her sleeping mind is wiser. Something deep inside Fela understands the
-name of the stone."
-
-Elodin pointed at me. "Kvothe has called the wind. If we are to believe the
-writings of those long dead, his is the traditional path. The wind was the name
-aspiring namers sought and caught when things were studied here so long ago."
-
-- "What use is care? What good is watching for that matter? People are forever
-watching things. They should be seeing. I see the things I look at. I am a
-see-er."
-
-- "The struggle is great, the task divine—to gain mastery, freedom, happiness,
-and tranquility."
-
-- "This is, in fact, the first obligation of a leader and a decision maker. Our
-job is not to "go with our gut" or fixate on the first impression we form about
-an issue. No, we need to be strong enough to resist thinking that is too neat,
-too plausible, and therefore almost always wrong. Because if the leader can’t
-take the time to develop a clear sense of the bigger picture, who will? If the
-leader isn’t thinking through all the way to the end, who is?"
-
-- "We do not live in this moment. We, in fact, try desperately to get out of
-it—by thinking, doing, talking, worrying, remembering, hoping, whatever. We pay
-thousands of dollars to have a device in our pocket to ensure that we are never
-bored. We sign up for endless activities and obligations, chase money and
-accomplishments, all with the naïve belief that at the end of it will be
-happiness."
-
-- "A wealth of information creates a poverty of attention."
-
-- "With my sighted eye I see what’s before me, and with my unsighted eye I see
-what’s hidden"
-
-- "What they thought was silence, because they didn’t know how to listen, was
-full of accidental sounds. You could hear the wind stirring outside during the
-first movement. During the second, raindrops began pattering the roof, and
-during the third the people themselves made all kinds of interesting sounds as
-they talked or walked out."
-
-- "Most of us would be seized with fear if our bodies went numb, and would do
-everything possible to avoid it, yet we take no interest at all in the numbing
-of our souls."
-
-- "In other words, any act that rejects immediate gratification in favor of
-long-term growth, health, or integrity. Or, expressed another way, any act that
-derives from our higher nature instead of our lower. Any of these will elicit
-Resistance."
-
-- "The more important a call or action is to our souls evolution, the more
-Resistance we will feel toward pursuing it."
-
-- "Doctors estimate that seventy to eighty percent of their business is
-non-health-related. People aren't sick, they're self-dramatizing."
-
-- "In the past, the focus of the process of invention has tended to be on
-actually getting something to work ("find the lightbulb filament that works,"
-et cetera). But in the computational universe, the focus shifts to the question
-of what you want the invention to do. Because once you’ve described the goal,
-finding a way to achieve it is something that can be automated."
-
-- "the truly free individual is free only to the extent of his own self-mastery."
-
-- "The artist must be like that Marine. He has to know how to be miserable. He
-has to love being miserable. He has to take pride in being more miserable than
-any soldier or swabbie or jet jockey. Because this is war, baby. And war is
-hell."
-
-- "My friend Tony K e p p e l m a n's n a p p e d me out of it by asking if I was
-gonna quit. Hell, no! "Then be happy. You're where you wanted to be, aren't
-you? So you're taking a few blows. That ''s the price for being in the arena
-and not on the sidelines. Stop complaining and be grateful."
 

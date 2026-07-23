@@ -1,4 +1,198 @@
-<!-- Page 45 of 53  ·  quotes 4401–4500 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 45 of 54  ·  quotes 4401–4500 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Psychiatrist: I feel like you're not very interested in yourself. Me: Even when I keep
+a diary of my feelings? Psychiatrist: Is that not more of a record of yourself in the
+third person?"
+
+- "When you're having a hard time, it's natural to feel like you're having the hardest
+time in the world. And it's not selfish to feel that way. Just because certain conditions
+in your life are relatively better, it doesn't mean you're better off in general"
+
+- "It's not the pills that make people addicted to them."
+
+- "It's just your opinion. It's not like there's any right or wrong to it. Of course,
+others may have their own expectations, or you may feel pressured to sound impressive in
+your critiques because of your studies and your job. But the moment you think to yourself,
+Well, this is the way I am, and what can you do about it, you'll feel much freer. Me: Oh.
+Just the thought of"
+
+- "Forgetfulness can be liberating, you know."
+
+- "You put a lot of stock in what other people think. It's because your satisfaction with
+yourself is so low. But your life is your life, your body is your body – and you have
+responsibility over it. Right now, you don't process the input that comes to you through a
+mechanism of rationality or mediation, you go straight to the extreme. Self-surveillance
+isn't necessarily a bad thing, but there is so much you can do with the input, such as
+rationalising or finding a different way to think about things – but you only do one thing
+with it. There can be so many reasons for something, but you're so focused on the result
+of it that you don't see the reasons. You keep focusing on, I'm sad, I want to cry, I'm
+angry, which only amplifies these emotions."
+
+- "I think you need to spatially separate your work and your rest. If you were stressed at
+work, you ought to be relaxing when you're home,"
+
+- "Your mood is extremely important. It determines how you interpret the random events of
+life."
+
+- "It's just a hobby after all. You mustn't let your hobby become stressful. But I hope if
+you don't do it isn't out of fear."
+
+- "Usually before a dream becomes reality, we tend to think we'll wish for nothing else if
+only the dream is realised. Imagine how you'd feel if you always remembered that your
+dream has already been fulfilled. Everything that comes after would be like a lovely
+bonus. When you feel envious of something, try to imagine how you would look to your
+twenty-year-old self."
+
+- "But the you of the present is looking at your life and past as if you're a failure.
+When in truth, from the perspective of a younger you, you're the very picture of success."
+
+- "when my face looked like a bleak black-and-white film still in the mirror – could that
+girl have imagined she would become me one day?"
+
+- "I've worked hard to get here. And now I make a living doing what I enjoy. I've no
+anxieties about whether this is the right path for me. All I want is to get better at it.
+That's enough for me – why did I torture myself by comparing myself to someone else? If
+twenty-year-old me met me today, she would cry with joy. And that's enough for me."
+
+- "more you sacrifice, the more you'll begin to expect a payback."
+
+- "You keep obsessively holding yourself to these idealised standards, forcing yourself to
+fit them. It's another way, among many, for you to keep punishing yourself."
+
+- "You try to hide your obsession because you are aware of it, I mean."
+
+- "Your self-esteem determines how you feel about the sincerity of others."
+
+- "You have sympathy for social minorities. Perhaps that comes from seeing yourself as
+disadvantaged?"
+
+- "We are so bad at mourning in our society. Maybe it's a failure of respect."
+
+- "I think it's good to experience complete solitude in an unfamiliar environment. You're
+not hitting rock bottom right now. When we're sinking in water, it can be a relief to feel
+the ground beneath our feet, the rock bottom, because we know we can kick against it to
+rise again. But if you can't feel the ground in life, the fear can be overwhelming. So
+maybe it's good to find your rock bottom."
+
+- "Mother clearly hated how she had passed on this part of herself to us, which was why
+she was always angry at our faults."
+
+- "Accepting your burdens and putting them down isn't an occasional posture; it's
+something you need to practise for the rest of your life."
+
+- "Books never tire of me. And in time they present a solution, quietly waiting until I am
+fully healed."
+
+- "We always put modifiers in front of ourselves, and I'm no exception to that."
+
+- "to expect someone to always be a certain way or consistently do a certain thing can be
+a huge burden on them."
+
+- "When life becomes something one just lives through, when the demands of survival take
+up all of our time and effort, leaving no strength for any other demands, and when time
+rushes by drying up or rotting whatever we have had to neglect, expecting someone to carry
+on being the same is truly too much of a burden."
+
+- "There are days when I wish I were numb, when I'm desperate to feel nothing. I want to
+be simple and cold and totally without feeling. Empathy has a large presence in my life,
+and it can cast a very long shadow. I can be watching a television drama or a movie,
+listening to a song or looking at a photograph, listening to someone's story or writing my
+own, and my heart and mood will sink. Like a punctum they pierce me without context, a
+feeling I am very used to now and tired of."
+
+- "Life is as messy as a bag whose owner never cleans it out. You have no idea when you
+might reach in and pull out a piece of old trash, and you're afraid someone is going to
+look through your bag someday. Maybe your 'baggage' is like an old bag, too. You toss it
+around any which way, not caring how worn it gets or where it lands, and no one notices.
+You can't afford a new bag so you carefully and painstakingly hold it so the rough patches
+don't show."
+
+- "Changing your mindset takes some work, but the beauty is when you begin to understand
+there's a huge difference between being busy and being productive. This is something so
+many of us struggle with because we falsely believe that we need to be busy, that we are
+supposed to fill our days."
+
+- "Balance is just one of the stories we tell ourselves. We all have a library of folklore
+filled with stories about ourselves that we believe: we are supposed to be a certain way,
+have a certain job, or live a certain life."
+
+- "I quieted the stories in my head and reset my expectations to make them realistic for
+my life. I'm not going to say I've completely gotten rid of the guilt, but I feel so much
+better because I changed my way of thinking."
+
+- "Ask any kindergartner what they are good at, and you'll need to sit through a laundry
+list of topics: art, running, painting, climbing trees, eating potato chips—seriously,
+five-year-olds think they are amazing at everything! But wait ten years and ask the very
+same child, and she'll think of almost nothing; at best you'll maybe hear one or two
+things she believes she excels in. What happens to us in this space of time? How do we
+lose our belief in ourselves? We've allowed the world to define us and reinforce these
+limiting beliefs, but it's time to break through."
+
+- "Sometimes we have to let go of our old stories."
+
+- "Because so many of us live in a state of either/or, we tend to push aside other things
+we really want to do. Far too many of us have pushed aside our aspirations because we
+believe we don't have time or don't have the right to pursue them."
+
+- "Have you ever experienced that feeling of having no control over your day? As if your
+world is so rigid and made up of so many rules you don't really get to choose the life you
+live? That, my friend, is learned helplessness."
+
+- "We want to believe our kids need us, and sometimes in the busy rush of our everyday
+life, we forget they are capable of being more independent."
+
+- "We all have these invisible choices, don't we?"
+
+- "Have you ever watched a squirrel aiming to get something she wants? Perched in a tree,
+tail twitching, she sees a bird feeder and is drawn to it. The homeowners, though, are
+smart, and they've added all kinds of obstacles to make it "squirrel-proof." Does our
+squirrel take a look, decide she has no chance of getting to the seeds, and toss in the
+towel? Absolutely not. A squirrel will attack the problem from all angles, testing and
+pushing the boundaries of what she knows she can and cannot do, until she sits
+triumphantly atop that feeder with a belly full of birdseed."
+
+- "Finding choices isn't only possible, it's essential to thrive. You just have to start
+actively looking for them—that's a choice in and of itself."
+
+- "It's possible for your future to look brighter, for you to focus on the things that are
+important to you. But to do that, your priorities have to take priority. It's possible to
+have a job that makes you happy and to spend time on the things you really want."
+
+- "Our North Star is a combination of our mission, vision statement, and core values. Each
+one answers the question of who you are at your heart. The mission statement tells us what
+we are doing now, the vision statement tells of where we want to be, and the core values
+tell us how these can be defined through our actions. Like pieces of a puzzle, they come
+together to create the completed picture of why we make the choices we do. They become the
+North Star we need to guide us and help us navigate through decisions."
+
+- "Human beings are works in progress2 that mistakenly think they are finished. The person
+you are right now is transient, as fleeting and as temporary as all the people you've ever
+been. The one constant in our lives is change."
+
+- "Your mission statement isn't about your job itself—it's about what your job does and
+why you do it."
+
+- "Remembering that I'll be dead soon15 is the most important tool I've ever encountered
+to help me make the big choices in life." We don't have to wait until we receive bad news
+from the doctor or read our obituary in the paper. We can begin to make those big choices
+now, using our North Star to help guide us."
+
+- "Don't spend time beating on a wall, hoping to transform it into a door."
+
+- "For too long, I had no idea where to spend my time or how to spend my energy. I wasn't
+productive—I was simply running around being busy, filling my days but not my soul."
+
+- "It seems like this abundance of information should make life easier, but when we are
+bombarded with so much of it, the paradox is that decision making becomes more difficult.
+This is when the feeling of overwhelm begins to settle in and we simply don't know where
+to start."
+
+- "We have to cut in order to really grow and flourish. I know this seems
+counterintuitive, but think of a garden: Do you plant the flowers one on top of another?
+Do you squeeze so many in that there is no room? Or do you allow each plant to have
+space—space to receive the rain and the sun, space to spread their leaves and grow? That's
+what we need: space to allow ourselves to focus. The only way to have that space is to
+actively create it for ourselves. We need boundaries."
+
 - "Perfectionism is just fear in fancy shoes and a mink coat."
 
 - "Remember, efficiency is doing a lot of work; effectiveness is doing the important work.
@@ -179,182 +373,4 @@ chambers bloom wherever data gathers and is stored . "
 - "intimately. He found himself reading Marshall McLuhan's Understanding"
 
 - "The medium is the message."
-
-- "The computer is a medium! I had always thought of it as a tool, perhaps a vehicle-a
-much weaker conception. What McLuhan was saying is that if the personal computer is truly
-a new medium then the very use of it would actually change the thought patterns of an
-entire civilization."
-
-- "The Alan Kay style of virtual designing, which he continued long after visualizing the
-Dynabook, consists of creating imaginative abstractions of what can be, going through the
-motions of gathering a team to build the thing, and discovering important new techniques
-and innovations in the process. The real product is the body of ideas that circulate from
-the vision."
-
-- "Metaphor, it turns out, is the key to making computers comprehensible."
-
-- "if it didn't hit the streets, it wasn't worth doing. Ideas were useless if they didn't
-get out there."
-
-- "people are more important than computers, and that computer systems should be designed
-to alleviate human frailties, rather than have the human succumb to the needs of the
-machine"
-
-- "How can you believe any criticism when everything you do turns to gold?"
-
-- "The proper lesson from all this was that personal computer companies are just as well
-off letting others produce great software."
-
-- "when you start looking at a problem and it seems really simple, with simple solutions,
-you don't really understand the complexity of the problem. Your solutions are way
-over-simplified. Then you get into the problem, and you see that it's really complicated,
-and you come up with all these convoluted solutions. That's sort of the middle, and that's
-where most people stop, and the solutions tend to work for a while. But the really great
-person will keep on going and find the key, the underlying principle of the problem. And
-come up with an elegant, really beautiful solution that works."
-
-- "A lot of times people don't do great things because great things really aren't expected
-of them and because nobody really demands they try and nobody says, 'Hey, that's the
-culture here, to do great things"
-
-- "What did I learn from Steve Jobs?" he repeated. "That ignorance [of what you can't do]
-is great. We learned to keep on trying and trying. We weren't the best, but we tried the
-hardest. We were just a bunch oflucky nerds."
-
-- "Real artists ship."
-
-- "When you're trying to spread a religion you have to be pretty strict at first. After
-you get them converted, you can relax,"
-
-- "Those in charge of the marketplace regarded computing as a rite of passage, a sort of
-hazing. Only by acquiring knowledge in this needlessly arcane system could one gain
-admittance to the society of adepts. It was not a joyous society, but one of
-stiffupper-lips."
-
-- "What I didn't understand was that most people didn't get to make their own decisions."
-
-- "Breakthroughs like PageMaker have two sorts of effects. The first is to increase the
-ease and reduce the cost of performing previously expensive, time-consuming tasks. The
-second, and possibly more significant, is to empower people who otherwise could never
-afford to do the task in the first place."
-
-- "When the going gets weird, the weird turn pro."
-
-- "What's the difference between Apple and Boy Scouts? The Boy Scouts have adult
-supervision."
-
-- "There was a time, I know, when I conducted much of the same sorts of business that I
-currently engage in, without requiring a machine that makes more calculations in a
-morning's work than all the combined arithmetical operations of humanity performed by
-hand, over the span of recorded history."
-
-- "Still, I am hard pressed for proof that, for all its magic, Macintosh has enabled me to
-be more productive. I feel that it has, with every inch of my being. But after my recent
-fiasco with On Location and Word, I sometimes question whether this is an illusion."
-
-- "This gap between accepted reality (computers make us more productive) and the
-quantifiable result (they don't), has come to be known as the Productivity Paradox. A true
-puzzler: If computers enable us to get so much work done, in a much shorter period of time
-why can't we measure it? Where did the productivity go?"
-
-- "But maybe productivity is not the main benefit from computers. As its designers
-understood, the point of Macintosh was not to prod you into piling up x more reams of
-paper, but to change the way you interact with information, to empower you to manipulate
-information with confidence, to augment your creative powers, and to change the very way
-you think."
-
-- "Something happens to companies when they get to be a few billion dollars," he said.
-"They sort of turn into vanilla companies. They add a lot of layers of management. They
-get really into process rather than result, rather than products. They lose touch with
-their customers. Their soul goes away."
-
-- "Macintosh tells people as they use it, 'You don't have to take things too seriously."
-
-- "Each new purchase brought its small dopamine rush that faded as soon as the thing was
-out of its box and taking up space."
-
-- "Minimalism was a brand to identify with as much as a way of coping with mess."
-
-- "Every advertisement for a new product implied that you should dislike what you already
-had."
-
-- "There was really nothing wrong with our lives at all."
-
-- "Minimalism also seemed sometimes to be a form of individualism, an excuse to put
-yourself first by thinking, I shouldn't have to deal with this person, place, or thing
-because it doesn't fit within my worldview."
-
-- "It makes sense that millennials embrace minimalism. My generation has never had a
-healthy relationship with material stability. There are always too few resources at hand
-or too much competition for what's left, a scenario that's engulfing not just one age
-group but a wider swath of people every year. Even as the traditional economy falls apart,
-we're awash in social media noise and new platforms competing for our attention, labor,
-and cash. Stability is no longer the default."
-
-- "Maybe the longing for less is the constant shadow of humanity's self-doubt: What if we
-were better off without everything we've gained in modern society? If the trappings of
-civilization leave us so dissatisfied, then maybe their absence is preferable, and we
-should abandon them in order to seek some deeper truth."
-
-- "We should not believe the lack of silver and gold to be proof of the simple life."
-
-- "Your bedroom might be cleaner, but the world stays bad."
-
-- "Minimalism is thus a kind of last resort. When we can't control our material security
-or life path, the only possibility left is to lower our expectations to the point where
-they're easier to achieve, which could mean living in a train car, or a camper van."
-
-- "We like to think that we can do without, rough it to prove that we're not so soft or
-bound to the past."
-
-- "If we don't establish our identities with the volume of things we consume, then we feel
-more attuned to the way we consume them and the careful decisions we make between one
-thing and another. It's a species of the narcissism of small differences. We take pride in
-the small details that we have actually chosen from our limited options, which might make
-us feel better about not being able to change our circumstances as a whole."
-
-- "Consumerism causes a kind of alienation, in the Marxist sense: When workers are
-separated from the products of their labor and compensated by an hourly wage, they can't
-find satisfaction in their jobs or the remainder of family life. Thus they turn to
-acquiring capital as the only form of self-fulfillment. We work only to accumulate stuff
-and in turn the accumulated stuff dominates us, further distancing us from non-commodified
-things like relationships, joy, and community. Labor "is therefore not the satisfaction of
-a need, but only a means for satisfying needs external to it," Karl Marx wrote in 1844."
-
-- "Minimalism is a perfect fit because it allows for just enough character to make a space
-interesting but not too much. The rest gets smoothed over into blankness."
-
-- "When a word or style spreads everywhere, it tends to lose its original meaning."
-
-- "The veneer of minimalist style becomes like an organic food label, expensive green
-juices, or complex skin treatments being sold as a "no-makeup" look. It's another
-class-dependent way of feeling better about yourself by buying a product, as Spartan as
-the product might be. It takes a lot of money to look this simple."
-
-- "It was better to go without a couch than buy one that wasn't perfect. That commitment
-to taste might be rarified, but it probably didn't endear Jobs to his family, who might
-have preferred a place to sit."
-
-- "The need for simplicity, taken to an extreme, can wipe function away entirely."
-
-- "Minimalist design encourages us to forget everything a product relies on and imagine,
-in this example, that the internet consists of carefully shaped glass and steel alone."
-
-- "For the sake of narrative it's always tempting to link a biographical cause to an
-artist's work, like a stem to a flower."
-
-- "Curation by definition is not an original act."
-
-- "Minimalism can be oppressive. The style can make you feel like you don't belong in a
-space unless you conform to it, as in upscale cafés or severe hotel lobbies."
-
-- "(The problem with being both a critic and an artist is that you'll probably like work
-that resembles yours.)"
-
-- "It isn't necessary for a work to have a lot of things to look at, to compare, to
-analyze one by one, to contemplate," Judd wrote in 1964. "The thing as a whole, its
-quality as a whole, is what is interesting."
-
-- "Writing about emptiness is difficult because words document presence. As soon as you
-point to something in writing, it's there, even if what you point to is empty floor."
 

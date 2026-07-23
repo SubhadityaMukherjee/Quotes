@@ -1,4 +1,15 @@
-<!-- Page 5 of 53  ·  quotes 401–500 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 5 of 54  ·  quotes 401–500 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "But no one ever explained how terrible it is to be in the middle of a tale and
+not to know the ending...."
+
+- "He was not great; he was, in fact, very small. At the same moment, though, he
+was important, just as any point of light in a dark sky might be the star that
+led a mariner to safety, or the star watched by a lonely child during a
+sleepless night...."
+
+- "Also," Binabik said gravely, "it may or may not be foolishness to pray to the
+gods, but there is certainly being no wisdom in cursing them."
+
 - "We are very small," Simon said between swallows. The kangkang seemed to be
 flowing in his veins like blood. "So are the stars, kundë -mannë," Sludig
 murmured. "But they each one burn as bright as they can."
@@ -135,6 +146,7 @@ aroused into a vicious storm, it could split mountains and shatter stones."
 - "Sometimes, a single mistake caused by being unbending could cause someone to
 suffer a lifetime of regret. The occasional compromise that allows one's loved
 ones to be safe also allowed one to pursue revenge with even greater ferocity!"
+
 - "An interesting, colorful life with ups and downs. Only that is meaningful."
 
 - "If you liked to do something, then once you became absorbed in it, your
@@ -158,6 +170,7 @@ Starlight shines at height of day. I hear infinity calling."
 
 - "It's been too long since I ve been a mate. I had forgotten the two rules. The
 two rules?" she echoed Aiyah. Sariel taught me." He held up his index finger.
+
 - "Rule one: in any dispute between mates, the male is always to blame, even when
 he is clearly blameless. Rule two"—his middle finger joined the first—"whenever
 in doubt, refer to rule one."
@@ -303,6 +316,7 @@ cleansing of time, and the understanding which comes from experiencing the
 world. It can be hidden in any time, place, direction, or action…. "That is my
 understanding of the Dao. It points in a direction, and gives me the strength
 to proceed onward. Perhaps it doesn't even exist, or perhaps it is everywhere.
+
 - "As for me, I am still searching for it…."
 
 - "In the former era mankind had produced a massive cruise ship. They christened
@@ -526,41 +540,4 @@ can t evade it."
 - "A wandering breeze, swaying restlessly. Swept up by flurries. Lost and led
 astray. Storms rage and roar, and threaten all that remains. But the breeze
 drifts ever onward. Finding its own way."
-
-- "In the dangers of the age, in the passion of violence, quietly laying down
-your life is utterly insignificant in the ever flowing passage of time. There
-is nothing stronger than the will to live."
-
-- "That, dear one, is the point of the demonstration. Reality isn t relevant.
-Perception is everything. If you think it is the enemy, you can destroy it,
-whether true or not. The magic interprets only your perception. It won t allow
-you to harm someone you think innocent, but it will destroy whoever you
-perceive to be the enemy, within limits. Only what you believe, and not the
-truth of your thoughts, is the determining factor."
-
-- "There is no such thing as pure good or pure evil, least of all in people. In
-the best of us there are thoughts or deeds that are wicked, and in the worst of
-us, at least some virtue. An adversary is not one who does loathsome acts for
-their own sake. He always has a reason that to him is justification. My cat
-eats mice. Does that make him bad? I don t think so, and the cat doesn't think
-so, but I would bet the mice have a different opinion. Every murderer thinks
-the victim needed killing."
-
-- "The anger of teeth be force by contact. Violence by touch. Combat. The magic
-of the Sword of Truth be the magic of the anger of teeth. Ripping. Tearing. The
-anger of the tongue need not touch, but it be force just the same. It cuts just
-as quick"
-
-- "Everything is valuable under the right conditions. To a man dying of thirst,
-water be more precious than gold. To a drowning man, water be of little worth
-and great trouble."
-
-- "Wizard's First Rule: people are stupid." Richard and Kahlan frowned even more.
-- "People are stupid; given proper motivation, almost anyone will believe almost
-anything. Because people are stupid, they will believe a lie because they want
-to believe it's true, or because they are afraid it might be true. People's
-heads are full of knowledge, facts, and beliefs, and most of it is false, yet
-they think it all true. People are stupid; they can only rarely tell the
-difference between a lie and the truth, and yet they are confident they can,
-and so are all the easier to fool."
 

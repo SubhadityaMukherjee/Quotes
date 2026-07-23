@@ -1,4 +1,254 @@
-<!-- Page 48 of 53  ·  quotes 4701–4800 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 48 of 54  ·  quotes 4701–4800 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "According to the history books, most of the falls of any ancient emperor were caused by
+their suspicions of their ministers; their suspicions made them ill and therefore led to
+their death"
+
+- "The waves in the back always push the ones in the front in the Yangtze river, so of
+course each generation has to be stronger than the next"
+
+- "The hardest part is not learning how to use the tools but know what to do with them"
+
+- "The universe will never give you peace in something you were not meant to settle in"
+
+- "When I was a teen, I'd self harm, but now I just occasionally inconvenience myself in
+different ways when I feel bad or guilty about something I've said or done."
+
+- "When we're in a dangerous situation as a child, we're not allowed to get angry because
+the abusers are dangerous. So we turn our anger back at ourselves. The abusers contribute
+to this on purpose, making us feel like we had some control over the situation when we did
+not. That's what abusers do."
+
+- "You're hurting yourself in an attempt to soothe yourself. And because you had abusive
+parents who were probably prone to punishment, you're doing that to yourself. You are
+imitating them, what they did to you."
+
+- "They see me ho'ing, they hatin"
+
+- "Thousands of miles fly by in a dream and thousands of years like a racing steed"
+
+- "Taking rejections personally is the biggest enemy of a creative professional. Don’t let
+your work become your whole identity."
+
+- "This is your job, and as long as you’re being paid for it, just let it go."
+
+- "What horrifies me most is the idea of being useless: well-educated, brilliantly
+promising, and fading out info an idifierent middle age."
+
+- "we have kitchens to clean because our bellies are full. we have beds to make because we
+did not have to sleep on floors. our laundry is piling because we have so many clothes to
+choose from and so many ways to make them dirty. our arms are full because our hearts are
+full. celebrate the messy. celebrate every little thing that needs to be done. life is too
+short and too beautiful to let the little things slip away."
+
+- "It’s easy to say I wish my partner did more for me. It’s hard to do more for your
+partner"
+
+- "If you stop and think about it, your life is a lot longer as an old guy than as a kid."
+
+- "To her, reuniting with her Aranara friend is the "result." But recapturing her past joy
+and belief in herself is the "process," and that's where our help is needed.I'm guessing
+that her sudden illness made her feel like she may not be able to realize her dreams
+anymore. It also made it difficult for her to hold onto the happy memories and dreams she
+had.Everyone has their own imagination. After some chance coincidence, she met an
+"Aranara."So as long as we help her rediscover that same feeling she once had, her
+"Aranara" will return naturally.Oh, so that's what you're thinking...Adults only want to
+believe in objective reality. In doing so, they may unintentionally do harm to the
+innocent fantasies of children.But I think there are ways to get even subjective things
+back."
+
+- "I'm so happy... I almost forgot how it feels to be this happy...You know, at first, it
+felt like my world had shrunk down to a tiny space.But as long as I continue moving
+forward, new sights will always appear in front of me, and my world will keep expanding
+before my eyes.Even though I don't know how I did it, I know I have you all to thank.Oh,
+that's not important. What's important is that you've remembered the joy of going through
+the world.Our memories don't just symbolize our past. They can also shine a light on our
+future.Once you find the hope in your heart again, that happiness will come back to you."
+
+- "Dreams themselves may be imaginary, but they're also experiences that can never be
+relived or replicated.If we were sticklers about truth and fiction, we would've missed out
+on so much beauty and emotion."
+
+- "That might sound silly to you... Like, why do you have to be happy just because it is?
+But that's the magic of a smile. If you don't believe me, try it. Look at it a few times
+every day, and you'll understand."
+
+- "People use fireworks to remember their most precious memories, and these memories
+sparkle and shine each time the fireworks fly. In other words, fireworks symbolize the
+past. And shooting stars make people think of wishes because wishes carry people's
+brilliant hopes and expectations for the future. One represents the past, and the other
+the future. They both bloom in the sky, but have completely different meanings behind
+them."
+
+- "Underneath their hard shell is often a vulnerable human, who fails to provide you with
+nurture because they never received it themselves. Their dysfunctional behaviours are
+rooted in a painful past. To these parents, their fundamental experience in life is that
+of being groundless. From a young age, they did not feel protected or guided but were
+‘thrown into’ a precarious and scary world. They had to survive challenges, protect
+themselves and seek direction in the world while their parents remained weak or absent. At
+some point in their life, perhaps on an unconscious level, they decided they would make
+better parents to themselves than their real parents could. They took over the role and
+became the powerful figure they had been searching for. Since their own sense of
+invincibility is the only thing that they have ever been able to count on, they fiercely
+protect it with all they have. This is why they demand compliance from others to reinforce
+their authority and are extremely defensive and reactive to anything that threatens their
+sense of control. "
+
+- "One has never found oneself lacking in basic comforts. On the contrary, it is the
+gesture that one values above all else. So long as you've shown proper respect and
+consideration, the quantity or quality of the gift is but a trivial matter."
+
+- "A name is but a simple label we carry with us on our journey through the world. Why
+would one be offended by such a trivial matter?"
+
+- "That is not to say that your words paint an inaccurate picture. One has always lived by
+a single ideal: eschew all action and abide by no rule. One does as one pleases and speaks
+as one pleases. Others may critique or praise as they see fit, yet one places little
+weight in such judgments."
+
+- "When dwelling between mountain and forest, away from the struggles and troubles of the
+mortal world, a mortal form is hardly the most fitting of choices."
+
+- "Tis a truth most evident: One always recognizes one's own... no matter what form they
+may take."
+
+- "When it is time for one's progeny to leave the nest, it is the responsibility of an
+elder to let them fly free. Yet when your wings grow weary and the night grows dark, just
+know that you always have a place to which to return. Tis a refuge referred to by many a
+name in mortal writing: "Home," "nest," "haven"... Whatever its denomination may be, its
+essence remains quite unchanged. One speaks, of course, of a place not unlike one's own
+abode. One's disciples are free to come and go as they wish, yet the door remains forever
+open to those who wish to return... One rather hopes you count yourself among them."
+
+- "Tears are a necessary part of maturation. Sometimes, there is scarcely a better vehicle
+to wash away the toll of stress and misery. Now that the issue has been resolved, you
+should also take a moment to relax. Give yourself some time to rest, take a nap if you
+must. One will wake you in due time."
+
+- "Every individual must find their own path to enlightenment. So long as one retains a
+pureness of spirit, one's dietary proclivities are quite irrelevant."
+
+- "Not unlike the ocean tides, so too shall the movement of people ebb and flow. From
+turmoil to peace, enlightenment to aspiration — human society possesses limitless
+potential. In another thousand years, the scene we witness here may change in ways that
+are impossible for either of us to imagine."
+
+- "I’m a self-sufficient adult and abandonment no longer means the end of my life."
+
+- "It can be both aggravating and overwhelming when your parents repeatedly raise
+groundless fears, make false claims or subscribe to conspiracy theories. Perhaps you have
+realised by now that no amount of reassurance will ease their worries, but you may still
+be tempted to challenge their thinking or try to eradicate their fears with logic. Besides
+being futile, these efforts will likely backfire as your parents’ fears are real to them.
+In fact, these are the pillars of their existence. For many years, they have relied on a
+rigid and absolute way of feeling safe in the world. They hold onto their defensive system
+so tightly because if they don’t, their sense of self will crumble. Therefore, the more
+you try to challenge their views, the more defensiveness and pushback you will face from
+them. To have a productive interaction, try not to ridicule, tease or undermine their
+paranoia, or convince them that they may be wrong. Instead, allow them to have their say.
+If they try to force you to agree with them, it is within your rights to remain firm and
+honest. You do not have to share their beliefs, but you can validate their feelings, or
+remain non-reactive. On the other hand, bear in mind that when your parents are in a
+fearful place, their cognitive abilities will tend to regress, and they may not be capable
+of abstract thinking or logical reasoning. Therefore, when you speak, try to be clear,
+explicit and non-metaphorical, to reduce the chances of misinterpretation."
+
+- "It's amazing how a little tomorrow can make up for a whole lot of yesterday"
+
+- "To survive the lack of or inconsistent parenting input, we learned to withdraw our
+needs from others and even ourselves."
+
+- "We fear the thing we want the most.If our experience had taught us that being angry
+would lead to someone deserting us, or that our sadness was a burden, it makes sense that
+we default to hiding our feelings. We learn to shut off our emotions – first to others,
+then to ourselves, to prevent potential rejection or exile from the family and community"
+
+- "As our need for love has been frustrated, we construct a facade of pretending not to
+have any needs, and eventually, we start to believe we really don't need love. Then, we
+feel our lives to be flat and numb. To make up for our inner emptiness, we try to
+establish our values through 'doing' rather than 'being'. We might be high-achievers in
+the professional arenas or appear successful, independent, and self-contained, but deep
+down our battle with perfectionism, shame and loneliness keep us away from living life
+fully. Our loneliness is perpetuated as we continue to live with a facade, rather than
+letting others see our raw, unedited self."
+
+- "We feel that we are not a big enough container for our dreams, and we are so used to
+the disquiet longings in solitude that the idea of getting what we want terrifies us."
+
+- "Instead of being fixated on the wrong that had been done to me— the obsession to return
+to innocence— I began to see my heartbreaks as necessary. Without them, I would never have
+known true belonging, which is inclusive of exile, not in spite of it."
+
+- "It may seem paradoxical at first glance, but the answer to healing from defensive
+non-attachment is actually to affirm our ultimate autonomy and resilience. We push away
+good things in life because deep down, we worry that we would not survive losses and
+heartbreaks. If we know we are strong enough to go through grieve, disappointment and
+heartbreaks, then placing our trust in someone's hand would become much less threatening.
+To melt away our armour, we ought to feel safe and grounded within ourselves. We could
+allow ourselves to graduate from a child-like way of need, into a mature, grounded way of
+relating. As an adult, the basis of our courage to trust and to love does not lie in the
+hands of others but our strengths. It is not that we have the blind faith that others will
+not hurt, disappointment or betray us, but we trust that we could grieve, digest the
+disaster, and bounce back from it. Unlike the helpless child we once were, we are more
+resourceful, resilient and adaptable than we think we are. We do not have to fear
+dependency, for we are never truly dependent on another. We are both dependent and
+independent— and when the time comes, we can summon the strength that is needed to adapt.
+As children, we need from others utmost reliability, consistency and availability. As
+adults, we rely on our ability to self-contain and self-soothe. Unlike a child, we know
+that people can break promises, withhold their love, and change the way they act. But
+rather than counting on others to create a haven for us, we do that for ourselves. We no
+longer need our partner to guess our needs, fulfil our desires or stand up for us, but we
+can assert ourselves to the world. We may also become aware of our deprived needs as a
+child and the longings, and become our own best parents. We no longer live in fear of
+'being dropped' as a baby would be; we stand on our own two feet. Rather than being pulled
+by insatiable hunger, we simply appreciate the love, attention and respect offered by
+others when they are freely given. Then, our understanding of relationships becomes much
+more nuanced We do not need absolute safety and certainty, we can hold the paradoxes of
+trust and disappointment, separation and attachment, and find our ways in the flux of
+life."
+
+- "He is terribly afraid of dying because he hasn't yet lived."
+
+- "We can easily forgive a child who is afraid of the dark; the real tragedy of life is
+when men are afraid of the light."
+
+- "In Hyper-criticalness, you have designed your life to meet very high standards about
+most things. These might have been standards you have internalized from other sources like
+your parents or competitive schooling, but they now feel like 'yours'. You constantly feel
+like you must be doing something, producing something, and achieving something. You
+struggle to slow down or relax. In order to meet your own standards, you may sacrifice
+health, leisure, and relationships. You are perfectionistic and would notice the smallest
+thing that does not align with the bigger picture. You might also be preoccupied with
+speed and efficiency and feel anxious if you think you might be wasting time. You may
+impose a lot of rules, moral standards, and 'shoulds' on yourself and others. Even you
+know being critical of others is detrimental to your relationship, you cannot help
+yourself."
+
+- "Things ain't really been sweet for me, I lost that piece of me, I don't think that's
+peace for me, that might not be meant for me, my heart not something they need and your
+love not something I need, tough love when you come around me, I'm the bad guy if that's
+what they need"
+
+- "The suffering manifested in your life is you taking on a portion of the collective
+darkness, you do not deserve this suffering, this is the same as a firefighter going to
+fight the flames Its even harder if you dont remember you are a firefighter and you find
+yourself amidst the flames, if you can face the pain in your life with positivity, with
+light, you are helping this entire planet, every single human being is being helped by
+that, does this make sense?"
+
+- "You are the Universe in the way that a wave is to the ocean. You are of the ocean but a
+wave."
+
+- "We seldom see where the chapters of our lives begin and end until we are gifted the
+benediction of hindsight. So I’m having my adventures and moving further on the path so I
+can get that hindsight."
+
+- "Something I remind myself often is that rejection is simply a redirection."
+
+- "Dreams are like paper kites, with them do our hopes take flight, sailing high above the
+clouds, they yearn for something more profound,,yet try we may and try we might, a deeper
+truth waits in plain sight, though we hang our hopes in skies abound, many joys lie on the
+ground."
+
 - "Humans have nothing but unknowns. Even if they act like they know everything, that's
 surely a lie. That's why there's no way but to spend your whole life learning it. There's
 plenty of wisdom you won't find in a book, and I agree with your opinion, Lyle."
@@ -244,224 +494,4 @@ where I sit down on the living-room sofa with a coffee and check Twitter groggil
 I'll feel intensely uncomfortable for hours after, a similar feeling to knowing you've
 left the gas hob on and you're two hours from home, a kind of jumpy, extreme anxiety based
 on a fear that something truly terrible will ensue from your own foolishness."
-
-- "It takes enormous amounts of time and energy to switch focus as an autistic person.
-I've likened it in the past to turning circles for vehicles. Neurotypicals are able to
-switch tasks as easily as a car can make a U-turn. Autistic people, on the other hand,
-seem to make U-turns at the same pace as an ocean liner, requiring huge amounts of
-patience."
-
-- "An autistic person will have their issues around changing tasks and changing focus, but
-will eventually manage these on their own terms (with care and a peaceful setting,
-ideally). Interrupt that slow, gentle process with an external question, demand or event
-(a partner asking for something, a phone ringing, a knock at the door), however, and all
-hell breaks loose internally. That slow process, the cruise liner turning about – as
-painstaking as carefully untangling Christmas lights in early December – is suddenly
-broken. Our hyperfocus is disturbed and our mood follows a predictable path. The result is
-likely to be anger, irritation, despair or actual pain; the social relationship with the
-person making the demand is tarnished and possibly broken, and the cycle continues towards
-desperately trying to avoid that situation ever, ever happening again. PDA as we know it
-is born."
-
-- "I suppose this is a big part of the problem: we autistic people find little
-workarounds, tricks and bespoke solutions to our personal difficulties. Yet these are
-often ever-so-slightly odd, meaning that when neurotypical people spot us in the act they
-may assume that we're up to no good, in that peculiarly pessimistic way that they have."
-
-- "Beyond the need for a place to hide and recuperate, special interests enable us to
-focus our brains in a strangely pleasurable way. When the constant demand of looking at
-the 'big picture' in life gets too much and too boring, the ability to tweak our brain's
-lens to precisely focus our laser-like attention on something specific is a wonderful
-feeling, rather like it's allowing our brain to do what's natural for it, rather than
-expecting it to cope with the wide view, which can feel so … false."
-
-- "We approach the world like laser beams, I suppose, rather than wider car headlights or
-floodlights, with everything within the narrow focus of our attention drilled down into
-its very depths. And this"
-
-- "Autism is called an 'invisible disability', and sometimes I think that term might be
-more literal than we realise."
-
-- "Because of how poorly the school was accommodating my particular neurodivergence, I was
-forced to rebel and lie and dissemble, despite the fact that doing so went against every
-law-abiding, if clumsy, bone in my body. Why couldn't they allow me to play sports that
-weren't team games – like badminton or tennis – or ones that were more ordered and
-structured, like athletics? Why was it always football and rugby, for goodness's sake?"
-
-- "No one ever asked me if I really wanted to do it; but then, I didn't ask myself
-either."
-
-- "Authority and hierarchy are social constructs and, as I've been at pains to point out,
-autistic people have our own, different, culture that doesn't seem to include it."
-
-- "And so, like an archaeologist drawing conclusions about the past from the evidence of
-the present day, I can say with some certainty that I must have realised that I had to
-hide my stims at some point. Why else would they be so subtle, so 'inoffensive'?"
-
-- "Autistic people often seem to have a very deep and strong sense of what's right, what's
-reasonable and what's fair. This is not to say that we're unerring moral arbiters; after
-all, our sense of what's fair may be affected by any number of factors, such as privilege,
-experience, upbringing and so on, and therefore not match others' opinions and values.
-Nevertheless, the strength of feeling and conviction is likely to be a feature for many
-autistic people."
-
-- "In my experience, autistic people are good pattern spotters and often excellent at
-working out the rules of any given situation. This is what makes us so good at masking,
-after all. We figure out the rules, and then we play the game. The problem is that
-figuring out the rules doesn't prepare you for how to handle those who decide to cheat."
-
-- "I find that when my stress levels reach a particular point, my voice begins to falter
-as a tool, becoming less reliable and less focused, and I begin to lose my vocabulary and
-grammar. The spoken word is by no means guaranteed in the autistic community, and we don't
-deserve to be overlooked as a result of this."
-
-- "When the ears of the student are ready to hear, then cometh the lips to fill them with
-wisdom."
-
-- "The lips of Wisdom are closed, except to the ears of Understanding."
-
-- "Everything is Dual; everything has poles; everything has its pair of opposites; like
-and unlike are the same; opposites are identical in nature, but different in degree;
-extremes meet; all truths are but half-truths; all paradoxes may be reconciled."
-
-- "Everything flows, out and in; everything has its tides; all things rise and fall; the
-pendulum-swing manifests in everything; the measure of the swing to the right is the
-measure of the swing to the left; rhythm compensates"
-
-- "To the pure, all things are pure; to the base, all things are base."
-
-- "Nothing endures but Change."
-
-- "And still more presumptuous are those who attempt to ascribe to THE ALL the
-personality, qualities, properties, characteristics and attributes of themselves,
-ascribing to THE ALL the human emotions, feelings, and characteristics, even down to the
-pettiest qualities of mankind, such as jealousy, susceptibility to flattery and praise,
-desire for offerings and worship, and all the other survivals from the days of the
-childhood of the race. Such ideas are not worthy of grown men and women, and are rapidly
-being discarded."
-
-- "Nothing can rise higher than its source—nothing is evolved unless it is
-involved—nothing manifests in the effect, unless it is in the cause."
-
-- "But do not yield to the temptation which, as The Kybalion states, overcomes the
-half-wise and which causes them to be hypnotized by the apparent unreality of things, the
-consequence being that they wander about like dream-people dwelling in a world of dreams,
-ignoring the practical work and life of man, the end being that "they are broken against
-the rocks and torn asunder by the elements, by reason of their folly."
-
-- "Transmutation, not presumptuous denial, is the weapon of the Master."
-
-- "And, in the degree that Man realizes the existence of the Indwelling Spirit immanent
-within his being, so will he rise in the spiritual scale of life. This is what spiritual
-development means—the recognition, realization, and manifestation of the Spirit within
-us."
-
-- "I must create a system or be enslaved by another man's; I will not reason and compare:
-my business is to create."
-
-- "Disney had reinterpreted Christianity for mass culture."
-
-- "In numerous ways Disney struck what may be the very fundament of entertainment: the
-promise of a perfect world that conforms to our wishes."
-
-- "In an idealized world where wish fulfillment prevailed, Disney had consistently
-concretized the ideal and provided the pleasure of things made simple and pure the way one
-imagined they should be, or at least the way one imagined they should be from childhood."
-
-- "Whether in his movies or in his theme parks, Disney always promised a fantasy in which
-one could exercise the privileges of childhood—privileges he never abandoned in his own
-life. This will to power also explained why animation was his preferred medium. In
-animation one took the inanimate and brought it to life, or the illusion of life. In
-animation one could exercise the power of a god."
-
-- "Disney's best animations—Snow White and the Seven Dwarfs, Pinocchio, Bambi, and
-Dumbo—were archetypal expressions of this idea. In large measure, they were about the
-process of a child making his or her claim upon the world, about the process of overcoming
-obstacles to become whatever he or she wanted to be."
-
-- "Isn't it enough to see that a garden is beautiful without having to believe that there
-are fairies at the bottom of it too?"
-
-- "I mean, what's the use of our sitting up half the night arguing that there may or may
-not be a God if this machine only goes and gives you his bleeding phone number the next
-morning?"
-
-- "Perhaps I'm old and tired," he continued, "but I always think that the chances of
-finding out what really is going on are so absurdly remote that the only thing to do is to
-say hang the sense of it and just keep yourself occupied. Look at me: I design coastlines.
-I got an award for Norway."
-
-- "The History of every major Galactic Civilization tends to pass through three distinct
-and recognizable phases, those of Survival, Inquiry and Sophistication, otherwise known as
-the How, Why and Where phases. "For instance, the first phase is characterized by the
-question How can we eat? the second by the question Why do we eat? and the third by the
-question Where shall we have lunch?"
-
-- "if life is going to exist in a Universe of this size, then the one thing it cannot
-afford to have is a sense of proportion."
-
-- "The trouble with most forms of transport, he thought, is basically that not one of them
-is worth all the bother."
-
-- "Life was, in short, ridiculously easy and for a while at least they were able to cope
-with the problems of aimlessness and isolation by deciding to ignore them. When the
-craving for company became too great they would know where to find it, but for the moment
-they were happy to feel that the Golgafrinchans were hundreds of miles behind them."
-
-- "History is never altered you see, it just fits together like a jigsaw. Funny old thing,
-life, isn't it?"
-
-- "Sometimes, all it takes is taking a leap of faith and enjoying the adventure."
-
-- "Elden Ring's story will still have its special place in my heart. The whole story about
-this world is a story of gods, greater beings so above the little mortals they pretend to
-protect, but the end if the game is precisely about the opposite, those small beings each
-having their own wishes and desires, and deciding what the world should be instead of
-those eldritch entities. You can rule by yourself an imperfect world, after the greater
-will is forced to renounce his control over life or death to keep itself here. A scorned
-woman can choose her own god of undeath, to change the place of the tarnished as oppressed
-to rulers. The mad prisoner can take his revenge upon the world, by cursing all things so
-the greater being lose all control over the souls of this land. A silent prophet, with no
-name for himself, can repare the golden order by himself at the cost of his life, when a
-goddess like Marika was never capable of it. You and Ranni, the demigoddess spurning the
-control of the greater will, can together take the gods out of this land to travel far
-away, and let the Lands Between decide its own fate. Or you can make true the wish of the
-burning eyed believers, and scorch the whole world to return to the origin of life itself,
-the ultimate price to shatter the greater will invasion."
-
-- "The game make you think it's a story about gods, Marika's bloodline, heroes of
-forgotten time, but it's in fact a story of how those small nobodies spurned by grace that
-are the Tarnished will have the last words, at the end of a long journey."
-
-- "Not putting your heart and mind into sword practice makes one merely a slave of the
-sword"
-
-- "King Calm Sea once told me"—Fairy Meng looked at Meng Chuan and continued—"that
-cultivation requires one to follow one's intuition and follow what one likes the most
-before forging forward. You will go further and further. When you look back after a few
-decades, you would've far surpassed your former self. I'll share this saying with you as
-well. Follow your heart and proceed down what you like the most."
-
-- "Okay, stop getting downcast. If you can't figure things out at the moment, stop mulling
-over it and think about it again when your head is clearer. Like the old people say, even
-if the sky collapses, there's nothing to be afraid of. If worst comes to worst, may it
-be."
-
-- "To elevate yourself as a sheepdog amongst a herd of sheeps, you have to understand the
-rules set by the shepherd. Only if you can understand the rules, can you become a
-shepherd. If you can't do either, then your only fate is to toil all your life in a sheep
-pen. If the shepherd is cold, your wool will be shaved for him. This is called
-selflessness. If the shepherd is hungry, you shall lay on the butcher block and scream
-your devotion for his cause"
-
-- "Three millennia of recorded history, fraught with power, lust, and greed. Ninety
-thousand miles of meditation, only to return to gardening, wine and poetry"
-
-- "A man does not mature into pragmatism; he simply accepts reality more readily. "
-
-- "If love lives on sharing and chains you like fetters Then hate, more than anything,
-depends on freedom." Love and hate coiling and twisting together. Tell me, what can I do
-to save you? If love is spilt milk, Then who can protect whom? For whom will my heart
-wait? Tell me, what can I do to save you? If passion is a fatal poison, Then who can
-protect whom? How can I make this love immortal?"
 

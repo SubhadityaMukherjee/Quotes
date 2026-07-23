@@ -1,4 +1,188 @@
-<!-- Page 32 of 53  ·  quotes 3101–3200 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 32 of 54  ·  quotes 3101–3200 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "We have multiplied everything, but we are still individual selves. There"
+
+- "To enjoy life, we might have to stop thinking about what we will never be able
+to read and watch and say and do, and start to think of how to enjoy the world
+within our boundaries. To live on a human scale. To focus on the few things we
+can do, rather than the millions of things we can't. To not crave parallel
+lives. To find a smaller mathematics. To be a proud and singular one. An
+indivisible prime."
+
+- "The world's brain is a common but fitting metaphor. We are the nerve cells of
+the world's brain, transmitting ourselves to all the other nerve cells. Sending
+the overload back and forth. Overloaded neurons on a nervous planet. Ready to
+crash."
+
+- "And things are happening too quickly for us to take stock of it all. Certainly
+quicker than in Tolstoy's time. All this falling out. All this information. All
+this technological connection. The world's brain is a common but fitting
+metaphor. We are the nerve cells of the world's brain, transmitting ourselves
+to all the other nerve cells. Sending the overload back and forth. Overloaded
+neurons on a nervous planet. Ready to crash."
+
+- "The Internet is the first thing that humanity has built that humanity doesn't
+understand, the largest experiment in anarchy that we have ever had."
+
+- "LIFE OVERLOAD IS a feeling that partly stems from how contracted and
+concentrated the world seems to have become. The human world has sped up and
+has effectively shrunk, too."
+
+- "The trouble is that if we are plugged in to a vast nervous system, our
+happiness – and misery – is more collective than ever. The group's emotions
+become our own."
+
+- "The whole internet is one step removed from the physical world. The most
+powerful aspects of the internet are mirrors of the offline world, but
+replications of the external world aren't the actual external world. It is the
+real internet, but that's all it can be."
+
+- "Don't be steered towards being a caricature of yourself."
+
+- "Be a mystery, not a demographic. Be someone a computer could never quite know.
+Keep empathy alive. Break patterns. Resist robotic tendencies. Stay human."
+
+- "I used to think social media was harmless. I used to think I was on it because
+I enjoyed it. But then I was still on it even when I wasn't enjoying it. I
+remembered that feeling. It was the feeling you get at three in the morning in
+a bar after your friends have gone home."
+
+- "The internet age encourages choice and comparison, but don't do this to
+yourself. 'Comparison is the thief of joy,' said Theodore Roosevelt. You are
+you. The past is the past. The only way to make a better life is from inside
+the present. To focus on regret does nothing but turn that very present into
+another thing you will wish you did differently. Accept your own reality. Be
+human enough to make mistakes. Be human enough not to dread the future. Be
+human enough to be, well, enough."
+
+- "Accepting where you are in life makes it so much easier to be happy for other
+people without feeling terrible about yourself."
+
+- "We would do well to remember that this feeling we have these days – that each
+year is worse than the one previously – is partly just that: a feeling. We are
+increasingly plugged in to the ongoing travesties and horrors of world news and
+so the effect is depressing. It's a global sinking feeling. And the real worry
+is that all the increased fears we feel in themselves risk making the world
+worse."
+
+- "It is like someone who is ill with a compulsive disorder continually
+underlining their fears – staying indoors, or washing their hands 200 times a
+day. They are actually doing more to hurt themselves, in the name of protecting
+themselves. But this time the disorder isn't individual. It is social. It is
+global."
+
+- "Shock may be an unpleasant thing for an individual or a society to experience,
+but it can be a useful political tool."
+
+- "Naomi Klein coined the term the 'shock doctrine' to describe the cynical
+tactic of systematically using 'the public's disorientation following a
+collective shock' for corporate or political gain."
+
+- "We don't go into a state of shock when something big and bad happens,' she
+says. 'It has to be something big and bad that we do not yet understand."
+
+- "I remember once, during depression, staring up at a clear sky of stars. The
+wonder of the universe. At the bottom of the pit, I always had to force myself
+to find the beauty, the goodness, the love, however hard it was. It was hard to
+do. But I had to try. Change doesn't just happen by focusing on the place you
+want to escape. It happens by focusing on where you want to reach.
+Boost the good guys, don't just knock the bad guys. Find the hope that
+is already here and help it grow."
+
+- "The medium isn't just the message, it's the emotional intensity of that
+message."
+
+- "Realise the world is not as violent as it feels. Many writers on this
+subject – such as the famed cognitive psychologist Steven Pinker – have pointed
+out that, despite all its horrors, society is less violent than it used to be."
+
+- "Some people talk to animals. Not many listen though. That's the problem."
+
+- "Cynicism was a luxury for the non-suicidal."
+
+- "One thing mental illness taught me is that progress is a matter of acceptance.
+Only by accepting a situation can you change it. You have to learn not to be
+shocked by the shock. Not to be in a state of panic about the panic. To change
+what you can change and not get frustrated by what you can't."
+
+- "There is no panacea, or utopia, there is just love and kindness and trying,
+amid the chaos, to make things better where we can. And to keep our minds wide,
+wide open in a world that often wants to close them."
+
+- "sleep has traditionally been an enemy of consumerism. We can't shop in our
+sleep. We can't work or earn or post to Instagram in our sleep. Very few
+companies – beyond bed manufacturers and duvet sellers and makers of black-out
+blinds – have actually made money from our sleep."
+
+- "And now, at this later stage of capitalism, sleep has become seen not just as
+something that slows work down, but as an actual business rival. The chief
+executive of Netflix, Reed Hastings,"
+
+- "We live in 24-hour societies but not 24-hour bodies."
+
+- "EVEN WHEN THE world is not overtly terrifying us, the speed and pace and
+distraction of modern existence can be a kind of mental assault that is hard to
+identify. Sometimes life just seems too complicated, too dehumanising, and we
+lose sight of what matters."
+
+- "Accentuating the things that make you feel good, cutting back the things that
+make you feel bad, and letting people feel truly connected to the world around
+them."
+
+- "That is the biggest paradox, I think, about the modern world. We are all
+connected to each other but we often feel shut out."
+
+- "Because often identifying a problem, being mindful of it, becomes the solution
+itself."
+
+- "individualism has replaced collectivism and community. We have face-to-face
+conversations less and less, and more interactions with avatars."
+
+- "The more stimulation we have, the easier it is to feel bored."
+
+- "She thought the cure to misery was to 'decorate one's inner house so richly
+that one is content there, glad to welcome anyone who wants to come and stay,
+but happy all the same when one is inevitably alone'."
+
+- "1.Don't feel you always have to be there. In the not-so olden days of letters
+and landlines, contacting someone was slow and unreliable and an effort. In the
+age of WhatsApp and Messenger it's free and easy and instant. The flipside of
+this ease is that we are expected to be there. To pick up the phone. To get
+back to the text. To answer the email. To update our social media. But we can
+choose not to feel that obligation. We can sometimes just let them wait. We can
+risk our social media getting stale."
+
+- "There is no final checking of your phone. Think of all the times you checked
+your phone yesterday. Did you really need to so often?"
+
+- "Because there is no end to the uncertainty. There is no final checking of your
+phone."
+
+- "Illness has a lot to teach wellness."
+
+- "When it comes to our minds, awareness is very often the solution itself."
+
+- "This was an already familiar tactic of mine: trying to distract myself from
+one torment by finding another."
+
+- "In a world of a million distractions you are still left with only one mind."
+
+- "I SO WISH I could explain something to my younger self. I wish I could tell
+myself that it wasn't all me. I wish I could say that there were things I could
+do. Because my anxiety, my depression, wasn't just there. Illness, like injury,
+often has context."
+
+- "When I fall into a frantic or despairing state of mind, full of unwelcome
+thoughts that can't slow down, it is often the result of a series, a sequence
+of things. When I do too much, think too much, absorb too much, eat too badly,
+sleep too little, work too hard, get too frazzled by life, there it is. A
+repetitive strain injury of the mind."
+
+- "6.Don't grab life by the throat. 'Life should be touched, not strangled,"
+
+- "save lives. But, as C.S. Lewis once put it, 'The frequent attempt to conceal
+mental pain increases the burden: it is easier to say "My tooth is aching" than
+to say "My heart is broken"."
+
 - "this collision between one's image of oneself and what one actually is is
 always very painful and there are two things you can do about it, you can meet
 the collision head-on and try and become what you really are or you can retreat
@@ -246,193 +430,4 @@ beautiful world without being worried it will steal who we are."
 
 - "For after all,' wrote the poet Henry Wadsworth Longfellow, 'the best thing one
 can do when it is raining is let it rain."
-
-- "Maybe you are like me—an overachiever, a people pleaser, a perfecter—so you
-believe success has been defined by what you do, not who you are. You fill your
-days in pursuit of this illusion of success, just as I did, but deep down you
-feel there must be a better way. And you are so right."
-
-- "we falsely believe that we need to be busy, that we are supposed to fill our
-days."
-
-- "When we try to do too much, we overfill our plates with a multitude of tiny
-tasks and chores. We check a hundred things off our to-do lists, but when we
-slip into bed at night and our heads hit the pillow, we think, Why didn't I get
-more done?"
-
-- "That's why productivity may have failed you in the past—it's the struggle to
-make your life fit the system when, in fact, it should be the system that fits
-your life. You can customize your productivity so that your life and your
-priorities are at the center."
-
-- "But too many of us tie our self-worth to our busyness. Stress and overwhelm
-are badges of honor declaring our worthiness. We falsely believe that if we are
-not busy, we are failing. In the pursuit of finding balance, we try to do
-everything, but the more we do, the less we succeed."
-
-- "Creating an extraordinary life for ourselves requires moving away from
-balance, because when we lean into a priority—when we give time to the most
-important things—we have to take that time away from something else. We cannot
-give equal time to all the tasks on our lists."
-
-- "In chasing this illusion of balance, we end up creating a life that feels
-busy—not meaningful. We have to be willing to go out of balance. We need to be
-willing not to do everything. That's the real magic."
-
-- "Sometimes it's just a limiting belief, the idea that you simply cannot do
-something, that restricts you."
-
-- "Too often we hand over the reins, allowing others to imprison us with their
-own agendas and urgent fires that need putting out. We think we don't have
-control over how our day runs, but we do. We've simply forgotten that we have
-the ability to choose to spend time on our own priorities."
-
-- "It's not reality that makes us feel stuck; it's the lens we use to view the
-world. Maybe you are tired of trying because it feels like it just doesn't seem
-to matter. I've felt this way too. There are times when we all just want to
-crawl back in bed and throw the covers over our heads because we are so
-overwhelmed with the chaotic rush of our days. We can lose sight of who we are
-deep inside and what is most important to us. We are so busy struggling and
-fighting to keep our heads above the proverbial water that we seem to forget we
-can choose to tread water for a moment. We can allow ourselves a deep breath
-and time to scan the horizon—we can choose to swim to calmer waters. When we
-gift ourselves with the ability to step back and choose, something powerful
-begins to happen. We strengthen our internal locus of control3. In other words,
-we remember we have the ability to influence our own destiny instead of
-allowing the current to push us wherever it wants. People with a strong
-internal locus of control believe they have the freedom and ability to make
-their own choices and determine what happens to them. Because of that, they are
-significantly happier and more motivated. Psychologists have found that an
-- "internal locus of control has been linked with academic success . . . higher
-self-motivation and social maturity . . . lower incidences of stress and
-depression . . . and longer life span." We want to strengthen our internal
-locus of control and begin to understand that we have choices. BUT I REALLY
-DON'T HAVE ANY CONTROL If you're still saying, "That isn't true for me; I don't
-have any choices in my day." I hear you. You have a strict boss, an overbearing
-family member, an overly regimented schedule, a special-needs child, or
-something similar. Right? I met Rhonda when I was speaking at a workshop event"
-
-- "Are you choosing to spend your time being busy, or are you choosing to focus
-your day on what matters most?"
-
-- "When I look at this limited time I have, it reminds me that we all have
-seasons we live through. Seasons when our lives are hard and seasons where life
-comes easy, but in the scheme of 100 years, those seasons are a mere fraction
-of the time we have."
-
-- "Seasons pass, life ebbs and flows, but our priorities are what anchor us."
-
-- "Your happiness isn't defined by others, it is defined by you and the daily
-choices you make. Living a life centered on your priorities is making a choice
-to be happy, and it's okay to choose happy."
-
-- "am not afraid of storms, for I am learning how to sail my ship."
-
-- "When we live our life using our North Star, we take ownership of our legacy."
-
-- "If the mat was not straight, the Master would not sit."
-
-- "Still, its nature could be understood, and those who cared the most about it,
-and the life from which it was inseparable, understood it best"
-
-- "Life itself, when understood and utilized for what it is, is sweet"
-
-- "The essence of the principle of the Uncarved Block is that things in their
-original simplicity contain their own natural power, power that is easily
-spoiled and lost when that simplicity is changed."
-
-- "All that we are is a result of what we have thought."
-
-- "Nothing can prevent your picture from coming into concrete form except the
-same power which gave it birth—yourself."
-
-- "Whatever the mind … can conceive it can achieve."
-
-- "Inside relationships it's important to first understand who's coming into the
-relationship, and not just your partner. You need to understand yourself
-first."
-
-- "We've got a thousand different diagnoses and diseases out there. They're just
-the weak link. They're all the result of one thing: stress. If you put enough
-stress on the chain and you put enough stress on the system, then one of the
-links breaks."
-
-- "I always say that incurable means "curable from within."
-
-- "Man becomes what he thinks about."
-
-- "What you resist persists."
-
-- "So many times people say to me, "Well, James, I have to be informed." Maybe
-you have to be informed, but you don't have to be inundated."
-
-- "Energy flows where attention goes."
-
-- "The essence of this law is that you must think abundance; see abundance, feel
-abundance, believe abundance. Let no thought of limitation enter your mind."
-
-- "A person who sets his or her mind on the dark side of life, who lives over and
-over the misfortunes and disappointments of the past, prays for similar
-misfortunes and disappointments in the future. If you will see nothing but ill
-luck in the future, you are praying for such ill luck and will surely get it."
-
-- "Whether you think you can or think you can't, either way you are right."
-
-- "So your purpose is what you say it is. Your mission is the mission you give
-yourself. Your life will be what you create it as, and no one will stand in
-judgment of it, now or ever."
-
-- "I can never be all the people I want and live all the lives I want. I can
-never train myself in all the skills I want. And why do I want? I want to live
-and feel all the shades, tones and variations of mental and physical experience
-possible in my life."
-
-- "Master, I understand that the body is the basis. A good body is like uncut
-jade, it can be cut into many good things. And a weak body is like impure jade,
-even with excellent craftsmanship, nothing good can come from it."
-
-- "If a craftsman is to do a good job, he shall need good tools."
-
-- "Meteors — even though their lives are short, they radiate the brightest
-lights. They are dazzling. As for human, not even a Xiantian expert can live
-longer than several hundred years. Instead of living my whole life in
-mediocrity, why don't I learn from the meteors? In my limited life, I'll burn
-my passion of life and stimulate the blood in my veins, making my life radiate
-the most dazzling light. Only in this way will I die with no regret."
-
-- "Generally, people who are alone are independent and self-reliant. This is
-because if a person is usually alone they will naturally ponder. Pondering
-about life, pondering about their own values, the more they ponder, the more
-thoroughly they can understand things."
-
-- "Perhaps I've been wrong since the beginning. A person can't always live for
-other people. If I live like that, not only will I be tired, father will be put
-under great pressure as well"
-
-- "Alright, living in the world, why do I have to be afraid of something?
-Moreover, I've been living the wrong way. I mustn't live for other people. That
-kind of life has tired both me and father out. I must live for myself. Father,
-big brother, 2nd brother, I'll pursue my own life!"
-
-- "This is just like how watched flowers never bloom but an unattended willow
-grows."
-
-- "You have to be true to your feelings no matter what happens later. To survive
-in this world, you'll have to restrain yourself on many occasions, but if you
-restrain yourself too much, something that makes you feel regretful for the
-rest of your life can happen. Remember … sometimes, you have to be true to
-yourself even if you'll die from this."
-
-- "The weak let their ideals control their actions, but the strong control their
-ideals with their actions.' If not for this saying supporting my inner world
-like a column at the bottom of my heart, perhaps … I would have collapsed long
-ago due to being unable to stand acting against my will."
-
-- "The outside world, we are looking at only a small part that interests us."
-
-- "The world we see is not the entire universe but a limited one that the mind
-cares about. However, to our minds, that small world is the entire universe.
-Our reality is not the infinitely stretching cosmos but the small part we
-choose to focus on. Reality exists because our minds exist. Without the mind,
-there would be no universe."
 

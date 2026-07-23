@@ -1,4 +1,224 @@
-<!-- Page 49 of 53  ·  quotes 4801–4900 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 49 of 54  ·  quotes 4801–4900 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "It takes enormous amounts of time and energy to switch focus as an autistic person.
+I've likened it in the past to turning circles for vehicles. Neurotypicals are able to
+switch tasks as easily as a car can make a U-turn. Autistic people, on the other hand,
+seem to make U-turns at the same pace as an ocean liner, requiring huge amounts of
+patience."
+
+- "An autistic person will have their issues around changing tasks and changing focus, but
+will eventually manage these on their own terms (with care and a peaceful setting,
+ideally). Interrupt that slow, gentle process with an external question, demand or event
+(a partner asking for something, a phone ringing, a knock at the door), however, and all
+hell breaks loose internally. That slow process, the cruise liner turning about – as
+painstaking as carefully untangling Christmas lights in early December – is suddenly
+broken. Our hyperfocus is disturbed and our mood follows a predictable path. The result is
+likely to be anger, irritation, despair or actual pain; the social relationship with the
+person making the demand is tarnished and possibly broken, and the cycle continues towards
+desperately trying to avoid that situation ever, ever happening again. PDA as we know it
+is born."
+
+- "I suppose this is a big part of the problem: we autistic people find little
+workarounds, tricks and bespoke solutions to our personal difficulties. Yet these are
+often ever-so-slightly odd, meaning that when neurotypical people spot us in the act they
+may assume that we're up to no good, in that peculiarly pessimistic way that they have."
+
+- "Beyond the need for a place to hide and recuperate, special interests enable us to
+focus our brains in a strangely pleasurable way. When the constant demand of looking at
+the 'big picture' in life gets too much and too boring, the ability to tweak our brain's
+lens to precisely focus our laser-like attention on something specific is a wonderful
+feeling, rather like it's allowing our brain to do what's natural for it, rather than
+expecting it to cope with the wide view, which can feel so … false."
+
+- "We approach the world like laser beams, I suppose, rather than wider car headlights or
+floodlights, with everything within the narrow focus of our attention drilled down into
+its very depths. And this"
+
+- "Autism is called an 'invisible disability', and sometimes I think that term might be
+more literal than we realise."
+
+- "Because of how poorly the school was accommodating my particular neurodivergence, I was
+forced to rebel and lie and dissemble, despite the fact that doing so went against every
+law-abiding, if clumsy, bone in my body. Why couldn't they allow me to play sports that
+weren't team games – like badminton or tennis – or ones that were more ordered and
+structured, like athletics? Why was it always football and rugby, for goodness's sake?"
+
+- "No one ever asked me if I really wanted to do it; but then, I didn't ask myself
+either."
+
+- "Authority and hierarchy are social constructs and, as I've been at pains to point out,
+autistic people have our own, different, culture that doesn't seem to include it."
+
+- "And so, like an archaeologist drawing conclusions about the past from the evidence of
+the present day, I can say with some certainty that I must have realised that I had to
+hide my stims at some point. Why else would they be so subtle, so 'inoffensive'?"
+
+- "Autistic people often seem to have a very deep and strong sense of what's right, what's
+reasonable and what's fair. This is not to say that we're unerring moral arbiters; after
+all, our sense of what's fair may be affected by any number of factors, such as privilege,
+experience, upbringing and so on, and therefore not match others' opinions and values.
+Nevertheless, the strength of feeling and conviction is likely to be a feature for many
+autistic people."
+
+- "In my experience, autistic people are good pattern spotters and often excellent at
+working out the rules of any given situation. This is what makes us so good at masking,
+after all. We figure out the rules, and then we play the game. The problem is that
+figuring out the rules doesn't prepare you for how to handle those who decide to cheat."
+
+- "I find that when my stress levels reach a particular point, my voice begins to falter
+as a tool, becoming less reliable and less focused, and I begin to lose my vocabulary and
+grammar. The spoken word is by no means guaranteed in the autistic community, and we don't
+deserve to be overlooked as a result of this."
+
+- "When the ears of the student are ready to hear, then cometh the lips to fill them with
+wisdom."
+
+- "The lips of Wisdom are closed, except to the ears of Understanding."
+
+- "Everything is Dual; everything has poles; everything has its pair of opposites; like
+and unlike are the same; opposites are identical in nature, but different in degree;
+extremes meet; all truths are but half-truths; all paradoxes may be reconciled."
+
+- "Everything flows, out and in; everything has its tides; all things rise and fall; the
+pendulum-swing manifests in everything; the measure of the swing to the right is the
+measure of the swing to the left; rhythm compensates"
+
+- "To the pure, all things are pure; to the base, all things are base."
+
+- "Nothing endures but Change."
+
+- "And still more presumptuous are those who attempt to ascribe to THE ALL the
+personality, qualities, properties, characteristics and attributes of themselves,
+ascribing to THE ALL the human emotions, feelings, and characteristics, even down to the
+pettiest qualities of mankind, such as jealousy, susceptibility to flattery and praise,
+desire for offerings and worship, and all the other survivals from the days of the
+childhood of the race. Such ideas are not worthy of grown men and women, and are rapidly
+being discarded."
+
+- "Nothing can rise higher than its source—nothing is evolved unless it is
+involved—nothing manifests in the effect, unless it is in the cause."
+
+- "But do not yield to the temptation which, as The Kybalion states, overcomes the
+half-wise and which causes them to be hypnotized by the apparent unreality of things, the
+consequence being that they wander about like dream-people dwelling in a world of dreams,
+ignoring the practical work and life of man, the end being that "they are broken against
+the rocks and torn asunder by the elements, by reason of their folly."
+
+- "Transmutation, not presumptuous denial, is the weapon of the Master."
+
+- "And, in the degree that Man realizes the existence of the Indwelling Spirit immanent
+within his being, so will he rise in the spiritual scale of life. This is what spiritual
+development means—the recognition, realization, and manifestation of the Spirit within
+us."
+
+- "I must create a system or be enslaved by another man's; I will not reason and compare:
+my business is to create."
+
+- "Disney had reinterpreted Christianity for mass culture."
+
+- "In numerous ways Disney struck what may be the very fundament of entertainment: the
+promise of a perfect world that conforms to our wishes."
+
+- "In an idealized world where wish fulfillment prevailed, Disney had consistently
+concretized the ideal and provided the pleasure of things made simple and pure the way one
+imagined they should be, or at least the way one imagined they should be from childhood."
+
+- "Whether in his movies or in his theme parks, Disney always promised a fantasy in which
+one could exercise the privileges of childhood—privileges he never abandoned in his own
+life. This will to power also explained why animation was his preferred medium. In
+animation one took the inanimate and brought it to life, or the illusion of life. In
+animation one could exercise the power of a god."
+
+- "Disney's best animations—Snow White and the Seven Dwarfs, Pinocchio, Bambi, and
+Dumbo—were archetypal expressions of this idea. In large measure, they were about the
+process of a child making his or her claim upon the world, about the process of overcoming
+obstacles to become whatever he or she wanted to be."
+
+- "Isn't it enough to see that a garden is beautiful without having to believe that there
+are fairies at the bottom of it too?"
+
+- "I mean, what's the use of our sitting up half the night arguing that there may or may
+not be a God if this machine only goes and gives you his bleeding phone number the next
+morning?"
+
+- "Perhaps I'm old and tired," he continued, "but I always think that the chances of
+finding out what really is going on are so absurdly remote that the only thing to do is to
+say hang the sense of it and just keep yourself occupied. Look at me: I design coastlines.
+I got an award for Norway."
+
+- "The History of every major Galactic Civilization tends to pass through three distinct
+and recognizable phases, those of Survival, Inquiry and Sophistication, otherwise known as
+the How, Why and Where phases. "For instance, the first phase is characterized by the
+question How can we eat? the second by the question Why do we eat? and the third by the
+question Where shall we have lunch?"
+
+- "if life is going to exist in a Universe of this size, then the one thing it cannot
+afford to have is a sense of proportion."
+
+- "The trouble with most forms of transport, he thought, is basically that not one of them
+is worth all the bother."
+
+- "Life was, in short, ridiculously easy and for a while at least they were able to cope
+with the problems of aimlessness and isolation by deciding to ignore them. When the
+craving for company became too great they would know where to find it, but for the moment
+they were happy to feel that the Golgafrinchans were hundreds of miles behind them."
+
+- "History is never altered you see, it just fits together like a jigsaw. Funny old thing,
+life, isn't it?"
+
+- "Sometimes, all it takes is taking a leap of faith and enjoying the adventure."
+
+- "Elden Ring's story will still have its special place in my heart. The whole story about
+this world is a story of gods, greater beings so above the little mortals they pretend to
+protect, but the end if the game is precisely about the opposite, those small beings each
+having their own wishes and desires, and deciding what the world should be instead of
+those eldritch entities. You can rule by yourself an imperfect world, after the greater
+will is forced to renounce his control over life or death to keep itself here. A scorned
+woman can choose her own god of undeath, to change the place of the tarnished as oppressed
+to rulers. The mad prisoner can take his revenge upon the world, by cursing all things so
+the greater being lose all control over the souls of this land. A silent prophet, with no
+name for himself, can repare the golden order by himself at the cost of his life, when a
+goddess like Marika was never capable of it. You and Ranni, the demigoddess spurning the
+control of the greater will, can together take the gods out of this land to travel far
+away, and let the Lands Between decide its own fate. Or you can make true the wish of the
+burning eyed believers, and scorch the whole world to return to the origin of life itself,
+the ultimate price to shatter the greater will invasion."
+
+- "The game make you think it's a story about gods, Marika's bloodline, heroes of
+forgotten time, but it's in fact a story of how those small nobodies spurned by grace that
+are the Tarnished will have the last words, at the end of a long journey."
+
+- "Not putting your heart and mind into sword practice makes one merely a slave of the
+sword"
+
+- "King Calm Sea once told me"—Fairy Meng looked at Meng Chuan and continued—"that
+cultivation requires one to follow one's intuition and follow what one likes the most
+before forging forward. You will go further and further. When you look back after a few
+decades, you would've far surpassed your former self. I'll share this saying with you as
+well. Follow your heart and proceed down what you like the most."
+
+- "Okay, stop getting downcast. If you can't figure things out at the moment, stop mulling
+over it and think about it again when your head is clearer. Like the old people say, even
+if the sky collapses, there's nothing to be afraid of. If worst comes to worst, may it
+be."
+
+- "To elevate yourself as a sheepdog amongst a herd of sheeps, you have to understand the
+rules set by the shepherd. Only if you can understand the rules, can you become a
+shepherd. If you can't do either, then your only fate is to toil all your life in a sheep
+pen. If the shepherd is cold, your wool will be shaved for him. This is called
+selflessness. If the shepherd is hungry, you shall lay on the butcher block and scream
+your devotion for his cause"
+
+- "Three millennia of recorded history, fraught with power, lust, and greed. Ninety
+thousand miles of meditation, only to return to gardening, wine and poetry"
+
+- "A man does not mature into pragmatism; he simply accepts reality more readily. "
+
+- "If love lives on sharing and chains you like fetters Then hate, more than anything,
+depends on freedom." Love and hate coiling and twisting together. Tell me, what can I do
+to save you? If love is spilt milk, Then who can protect whom? For whom will my heart
+wait? Tell me, what can I do to save you? If passion is a fatal poison, Then who can
+protect whom? How can I make this love immortal?"
+
 - "The maturity of a man ought not to come from his own pragmatism, but rather from his
 ability to accept this trait shown in others. To become gentle, gentle toward others, to
 let go of grudges and to look at the world with a pair of sympathetic eyes and a
@@ -194,180 +414,4 @@ as time passes. However, in truth, it is buried deep within your bones. Who can 
 living and waking up is dying, or the dream is dying and waking up is living… The moments
 of closing and opening the eyes are the moments of life and death, or perhap it is when
 one can’t separate the real and fake lives…
-
-- "What is karma? I seek a wooden house, but this mountain has no wood, so I plant this
-lone tree. During sunrise, I harvest the branches. During midday, I harvest the wood. And
-during sunset, I harvest the roots… What is karma. Planting the tree is karmic cause and
-harvesting the wood is karmic effect… The day the house took form, it also became a karmic
-cycle…"
-
-- "As years pass, people will see the willow leaves cover the city. They don’t understand
-that the willow leaves come to find the person they are connected to. Each willow leaf
-represents the entire life of a person…
-
-- "Karma, it can’t be cut because it is void… Karma is karma. Fate gathers to be scattered
-in the void."
-
-- "Memories are like water in your palm. Although the water will flow away, the palm will
-remember the temperature of the water. Then, when the palm holds the water again, the palm
-will remember, and the water will also remember the warmth of the palm.
-
-- "I cover the world in fire only so you won’t have a reason to be cold.
-
-- "If life and death were a rope, countless lives and deaths would connect together to
-form circles. These countless circles would form a net, and that net would be karma. This
-large karma net would be used to catch oneself in the river of reincarnation. The river of
-reincarnation contains true and false, and only with a pair of eyes that can see through
-true and false can one throw the net to fish oneself out.
-
-- "A reincarnation is a lifetime, and one has many ties in life. How could it be all cut
-so easily? This is the power of reincarnation… It can make one unable to free themselves
-or not want to free themselves." There was confusion in Wang Lin’s eyes, and he seemed to
-gain more enlightenment in this confusion.
-
-- "oppressive societies create the monsters they ultimately come to hate and fear.
-
-- "Legs are the wind, the land, and the root of all strength"
-
-- "Whilst the monkey cried incessantly from one side of a river to another, the dreadfully
-cold wind froze his crotch!
-
-- "How powerful is a practitioner isn’t solely based on the power of his moves, it’s more
-important that the spirit is strong! If your spirit loses to a pile of broken rocks, no
-matter how powerful you become you will still be a total failure!"
-
-- "It’s easy to destroy the god in the temple but difficult to destroy the god in your
-heart.
-
-- "As what Buddhism goes by, if there’s a Buddha in you heart, it’s hard for you to become
-Buddha.
-
-- "Eight hundred old men idle at home, filled with ambitions that never cease; rising to
-the heaven after death, clouds still float and water still flows!
-
-- "The sentence that there’s no end to learning is wrong and it should be there’s no end
-to creating. One can’t achieve only by learning, learning all one’s life. It is creation
-that has no limit. You’re still young now and need to absorb the stuff that others have
-created. When your knowledge has accumulated to a certain extent, you must try to create.
-If you always learn, you will always be a student but once you create a move, you will be
-master."
-
-- "I cant keep saying im in a perpetual state of learning to perfect something. Youll
-never perfect something, you just have to put yourself out there and face trial by fire.
-
-- "When life is weak and one’s direction is lost, coming and going like a lunatic.
-
-- "To the people of Disabled Elderly Village, the disability of the body was not a
-disability. Their true disabilities lay in their hearts.
-
-- "The true disability is when both the body and the heart are disabled.
-
-- "One’s life was nothing more than a cultivation path, and it was easy to be led astray
-by an extreme way of thinking. Anyone who didn’t have a mature reflection and unmovable
-thoughts would easily be led astray by their own heart.
-
-- "the people of the village had said that one can lose a battle, but not their bearing.
-
-- "Ordinary people can only see the danger, but wise people can see the opportunity that
-lies with the danger. However, only those with the abilities can be able to grasp this
-opportunity!
-
-- "One should not think about boasting, for after the crisis comes hope. When looking at
-the sky and sea, a journey taken seems but a smoke!
-
-- "Only by breaking the despair in one’s heart can one blaze with stronger hope and
-fighting spirit.
-
-- "Heaven never bars one’s way; it’s mostly humans themselves barring their own way by
-giving up hope! I never give up so I can make my way out alive!"
-
-- "How can a man not have any ambition in this world, if one doesn’t have any, what’s the
-difference between them and a dried fish?"
-
-- "A true leader can change a bad thing into something good, to twist everyone’s hearts
-together to form a rope.
-
-- "You only notice the stain in your life but have forgotten the saplings you have left
-behind. They have already grown into towering trees and lush green forest. Your Highness,
-look forward."
-
-- "Big sister, this is the difficult part in breaking the god in one’s heart and breaking
-the god in the temple. The more terrifying the god is, the more fearful and respectful,
-the foolish commoners would be, which makes it easier for the gods to receive worships.
-Imperial Preceptor is trying to reform the popular custom to break the god in the people’s
-hearts. No matter divine arts practitioner or god, they must work for the people and serve
-the people."
-
-- "After all, to the well-organized mind, death is but the next great adventure. You know,
-the Stone was really not such a wonderful thing. As much money and life as you could want!
-The two things most human beings would choose above all — the trouble is, humans do have a
-knack of choosing precisely those things that are worst for them."
-
-- "You-Know-Who —" "Call him Voldemort, Harry. Always use the proper name for things. Fear
-of a name increases fear of the thing itself."
-
-- "You think the dead we have loved ever truly leave us? You think that we don’t recall
-them more clearly than ever in times of great trouble?"
-
-- "Dumbledore was the one who stuck up for me after Dad went. Got me the gamekeeper
-job . . . trusts people, he does. Gives ’em second chances . . . tha’s what sets him apar’
-from other Heads, see. He’ll accept anyone at Hogwarts, s’long as they’ve got the talent.
-Knows people can turn out okay even if their families weren’ . . . well . . . all tha’
-respectable. But some don’ understand that. There’s some who’d always hold it against
-yeh . . . there’s some who’d even pretend they just had big bones rather than stand up an’
-say — I am what I am, an’ I’m not ashamed. ‘Never be ashamed,’ my ol’ dad used ter say,
-‘there’s some who’ll hold it against you, but they’re not worth botherin’ with.’"
-
-- "Understanding is the first step to acceptance, and only with acceptance can there be
-recovery."
-
-- "Numbing the pain for a while will make it worse when you finally feel"
-
-- "If I thought I could help you," Dumbledore said gently, “by putting you into an
-enchanted sleep and allowing you to postpone the moment when you would have to think about
-what has happened tonight, I would do it. But I know better. Numbing the pain for a while
-will make it worse when you finally feel it."
-
-- "As Hagrid had said, what would come, would come . . . and he would have to meet it when
-it did."
-
-- "Trivial hurts, tiny human accidents," said Firenze, as his hooves thudded over the
-mossy floor. "These are of no more significance than the scurryings of ants to the wide
-universe, and are unaffected by planetary movements."
-
-- "Youth cannot know how age thinks and feels. But old men are guilty if they forget what
-it was to be young . . ."
-
-- "He has never wanted to occupy the throne himself; he prefers the backseat — more room
-to spread out, you see."
-
-- "people find it far easier to forgive others for being wrong than being right,"
-
-- "Age is foolish and forgetful when it underestimates youth. . . ."
-
-- "Death is but crossing the world, as friends do the seas; they live in one another
-still. For they must needs be present, that love and live in that which is omnipresent. In
-this divine glass, they see face to face; and their converse is free, as well as pure.
-This is the comfort of friends, that though they may be said to die, yet their friendship
-and society are, in the best sense, ever present, because immortal."
-
-- "The worst part of holding the memories is not the pain. It’s the loneliness of it.
-Memories need to be shared."
-
-- "After all, no matter how great the treasures are, our lives are more important. But if
-we work together, we can cover each other’s weaknesses. We might even be able to obtain
-serendipities.
-
-- "What I seek isn’t a Dao, but to have my mind acting as my aspiration, to have my spirit
-as my realm, and when I open my eyes, I will draw out my heart’s desires… This is the
-reason why I can draw, but you can only copy."
-
-- "If all the people in the world are drunk and you are the only one sober, then it means
-that all the people in the world are awake, and you are asleep…"
-
-- "A person’s emotions and desires were one of the sources that affected a person’s life.
-They would make a person be unable to clear his mind and cause disorder within him. When
-that disorder appeared and the person did not deal with it properly, then it would be
-difficult for him to continue with his practice. If his heart was no longer calm, then it
-was impossible for him to immerse his mind in anything else."
 

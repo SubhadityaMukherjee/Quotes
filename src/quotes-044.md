@@ -1,4 +1,213 @@
-<!-- Page 44 of 53  ·  quotes 4301–4400 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 44 of 54  ·  quotes 4301–4400 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "We're made of energy. The nature of energy is to be shared, to spread, to connect one
+thing to another. Sharing space with other people means that our energy influences theirs,
+and theirs influences ours. It's physics. And psychology. And unavoidable. And amazing."
+
+- "people tend to take better care of themselves when they're in a high-quality
+relationship. In other words, our "self-care" is facilitated by the ways we care for and
+are cared for by someone else."
+
+- "Rage gives you strength and energy and the urge to fight, and sharing that energy in
+the Bubble changes it from something potentially dangerous to something safe and
+potentially transformative."
+
+- "The pleasure of synchronized movement is built into our biology, and it's a powerful
+tool to access your greatest well-being."
+
+- "When it's inconvenient, it's probably doing the most for you."
+
+- "What makes you stronger is whatever happens to you after you survive the thing that
+didn't kill you. What makes you stronger is rest."
+
+- "You don't have to set yourself on fire to keep other people warm."
+
+- "Caring for myself is not self-indulgence, it is self-preservation, and that is an act
+of political warfare."
+
+- "Mental rest is not idleness; it is the time necessary for your brain to process the
+world."
+
+- "Boredom is the discomfort you experience when your brain is in active-attention mode,
+but can't latch on to anything to attend"
+
+- "Everybody knows a muscle that isn't used will atrophy. We all know a muscle that is
+worked constantly, without rest, will grow fatigued and eventually fail in exhaustion. And
+we all know a muscle that gets worked and rested and worked and rested will grow
+stronger."
+
+- "Our whole body, including our brain, is working hard as we sleep, to accomplish
+life-preserving tasks that can be best achieved when we're not around to interfere."
+
+- "If you've dealt with the stressors but haven't dealt with the stress itself, your brain
+won't let you rest. It will constantly scan for the lion that's about to come after you,
+so when you try to go to sleep, your brain won't let you fall asleep, or it will wake you
+up over and over, checking for that lion. Complete the cycle, so your brain can transition
+into rest."
+
+- "I don't want a doctor who's been awake for twenty hours; I don't want a lawyer who
+bills more than twelve hours a day—I know how sloppy work gets when somebody is
+fatigued—and you shouldn't want an engineer who isn't sleeping seven hours a night. Your
+work is crap if your brain isn't rested."
+
+- "Hi, rage. I know our family raised us to believe we didn't matter unless we were
+perfect, and perfect means we never stop working, and it's right to be angry that we
+didn't get the warm, unconditional acceptance every child is born deserving. Let's treat
+ourselves as we wanted to be treated, granting ourselves permission to be human."
+
+- "Mine is more like a teenage version: the smart, quiet, yet sad and downtrodden girl who
+always sat in the back of class and no one talked to….When something goes wrong, I can
+hear her 'told you so' voice in the back of my mind."
+
+- "This uncomfortable, fragile part of ourselves serves a very important function. She
+grew inside us, to manage the chasm between who we are and who Human Giver Syndrome
+expects us to be. She is the part of us that has the impossible, tormenting task of
+bridging the unbridgeable chasm between us and this "expected-us." It's a form of torture,
+like Sisyphus rolling a rock up a hill only to have it roll back down each time. She's
+forever oscillating from rage to helpless despair."
+
+- "Listen to her stories—never forgetting she's a madwoman. Remind her that you are the
+grown-up, the homeowner, or the teacher, and she can trust you to maintain the attic so
+that she always has a safe place to stay. Thank her for the hard work she has done to help
+you survive."
+
+- "Guilt is, 'I made a mistake.' Shame is, 'I am a mistake.' " With guilt, as opposed to
+shame, there is at least a pretense that one day you might deserve to participate fully in
+the human experience. With shame, your core self is judged."
+
+- "Are we really working toward our goals only because we'll torture ourselves if we stop,
+so that as soon as we put down the whip we'll sink into eternal apathy? Of course not. In
+fact, it's the opposite: We only whip ourselves because our goals matter so much that
+we're willing to suffer this self-inflicted pain if that's what it takes. And we believe
+that because we've always done it that way, it must be why we've accomplished as much as
+we have."
+
+- "When people with depression try to be self-reassuring, their brains respond with threat
+activation.12 In fact, fear of compassion for self is linked to fear of compassion from
+others. That means that somewhere inside them, they believe that if they're isolated,
+that's good; isolation protects others from their real, core badness."
+
+- "And she realized "Perfect Julie" was just a defense she had constructed, to protect her
+real madwoman—who wasn't a woman at all, but a little girl. This little girl was sensitive
+and afraid of rejection. She loved books and theater. She put on "Perfect Julie" the way a
+little girl might put on her mother's shoes and lipstick, playing pretend. She wore
+"adulting" as a costume. It had been a game at first, like playing house, back when she
+was Diana's age. But as Julie had gotten older, the Perfect Julie costume became necessary
+to disguise the fact that she was, underneath it all, just a girl who didn't want to make
+anyone mad."
+
+- "Beating ourselves up results in pain, obviously, so at the same time that we're beating
+ourselves up, we're looking for ways to manage that pain, to make it bearable."
+
+- "Whichever metaphor you prefer, self-compassion isn't always a comfortable or peaceful
+experience, but it does help us grow mightier."
+
+- "lot of us have a quiet little voice worrying that we'll get up in that corporate office
+and have no idea what we're actually doing. As a person with a hobby, you're not ready for
+all of that now, and it's difficult to imagine what it will feel like and how ready you
+could be after you go through the process of growing. The difficulty of imagining
+ourselves with the knowledge, expertise, and strengths we will gain in the future can stop
+us entirely from moving toward that future."
+
+- "It's really strange when we're doing our best, and our best falls short of what the
+world expects from us. When we can turn toward that strangeness with observational
+distance, then we are best enabled to be the change we want to see in the world."
+
+- "Being grateful for good things doesn't erase the difficult things"
+
+- "The cure for burnout is not "self-care"; it is all of us caring for one another. So
+we'll say it one more time: Trust your body. Be kind to yourself. You are enough, just as
+you are right now. Your joy matters. Please tell everyone you know."
+
+- "Humans are not built to do big things alone; we are built to do them together."
+
+- "even if I felt like a social pariah in my classes, at least I would have a better
+vocabulary than these philistines"
+
+- "I realized that there was some prestige in being smart, or at least appearing smart.
+Sounding smart was not the same social Teflon as being good-looking or athletic or funny,
+but hell, if someone could give me some props for being good at school, I would take nerd
+props over no props at all."
+
+- "They belonged in a way that I never could, and their regard for me was sweet and sour.
+How Asian."
+
+- "But in the course of reading great books, something happened. My reading molded me, the
+tool hammering its hand into shape. By some miracle—and by miracle, I mean great
+teachers—I pushed past the shallowness and stupidity of my own motivations. I fell in love
+with the actual literature and the actual ideas of great literature."
+
+- "The medium has no depth, but the content does."
+
+- "If you catch me in my off-guard moments, I'll tell you that at some points in my life,
+I wanted to be white. It's not a proud feeling, but it's not a feeling that comes from the
+shame of being brown. It's a tired feeling. Tired of the crushing racism. Tired of not
+belonging. It's the exhaustion from fighting for your right to exist."
+
+- "Faith. Knowledge. Doubt. They weaved in and out of our lives with a baroque intricacy,
+a background fugue to our stumblings on the stage."
+
+- "What do you have control over? And what is beyond your control? As Camus's protagonist,
+Dr. Rieux offers an answer: when the world is coming apart, you do your job."
+
+- "That was the delusion. We weren't like everybody else. I now had the menace of knowing,
+and it infected everything I did. I was reminded of it constantly in ways large and small:
+my parents' wobbly accents as my English became arrow-straight, the long and confusing
+searches in the grocery stores for simple items, the stares from strangers at the mall.
+These reminders that my family was not a normal American family—that we didn't look like
+the rest of our town, that we were from somewhere else—wove into my very fabric a need to
+belong, a need that was a glittering and slippery yarn. I would never be able to untangle
+it from who I was and who I wanted to be, and it seemed that if I tugged on this thread,
+everything would unravel and leave me exposed."
+
+- "Bà Ngoại's ire wasn't the anger of personal damages but the anger of being shamed, a
+singular dishonor that she and my parents bore heavily. If our elders felt that we kids
+had done something to embarrass them or to cause them to lose face, our punishment was
+administered as if the entire town were watching and judging them as parents. Puritanical
+in its purity and unflinching in its deliverance. The severity of our punishment was
+commensurate to their own perception of their parenting."
+
+- "Bà Ngoại, my grandmother. Gentle one moment, violent in the next. Violence was
+sometimes kindness. Sometimes it was love. Sometimes it was rage. But it was everywhere,
+always."
+
+- "But if I allowed myself to be harmed by words, I was showing them that I belonged at
+least by virtue of understanding their language. And all I wanted was to belong."
+
+- "Kids covet things. They see something that other kids have, and they want that thing.
+They see a cool T-shirt with Darth Vader on it, and they want that shirt, too. Soon they
+want the house, the hair, the skin color."
+
+- "As an adult, I can explain and even understand where his anger came from (PTSD as a
+refugee, his own abuse as a child, the cycle of abuse that can perpetuate itself in a
+culture that equated obedient children with great parenting). As a second grader, I knew
+this violence as my only reality. If I spilled something, disobeyed, did something too
+quickly or too slowly."
+
+- "The wish for different parents fuels the archetypal fairy tales about evil stepmothers
+and children left in the woods. These fairy tales pivot around the wish that our parents,
+irascible and imperfect, aren't even our real parents, that a fairy godmother will reveal
+to us our true royal bloodline or magical lineage. Whether you're Harry Potter or Luke
+Skywalker or Cinderella, the fantasy is that the adults who are raising you aren't even
+your real parents, that your real parents are kinder and magical."
+
+- "My past was worse than my present, and if my present indicated my future, I could live
+with that."
+
+- "As an adult, I've been able to understand that my father was not as trapped by his past
+as I thought he was. He was often violent and angry, but now I can look back and see that
+he tried to do fun things from time to time, things that didn't fit into the narrow,
+cartoonish image that I formed of him."
+
+- "But even if the past is unchangeable, maybe our perspective of the past can change. And
+maybe the way we see past events can change, and if that can change, maybe the past event
+itself does change—not in action or outcome but in purpose and intent."
+
+- "How could I explain to Lou that we were symbols? That some people would never be able
+to see us as just people? That we were symbols of a painful and confusing war? Symbols of
+the refugees they saw on TV? Symbols of what they were afraid of? Symbols of the people
+who had shot at them and killed their friends, brothers, and sons? Symbols of whatever
+they wanted to see?"
+
 - "I did learn a lesson that night. In the void of their departure, I learned to appear
 greater than I was. My brother needed me to be more than his nine-year-old brother. I
 learned that even if I didn't have a clue about driving or having a job or being a parent,
@@ -257,198 +466,4 @@ better off than them. And the world is full of so much suffering that it's the e
 thing to find people who are having a harder time than you are. But once you do, you then
 insist on taking the extra step of berating yourself: How could I have been so blind to
 that person's hardships until now?"
-
-- "Psychiatrist: I feel like you're not very interested in yourself. Me: Even when I keep
-a diary of my feelings? Psychiatrist: Is that not more of a record of yourself in the
-third person?"
-
-- "When you're having a hard time, it's natural to feel like you're having the hardest
-time in the world. And it's not selfish to feel that way. Just because certain conditions
-in your life are relatively better, it doesn't mean you're better off in general"
-
-- "It's not the pills that make people addicted to them."
-
-- "It's just your opinion. It's not like there's any right or wrong to it. Of course,
-others may have their own expectations, or you may feel pressured to sound impressive in
-your critiques because of your studies and your job. But the moment you think to yourself,
-Well, this is the way I am, and what can you do about it, you'll feel much freer. Me: Oh.
-Just the thought of"
-
-- "Forgetfulness can be liberating, you know."
-
-- "You put a lot of stock in what other people think. It's because your satisfaction with
-yourself is so low. But your life is your life, your body is your body – and you have
-responsibility over it. Right now, you don't process the input that comes to you through a
-mechanism of rationality or mediation, you go straight to the extreme. Self-surveillance
-isn't necessarily a bad thing, but there is so much you can do with the input, such as
-rationalising or finding a different way to think about things – but you only do one thing
-with it. There can be so many reasons for something, but you're so focused on the result
-of it that you don't see the reasons. You keep focusing on, I'm sad, I want to cry, I'm
-angry, which only amplifies these emotions."
-
-- "I think you need to spatially separate your work and your rest. If you were stressed at
-work, you ought to be relaxing when you're home,"
-
-- "Your mood is extremely important. It determines how you interpret the random events of
-life."
-
-- "It's just a hobby after all. You mustn't let your hobby become stressful. But I hope if
-you don't do it isn't out of fear."
-
-- "Usually before a dream becomes reality, we tend to think we'll wish for nothing else if
-only the dream is realised. Imagine how you'd feel if you always remembered that your
-dream has already been fulfilled. Everything that comes after would be like a lovely
-bonus. When you feel envious of something, try to imagine how you would look to your
-twenty-year-old self."
-
-- "But the you of the present is looking at your life and past as if you're a failure.
-When in truth, from the perspective of a younger you, you're the very picture of success."
-
-- "when my face looked like a bleak black-and-white film still in the mirror – could that
-girl have imagined she would become me one day?"
-
-- "I've worked hard to get here. And now I make a living doing what I enjoy. I've no
-anxieties about whether this is the right path for me. All I want is to get better at it.
-That's enough for me – why did I torture myself by comparing myself to someone else? If
-twenty-year-old me met me today, she would cry with joy. And that's enough for me."
-
-- "more you sacrifice, the more you'll begin to expect a payback."
-
-- "You keep obsessively holding yourself to these idealised standards, forcing yourself to
-fit them. It's another way, among many, for you to keep punishing yourself."
-
-- "You try to hide your obsession because you are aware of it, I mean."
-
-- "Your self-esteem determines how you feel about the sincerity of others."
-
-- "You have sympathy for social minorities. Perhaps that comes from seeing yourself as
-disadvantaged?"
-
-- "We are so bad at mourning in our society. Maybe it's a failure of respect."
-
-- "I think it's good to experience complete solitude in an unfamiliar environment. You're
-not hitting rock bottom right now. When we're sinking in water, it can be a relief to feel
-the ground beneath our feet, the rock bottom, because we know we can kick against it to
-rise again. But if you can't feel the ground in life, the fear can be overwhelming. So
-maybe it's good to find your rock bottom."
-
-- "Mother clearly hated how she had passed on this part of herself to us, which was why
-she was always angry at our faults."
-
-- "Accepting your burdens and putting them down isn't an occasional posture; it's
-something you need to practise for the rest of your life."
-
-- "Books never tire of me. And in time they present a solution, quietly waiting until I am
-fully healed."
-
-- "We always put modifiers in front of ourselves, and I'm no exception to that."
-
-- "to expect someone to always be a certain way or consistently do a certain thing can be
-a huge burden on them."
-
-- "When life becomes something one just lives through, when the demands of survival take
-up all of our time and effort, leaving no strength for any other demands, and when time
-rushes by drying up or rotting whatever we have had to neglect, expecting someone to carry
-on being the same is truly too much of a burden."
-
-- "There are days when I wish I were numb, when I'm desperate to feel nothing. I want to
-be simple and cold and totally without feeling. Empathy has a large presence in my life,
-and it can cast a very long shadow. I can be watching a television drama or a movie,
-listening to a song or looking at a photograph, listening to someone's story or writing my
-own, and my heart and mood will sink. Like a punctum they pierce me without context, a
-feeling I am very used to now and tired of."
-
-- "Life is as messy as a bag whose owner never cleans it out. You have no idea when you
-might reach in and pull out a piece of old trash, and you're afraid someone is going to
-look through your bag someday. Maybe your 'baggage' is like an old bag, too. You toss it
-around any which way, not caring how worn it gets or where it lands, and no one notices.
-You can't afford a new bag so you carefully and painstakingly hold it so the rough patches
-don't show."
-
-- "Changing your mindset takes some work, but the beauty is when you begin to understand
-there's a huge difference between being busy and being productive. This is something so
-many of us struggle with because we falsely believe that we need to be busy, that we are
-supposed to fill our days."
-
-- "Balance is just one of the stories we tell ourselves. We all have a library of folklore
-filled with stories about ourselves that we believe: we are supposed to be a certain way,
-have a certain job, or live a certain life."
-
-- "I quieted the stories in my head and reset my expectations to make them realistic for
-my life. I'm not going to say I've completely gotten rid of the guilt, but I feel so much
-better because I changed my way of thinking."
-
-- "Ask any kindergartner what they are good at, and you'll need to sit through a laundry
-list of topics: art, running, painting, climbing trees, eating potato chips—seriously,
-five-year-olds think they are amazing at everything! But wait ten years and ask the very
-same child, and she'll think of almost nothing; at best you'll maybe hear one or two
-things she believes she excels in. What happens to us in this space of time? How do we
-lose our belief in ourselves? We've allowed the world to define us and reinforce these
-limiting beliefs, but it's time to break through."
-
-- "Sometimes we have to let go of our old stories."
-
-- "Because so many of us live in a state of either/or, we tend to push aside other things
-we really want to do. Far too many of us have pushed aside our aspirations because we
-believe we don't have time or don't have the right to pursue them."
-
-- "Have you ever experienced that feeling of having no control over your day? As if your
-world is so rigid and made up of so many rules you don't really get to choose the life you
-live? That, my friend, is learned helplessness."
-
-- "We want to believe our kids need us, and sometimes in the busy rush of our everyday
-life, we forget they are capable of being more independent."
-
-- "We all have these invisible choices, don't we?"
-
-- "Have you ever watched a squirrel aiming to get something she wants? Perched in a tree,
-tail twitching, she sees a bird feeder and is drawn to it. The homeowners, though, are
-smart, and they've added all kinds of obstacles to make it "squirrel-proof." Does our
-squirrel take a look, decide she has no chance of getting to the seeds, and toss in the
-towel? Absolutely not. A squirrel will attack the problem from all angles, testing and
-pushing the boundaries of what she knows she can and cannot do, until she sits
-triumphantly atop that feeder with a belly full of birdseed."
-
-- "Finding choices isn't only possible, it's essential to thrive. You just have to start
-actively looking for them—that's a choice in and of itself."
-
-- "It's possible for your future to look brighter, for you to focus on the things that are
-important to you. But to do that, your priorities have to take priority. It's possible to
-have a job that makes you happy and to spend time on the things you really want."
-
-- "Our North Star is a combination of our mission, vision statement, and core values. Each
-one answers the question of who you are at your heart. The mission statement tells us what
-we are doing now, the vision statement tells of where we want to be, and the core values
-tell us how these can be defined through our actions. Like pieces of a puzzle, they come
-together to create the completed picture of why we make the choices we do. They become the
-North Star we need to guide us and help us navigate through decisions."
-
-- "Human beings are works in progress2 that mistakenly think they are finished. The person
-you are right now is transient, as fleeting and as temporary as all the people you've ever
-been. The one constant in our lives is change."
-
-- "Your mission statement isn't about your job itself—it's about what your job does and
-why you do it."
-
-- "Remembering that I'll be dead soon15 is the most important tool I've ever encountered
-to help me make the big choices in life." We don't have to wait until we receive bad news
-from the doctor or read our obituary in the paper. We can begin to make those big choices
-now, using our North Star to help guide us."
-
-- "Don't spend time beating on a wall, hoping to transform it into a door."
-
-- "For too long, I had no idea where to spend my time or how to spend my energy. I wasn't
-productive—I was simply running around being busy, filling my days but not my soul."
-
-- "It seems like this abundance of information should make life easier, but when we are
-bombarded with so much of it, the paradox is that decision making becomes more difficult.
-This is when the feeling of overwhelm begins to settle in and we simply don't know where
-to start."
-
-- "We have to cut in order to really grow and flourish. I know this seems
-counterintuitive, but think of a garden: Do you plant the flowers one on top of another?
-Do you squeeze so many in that there is no room? Or do you allow each plant to have
-space—space to receive the rain and the sun, space to spread their leaves and grow? That's
-what we need: space to allow ourselves to focus. The only way to have that space is to
-actively create it for ourselves. We need boundaries."
 

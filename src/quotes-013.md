@@ -1,4 +1,96 @@
-<!-- Page 13 of 53  ·  quotes 1201–1300 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 13 of 54  ·  quotes 1201–1300 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "How to make your goals grand but not too high…how to be cautious and yet have
+the desire to charge into the heavens…you will need to handle this yourself.
+The world is divided into yin and yang, and between yin and yang lies the
+heart."
+
+- "Good. That’s the attitude I like to see. Defeat isn’t frightening; what’s
+frightening is not even having the courage to try."
+
+- "But there are no absolutes in life. There’s always a chance."
+
+- "Stupidity does not mean you have the power to speak unreasonably, nor is it
+something that requires respect."
+
+- "Skill from diligence; incompetence from indulgence. I dare not slack off."
+
+- "What will people think of your 's cience' two thousand years from now?" Mr. D
+continued. "Hmm? They will call it primitive mumbo jumbo. That's  what. Oh, I
+love mortals—they have absolutely no sense of perspective. "
+
+- "There is no sound more annoying than the chatter of a child, and none more sad
+than the silence they leave when they are gone."
+
+- "A Dark time comes. My time. If it offends you. Stop Me."
+
+- "I think you're enough like me to understand. If my life is going to mean
+anything, I have to live it myself. I can't let a god take care of me ... or my
+son. I have to . . . find the courage on my own. "
+
+- "Families are messy. Immortal families are eternally messy. Sometimes the best
+we can do is to remind each other that we're related, for better or worse ...
+and try to keep the maiming and killing to a minimum."
+
+- "Evil is easy to fight. Lack of wisdom... that is very hard indeed."
+
+- "Happily Ever After doesn’t exist. Every day you wake up and decide to love
+your partner and your life—the good, the bad and the ugly. Some days it’s a
+struggle and some days you feel like the luckiest person in the world."
+
+- "When you commit to someone, you don’t actually know who you’re committing to.
+You know who they are today, but you have no idea who this person is going to
+be in five years, ten years, and so on. You have to be prepared for the
+unexpected, and truly ask yourself if you admire this person regardless of the
+superficial (or not-so-superficial) details, because I promise almost all of
+them at some point are going to either change or go away."
+
+- "Relationships exist as waves, people need to learn how to ride them."
+
+- "You can work through anything as long as you are not destroying yourself or
+each other. That means emotionally, physically, financially, or spiritually.
+Make nothing off limits to discuss. Never shame or mock each other for the
+things you do that make you happy. Write down why you fell in love and read it
+every year on your anniversary (or more often). Write love letters to each
+other often. Make each other first. When kids arrive, it will be easy to fall
+into a frenzy of making them the only focus of your life…do not forget the love
+that produced them. You must keep that love alive and strong to feed them love.
+Spouse comes first. Each of you will continue to grow. Bring the other one with
+you. Be the one that welcomes that growth. Don’t think that the other one will
+hold the relationship together. Both of you should assume it’s up to you so
+that you are both working on it. Be passionate about cleaning house, preparing
+meals, and taking care of your home. This is required of everyone daily, make
+it fun and happy and do it together. Do not complain about your partner to
+anyone. Love them for who they are. Make love even when you are not in the
+mood. Trust each other. Give each other the benefit of the doubt always. Be
+transparent. Have nothing to hide. Be proud of each other. Have a life outside
+of each other, but share it through conversation. Pamper and adore each other.
+Go to counseling now before you need it so that you are both open to working on
+the relationship together. Disagree with respect to each other’s feelings. Be
+open to change and accepting of differences."
+
+- "The wine god sighed. "Oh, Hades if I know. But remember, boy, that a kind act
+can sometimes be as powerful as a sword. As a mortal, I was never a great
+fighter or athlete or poet. I only made wine. The people in my village laughed
+at me. They said I would never amount to anything. Look at me now. Sometimes
+small things can become very large indeed."
+
+- "Poseidon put his weathered hand on my shoulder. "Percy, lesser beings do many
+horrible things in the name of the gods. That does not mean we gods approve.
+The way our sons and daughters act in our names...well, it usually says more
+about them than it does about us. "
+
+- "Sometimes the hardest power to master is the power of yielding. Do you believe
+me?"
+
+- "You can't beat me, Oliver. Yes, you're younger and you're faster, yet you
+always come up short against me. Wanna know why? Because you don't know, in
+your heart, what you're fighting for. What you're willing to sacrifice. And I
+do."
+
+- "So you'll atone for one murder, Robert, by committing hundreds, thousands?"
+
+- "Nothing is bred that is weaker than man."
+
 - "You are so blinded by your hate for him that you don't realize the damage that
 it's  doing in your own life. To your family."
 
@@ -267,73 +359,4 @@ want."
 - "A prayer comes from the heart"
 
 - "Love and hate are two sides of the same coin."
-
-- "If that monster is your darkness, then I have a reason to fight it, no?"
-
-- "The art of hunting is aiming for the moment when the target is busy hunting
-its prey!"
-
-- "It's  pointless to mope over the validity of someone else's  success. If
-you're unhappy about the results, keep moving yourself forward until you are
-satisfied."
-
-- "Prosperous cities tend to attract all sorts of nasty people."
-
-- "The countless dragons that rained down were less significant threats than the
-humans in the sky."
-
-- "An apology is a promise to do things differently next time, and to keep the
-promise."
-
-- "Order is the barrier that holds back the flood of death. We must all of us on
-this train of life remain in our allotted station. We must each of us occupy
-our preordained particular position. Would you wear a shoe on your head? Of
-course you wouldn't wear a shoe on your head. A shoe doesn't belong on your
-head. A shoe belongs on your foot. A hat belongs on your head."
-
-- "My friend, you suffer from the misplaced optimism of the doomed."
-
-- "Wilford: Curtis, everyone has their preordained position, and everyone is in
-their place except you.
-
-Curtis: That's  what people in the best place say to the people in the worst
-place."
-
-- "You've seen what people so without leadership. They devour one another."
-
-- "I believe it is easier for people to survive on this train if they have some
-level of insanity. As Gilliam well understood, you need to maintain a proper
-balance of anxiety and fear and chaos and horror in order to keep life going.
-And if we don't have that, we need to invent it."
-
-- "Assume everyone will betray you and you will never be disappointed."
-
-- "Perhaps it's  impossible to wear an identity without becoming what you pretend
-to be."
-
-- "In the moment when I truly understand my enemy, understand him well enough to
-defeat him, then in that very moment I also love him. I think it’s impossible
-to really understand somebody, what they want, what they believe, and not love
-them the way they love themselves. And then, in that very moment when I love
-them.... I destroy them."
-
-- "I think that most of us, anyway, read these stories that we know are not
-- "true" because we're hungry for another kind of truth: the mythic truth about
-human nature in general, the particular truth about those life-communities that
-define our own identity, and the most specific truth of all: our own
-self-story. Fiction, because it is not about someone who lived in the real
-world, always has the possibility of being about oneself."
-
-- "Because never in my entire childhood did I feel like a child. I felt like a
-person all along―the same person that I am today."
-
-- "Sometimes lies were more dependable than the truth."
-
-- "Early to bed and early to rise," Mazer intoned, "makes a man stupid and blind
-in the eyes."
-
-- "There are times when the world is rearranging itself, and at times like that,
-the right words can change the world."
-
-- "So the whole war is because we can't talk to each other."
 

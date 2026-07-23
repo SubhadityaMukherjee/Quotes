@@ -1,4 +1,8 @@
-<!-- Page 2 of 53  ·  quotes 101–200 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 2 of 54  ·  quotes 101–200 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Human will is the strongest will ever created. There are those who are born to
+succeed and those who are determined to succeed. The former fall into it, and
+the latter pursue it at all costs. They won t be denied. Nothing daunts them."
+
 - "It's never the enemy without who brings you down. It's always the enemy
 within."
 
@@ -370,6 +374,4 @@ cake writhing with grubs and nightmares and hunger."
 
 - "The problem is not the problem. The problem is your attitude about the
 problem."
-
-- "It is the unknown we fear when we look upon death and darkness. Nothing more."
 

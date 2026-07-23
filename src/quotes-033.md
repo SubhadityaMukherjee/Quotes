@@ -1,4 +1,194 @@
-<!-- Page 33 of 53  ·  quotes 3201–3300 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 33 of 54  ·  quotes 3201–3300 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Maybe you are like me—an overachiever, a people pleaser, a perfecter—so you
+believe success has been defined by what you do, not who you are. You fill your
+days in pursuit of this illusion of success, just as I did, but deep down you
+feel there must be a better way. And you are so right."
+
+- "we falsely believe that we need to be busy, that we are supposed to fill our
+days."
+
+- "When we try to do too much, we overfill our plates with a multitude of tiny
+tasks and chores. We check a hundred things off our to-do lists, but when we
+slip into bed at night and our heads hit the pillow, we think, Why didn't I get
+more done?"
+
+- "That's why productivity may have failed you in the past—it's the struggle to
+make your life fit the system when, in fact, it should be the system that fits
+your life. You can customize your productivity so that your life and your
+priorities are at the center."
+
+- "But too many of us tie our self-worth to our busyness. Stress and overwhelm
+are badges of honor declaring our worthiness. We falsely believe that if we are
+not busy, we are failing. In the pursuit of finding balance, we try to do
+everything, but the more we do, the less we succeed."
+
+- "Creating an extraordinary life for ourselves requires moving away from
+balance, because when we lean into a priority—when we give time to the most
+important things—we have to take that time away from something else. We cannot
+give equal time to all the tasks on our lists."
+
+- "In chasing this illusion of balance, we end up creating a life that feels
+busy—not meaningful. We have to be willing to go out of balance. We need to be
+willing not to do everything. That's the real magic."
+
+- "Sometimes it's just a limiting belief, the idea that you simply cannot do
+something, that restricts you."
+
+- "Too often we hand over the reins, allowing others to imprison us with their
+own agendas and urgent fires that need putting out. We think we don't have
+control over how our day runs, but we do. We've simply forgotten that we have
+the ability to choose to spend time on our own priorities."
+
+- "It's not reality that makes us feel stuck; it's the lens we use to view the
+world. Maybe you are tired of trying because it feels like it just doesn't seem
+to matter. I've felt this way too. There are times when we all just want to
+crawl back in bed and throw the covers over our heads because we are so
+overwhelmed with the chaotic rush of our days. We can lose sight of who we are
+deep inside and what is most important to us. We are so busy struggling and
+fighting to keep our heads above the proverbial water that we seem to forget we
+can choose to tread water for a moment. We can allow ourselves a deep breath
+and time to scan the horizon—we can choose to swim to calmer waters. When we
+gift ourselves with the ability to step back and choose, something powerful
+begins to happen. We strengthen our internal locus of control3. In other words,
+we remember we have the ability to influence our own destiny instead of
+allowing the current to push us wherever it wants. People with a strong
+internal locus of control believe they have the freedom and ability to make
+their own choices and determine what happens to them. Because of that, they are
+significantly happier and more motivated. Psychologists have found that an
+
+- "internal locus of control has been linked with academic success . . . higher
+self-motivation and social maturity . . . lower incidences of stress and
+depression . . . and longer life span." We want to strengthen our internal
+locus of control and begin to understand that we have choices. BUT I REALLY
+DON'T HAVE ANY CONTROL If you're still saying, "That isn't true for me; I don't
+have any choices in my day." I hear you. You have a strict boss, an overbearing
+family member, an overly regimented schedule, a special-needs child, or
+something similar. Right? I met Rhonda when I was speaking at a workshop event"
+
+- "Are you choosing to spend your time being busy, or are you choosing to focus
+your day on what matters most?"
+
+- "When I look at this limited time I have, it reminds me that we all have
+seasons we live through. Seasons when our lives are hard and seasons where life
+comes easy, but in the scheme of 100 years, those seasons are a mere fraction
+of the time we have."
+
+- "Seasons pass, life ebbs and flows, but our priorities are what anchor us."
+
+- "Your happiness isn't defined by others, it is defined by you and the daily
+choices you make. Living a life centered on your priorities is making a choice
+to be happy, and it's okay to choose happy."
+
+- "am not afraid of storms, for I am learning how to sail my ship."
+
+- "When we live our life using our North Star, we take ownership of our legacy."
+
+- "If the mat was not straight, the Master would not sit."
+
+- "Still, its nature could be understood, and those who cared the most about it,
+and the life from which it was inseparable, understood it best"
+
+- "Life itself, when understood and utilized for what it is, is sweet"
+
+- "The essence of the principle of the Uncarved Block is that things in their
+original simplicity contain their own natural power, power that is easily
+spoiled and lost when that simplicity is changed."
+
+- "All that we are is a result of what we have thought."
+
+- "Nothing can prevent your picture from coming into concrete form except the
+same power which gave it birth—yourself."
+
+- "Whatever the mind … can conceive it can achieve."
+
+- "Inside relationships it's important to first understand who's coming into the
+relationship, and not just your partner. You need to understand yourself
+first."
+
+- "We've got a thousand different diagnoses and diseases out there. They're just
+the weak link. They're all the result of one thing: stress. If you put enough
+stress on the chain and you put enough stress on the system, then one of the
+links breaks."
+
+- "I always say that incurable means "curable from within."
+
+- "Man becomes what he thinks about."
+
+- "What you resist persists."
+
+- "So many times people say to me, "Well, James, I have to be informed." Maybe
+you have to be informed, but you don't have to be inundated."
+
+- "Energy flows where attention goes."
+
+- "The essence of this law is that you must think abundance; see abundance, feel
+abundance, believe abundance. Let no thought of limitation enter your mind."
+
+- "A person who sets his or her mind on the dark side of life, who lives over and
+over the misfortunes and disappointments of the past, prays for similar
+misfortunes and disappointments in the future. If you will see nothing but ill
+luck in the future, you are praying for such ill luck and will surely get it."
+
+- "Whether you think you can or think you can't, either way you are right."
+
+- "So your purpose is what you say it is. Your mission is the mission you give
+yourself. Your life will be what you create it as, and no one will stand in
+judgment of it, now or ever."
+
+- "I can never be all the people I want and live all the lives I want. I can
+never train myself in all the skills I want. And why do I want? I want to live
+and feel all the shades, tones and variations of mental and physical experience
+possible in my life."
+
+- "Master, I understand that the body is the basis. A good body is like uncut
+jade, it can be cut into many good things. And a weak body is like impure jade,
+even with excellent craftsmanship, nothing good can come from it."
+
+- "If a craftsman is to do a good job, he shall need good tools."
+
+- "Meteors — even though their lives are short, they radiate the brightest
+lights. They are dazzling. As for human, not even a Xiantian expert can live
+longer than several hundred years. Instead of living my whole life in
+mediocrity, why don't I learn from the meteors? In my limited life, I'll burn
+my passion of life and stimulate the blood in my veins, making my life radiate
+the most dazzling light. Only in this way will I die with no regret."
+
+- "Generally, people who are alone are independent and self-reliant. This is
+because if a person is usually alone they will naturally ponder. Pondering
+about life, pondering about their own values, the more they ponder, the more
+thoroughly they can understand things."
+
+- "Perhaps I've been wrong since the beginning. A person can't always live for
+other people. If I live like that, not only will I be tired, father will be put
+under great pressure as well"
+
+- "Alright, living in the world, why do I have to be afraid of something?
+Moreover, I've been living the wrong way. I mustn't live for other people. That
+kind of life has tired both me and father out. I must live for myself. Father,
+big brother, 2nd brother, I'll pursue my own life!"
+
+- "This is just like how watched flowers never bloom but an unattended willow
+grows."
+
+- "You have to be true to your feelings no matter what happens later. To survive
+in this world, you'll have to restrain yourself on many occasions, but if you
+restrain yourself too much, something that makes you feel regretful for the
+rest of your life can happen. Remember … sometimes, you have to be true to
+yourself even if you'll die from this."
+
+- "The weak let their ideals control their actions, but the strong control their
+ideals with their actions.' If not for this saying supporting my inner world
+like a column at the bottom of my heart, perhaps … I would have collapsed long
+ago due to being unable to stand acting against my will."
+
+- "The outside world, we are looking at only a small part that interests us."
+
+- "The world we see is not the entire universe but a limited one that the mind
+cares about. However, to our minds, that small world is the entire universe.
+Our reality is not the infinitely stretching cosmos but the small part we
+choose to focus on. Reality exists because our minds exist. Without the mind,
+there would be no universe."
+
 - "We feel unhappy not just because something bad has happened, but also because
 of the swirling thoughts about what happened."
 
@@ -380,198 +570,4 @@ us"
 
 - "And as the ancient saying went, it is easy to dodge the spear in the open,
   but hard to avoid a stab in the dark."
-
-- "Xiaochun…" he said softly. "You’re right. As long as we’re alive, there are
-  endless possibilities. But just because we die doesn’t mean that our hopes
-  and dreams die with us! "I can’t speak for anyone else, but I can say that
-  when I look at all of these graves, I'm absolutely certain… that these
-  disciples who died in battle did it because of the Dao that existed in their
-  hearts!"
-
-- "You often found it easier just to adapt to their ideas of what was best for
-  you rather than trying to figure it out for yourself. But in all this
-  adapting to your society’s attempts to make you fit in, and in your own
-  attempt to find less trouble, you have unwittingly relinquished your most
-  basic foundation: your total and absolute freedom to create."
-
-- "That is the optimal creative vantage point: To stand on the brink of what is
-  coming, feeling eager, optimistic anticipation—with no feeling of impatience,
-  doubt, or unworthiness hindering the receiving of it—that is the Science of
-  Deliberate Creation at its best."
-
-- "You cannot desire something, predominantly focus on the absence of it, and
-  then expect to receive it,"
-
-- "You would not walk into a brightly lit room and look for the "dark switch."
-  In other words, you would not expect to find a switch that would flood an
-  inky darkness into the room to cover the brightness of the light—you would
-  find a switch that would resist the light, for in the absence of the light there is darkness."
-
-- "In a world that often seems too crowded or busy to notice beautiful things
-  or make meaningful connections, there is still room for each of us to grow in
-  the ways we were meant to."
-
-- "It is hard for me to resent my parents, although I envy them their naivete."
-
-- "When Love cast me out, it was Cruelty who took pity upon me"
-
-- "When you care for yourself first, the world will also find you worthy of care."
-
-- "But because of the weight of the secrets, we become more humble and understanding."
-
-- "Why should your life be destroyed by the easy criticism of those who do not know you or
-care about you?"
-
-- "Just as a mother looks at her child with love, look at your own suffering with
-compassion. You will soon feel that you are not alone. There is a soft inner core of love
-and caring at the heart of every suffering. You are not thrown into this world alone."
-
-- "The reason adolescents don’t listen to their parents and stubbornly try to have their
-own way is that they are learning to be independent. It is normal, so don’t worry too
-much."
-
-- "Do your best to give your children someone to look up to."
-
-- "It is nearly impossible for a son or daughter to change a parent’s personality, values,
-or behavior. Even if children consider their parents problematic in some way, they have
-neither the right nor the responsibility to change them"
-
-- "If you assume that, since you’ve been together for so long, you should be able to read
-each other’s minds, there are so many things you will fail to understand about each
-other."
-
-- "When someone is showing his temper, it could be because he wants us to hear about his
-current situation and empathize. Rather than arguing, try to understand his deeper needs"
-
-- "If we think of the child as a stranger, we focus on the inconvenience to ourselves, but
-if we think of the child as a family member, we become merciful, wondering whether the
-child is uncomfortable or in pain"
-
-- "If you give something your full attention, whatever it is, and examine it closely, it
-will come to attract your interest and care."
-
-- "My interest in philosophy started where I’d imagine it starts for most people: a
-dissatisfaction with what I had been told about life combined with a curiosity about what
-I had not."
-
-- "My desire for knowledge is intermittent; but my desire to commune with the spirit of
-the universe, to be intoxicated with the fumes, call it, of that divine nectar, to bear my
-head through atmospheres and over heights unknown to my feet, is perennial and constant."
-
-- "the experience and effects of concrete knowledge can be fleeting, but the wonder found
-in the spirit of the unknown can be constant and enduring"
-
-- "Nobody ever figures out what life is all about, and it doesn’t matter. Explore the
-world. Nearly everything is really interesting if you go into it deeply enough,"
-
-- "Through our eyes, the universe is perceiving itself. Through our ears, the universe is
-listening to its harmonies. We are the witnesses through which the universe becomes
-conscious of its glory, of its magnificence,"
-
-- "As we experience more of life, and we are continually disappointed by our optimism’s
-inability to align with the real conditions of the world, our optimism is beaten further
-and further into submission."
-
-- "healthy dose of pessimism is necessary in our ability to adequately deal with this
-life. It helps us mitigate our expectations and serves as padding that protects us from
-life’s constant attempts to beat our spirit out of us. Pessimism counterbalances the
-ridiculously overly optimistic expectations of the culture we live in and helps us adapt
-out of the deeply detached, unrealistic perspective that we likely formed as children. It
-reminds us that things won’t always go our way or always be that nice, but rather, things
-will go wrong a lot, but despite this, we can still be ok."
-
-- "To be completely optimistic about the rules always working in our favor would be
-foolish. However, to be completely pessimistic about the game as a whole simply because
-the rules don’t always work in our favor would be equally foolish."
-
-- "In the dirt of life, it is up to us to plant the seeds, watch the flowers grow, and
-enjoy their beauty, even in spite of the fact that we know that they will die."
-
-- "Perhaps all reality is a prison and time is its guard"
-
-- "Perhaps what we should and only can do is to try to enjoy the process of playing with
-the blocks of philosophy like children playing with toy blocks for no reason other than
-the curiosity and fun of it; not because in the end the blocks will provide something that
-stays up forever, but because we inevitably will take the blocks down, put them away for a
-little while, and then play with them again on another day, in a different way."
-
-- "Kōans did not spring up out of lack of thought or contemplation, but rather, out of a
-specific sort of contemplation: a self-referential thinking that denies its ability to be
-a single, concrete, and universal thought that answers or understands what might exist
-beyond itself. Zen and the lesson of the kōans suggest that we should flow with life, ask
-questions, contemplate them, but not become tricked by any singular idea or answer that
-might tempt us into a final resolution"
-
-- "Just like how the center of a tornado is calm with little to no motion, despite it
-being surrounded by a coil of rapid, violent wind, we can live in the center of the
-tornado of knowing and unknowing and still remain calm and at ease."
-
-- "it takes no more than a sick stomach or migraine to realize just how heavy this
-corporeal weight is, how stricken and limited by it we are. We are stuck inside the body,
-captives to it, subject to its faulty and fragile mechanisms that do and will break,
-keeping us bound in space according to its condition—until it finally turns itself off,
-and us with it."
-
-- "We can only think through the mind, and we can only think in the way our mind thinks."
-
-- "It is a demonstration of humanity’s overzealous ego and anthropocentrism to think that
-so long as no other humans tell them what to do, they are free."
-
-- "Freedom can be manifested only in the void of beliefs, in the absence of axioms, and
-only where the laws have no more authority than a hypothesis,"
-
-- "Like the desire for perfect, unending happiness, the desire for complete and absolute
-freedom is impossible. But like happiness, it is, in its true, ultimate form, a state that
-comes and goes, unattainable in the ideal but attainable in the moment—in the moments when
-we surrender to the complete unified image of being, when we cease trying to square
-circles and placate everything that contests us, when we stop trying to escape what cannot
-be escaped. It is the classic lesson: the Chinese finger trap, the Tao in Taoism, Nirvana
-in Buddhism, the silence of Wittgenstein; the harder one tries, the harder one flails, the
-more entrenched one becomes."
-
-- "for you can only be free when even the desire of seeking freedom becomes a harness to
-you, and when you cease to speak of freedom as a goal and a fulfilment."
-
-- "In truth that which you call freedom is the strongest of these chains, though its links
-glitter in the sun and dazzle your eyes."
-
-- "When we persist with the belief that things outside of ourselves or things in the
-future will provide us with a form of ultimate happiness, we exchange the real moments of
-our lives for ones that do not exist. We become dependent on things outside of ourselves
-that we cannot control, and we endlessly run on a treadmill of unceasing desire."
-
-- "We can and should engage our nature to progress and pursue bigger, faster, better, and
-more interesting things, but we should ensure that in our pursuits, we are intentional
-about what we are doing so as to ensure that we are not being careless with our time and
-wasting our experience of life"
-
-- "No matter what task we undertake, we will do it wastefully if we assume that anything
-beyond the task itself will provide anything better than the experience of focus and
-presence in the task."
-
-- "Until we have begun to go without them, we fail to realize how unnecessary many things
-are. We’ve been using them not because we needed them but because we had them"
-
-- "It is now that we must find time and it is now that we must find happiness if it is
-either that we are seeking, because if we do not focus the lens through which we view life
-right now, everything we see from this moment forward will remain out of focus"
-
-- "Starting from birth, we seemingly run, if not sprint, through life, racing out of every
-moment, unsatisfied with what life is and constantly looking to the future for what life
-could be if we could just obtain something more or different. Our cultures overwhelm us
-with the reinforcement of this idea, convincing us that our duty is to achieve, buy, own,
-and live perfect, unaffected lives. This delusion, however, frenzies us with an anxiety
-that we are then told, by culture, that we can rid ourselves of if we just achieve a few
-more things, make a little more money, be a little more popular, and buy a little more
-stuff, creating an endless feedback loop of unsatisfied hunger. If we cave into this, we
-surrender our life, we give up our self."
-
-- "We don’t have much, if any, control over what happens to us, how people see and treat
-us, or what happens because of what we do, and in the big picture, none of it really
-matters all that much anyway. And so, we must define our happiness not by what we own or
-achieve, not by how others see us, not by some bigger picture of life, but by how we think
-and see our self and live our own life through what we deem virtuous and relevant"
-
-- "But of course, after a point, worrying about the future, the unknown, and the potential
-for things to go wrong is nothing but a useless handicap"
 

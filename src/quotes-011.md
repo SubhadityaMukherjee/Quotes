@@ -1,4 +1,83 @@
-<!-- Page 11 of 53  ·  quotes 1001–1100 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 11 of 54  ·  quotes 1001–1100 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Yan’er," he said softly, "look at the clouds, the mountains, the sky, and the
+land. Remember this image. However grand your vision is, that is how grand your
+future can be. It is also how grand… your heart can be."
+
+- "We cultivators cultivate, not the body, but the heart!"
+
+- "Like the wall, many thing are not as they appear." Anonymous chuckled. "If you
+can get your mind around that concept, you will understand more about existence
+than most."
+
+- "One leaf might not sway the tree, but the tree does not sway itself. That
+takes many leaves," Ariana told her, turning the idea over in her mind. "The
+shadow of the leaf does touch the tree and, depending on where the light falls,
+the shadow can touch many places, while the leaf itself stays fixed on the
+branch."
+
+- "The wind is most noticed when it is absent," Carly said with a voice that
+sounded both faraway and full of depth and power. "But the currents remain
+steady, no matter whether the wind blows or remains silent. Those that know
+this, truly know the sea."
+
+- "The fact that he does not desire power for its own sake makes him worthy of
+being entrusted with it."
+
+- "In the search for truth, every answer is merely the start of another
+question."
+
+- "For the weakest has but to try his strength to find it, and then he shall be
+strong."
+
+- "There are a thousand ways to tell if someone is lying to you. You don’t need
+to be able to glimpse into their mind to catch all of the little signs of
+insecurity and discomfort. More often than not, all you have to do is look at
+them. If they glance to the left while they’re talking to you, if they add too
+many details to a story, if they answer a question with another question."
+
+'Confidence is ignorance,' advised the centaur. 'If you're feeling cocky, it's
+because there's  something you don't know.'
+
+- "Hate will keep you alive where love fails."
+
+- "A man who’s got no fear is missing a friend, Jorg,’ he said, and a smile found
+its way onto those thick lips of his. Running ain’t no bad thing. Leastways if
+you run in the right direction."
+
+- "Consider me a spokesman,’ I said. When it comes to stage-acting, some men are
+more eloquent than others."
+
+- "Churchmen, eh? Love one minute, forgiveness the next, and then it’s eternity
+on fire."
+
+- "Lundist held that a man who can observe is a man apart. Such a man can see
+opportunities where others see only the obstacles on the surface of each
+situation."
+
+- "Some men are too dull to feel what might happen. Others torture themselves
+with maybes and populate their dreams with horrors more terrible than their
+worst enemy could inflict upon them."
+
+- "But life is not like that. It refuses to curl up and sit quietly in a corner.
+The habits of several centuries would not go away."
+
+- "While I was a prisoner I thought about my life, how I had wasted it gathering
+riches whatever the cost to my family and others around me. In a man’s life, he
+gets few chances to make a difference. To do the right thing. To be a hero, if
+you will. I intend to become involved in that struggle."
+
+- "The more money you had, the more pressure you were under. He had eight hundred
+employees in this building alone, all relying on him for a pay cheque. They
+wanted yearly salary reviews, medical plans, baby-care centres, regular coffee
+breaks, double pay for overtime and even stock options, for heaven’s sake.
+Sometimes Spiro missed the times when a troublesome worker was thrown out of a
+high window and that was the end of him. These days, if you threw someone out
+of a window, they’d phone their lawyer on the way down."
+
+- "The controls were hugely complicated, but Mulch had a theory about vehicle
+controls: Ignore everything except the wheel and the pedals, and you’ll be
+fine."
+
 - "It's  this blasted puberty, Butler. Every time I see a pretty girl, I waste
 valuable mind space thinking about her."
 
@@ -335,91 +414,4 @@ those arduous journeys through thousands of crags and tens of thousands of
 torrents."
 
 - "As people grow in life, they form nets to fall back on"
-
-- "Heaven and Earth are just resting places for the myriads of living creatures.
-Time represents the passage of hundreds of generations of passing travellers."
-A smile broke out on Meng Hao’s face. Life is a journey, every turn of which is
-filled with new scenery. This path that he tread now contained his mark.
-Whether the mark was shallow or deep didn’t matter. That was because, it was
-his choice. "Maybe my path hasn’t even arrived." He shook his head. Perhaps in
-the future he would realize what his purpose in life was. For the moment, he
-still didn’t know. Since he didn’t know, he wouldn’t force himself to choose.
-When traveling, it is never possible to know what unfathomable things might
-occur. That is what makes it beautiful."
-
-- "Cultivators have what it takes to stand up to Heaven and Earth. Cultivators
-have the stubbornness to never bow their heads, no matter how bloody the
-battle. That is a Cultivator. To me, a Cultivator is someone who stands,
-covered in blood, hair snow white, facing a host of enemies. And yet, no matter
-the danger, no matter how difficult the path, a Cultivator will grit his teeth,
-lift his head up and laugh! In this manner, he will become a legend! That is
-what a Cultivator is to me."
-
-- "Entombed on the Earth, but desirous of a return to life in the Heavens…."
-
-- "There are some things I hesitate to do, but after I do them, I feel no
-regret."
-
-- "Sometimes, the meaning of an entire life can be only because of a chance
-meeting."
-
-- "What Cultivators truly cultivate, is self-confidence, and even more
-importantly, self-awareness. I have to say that … I, Meng Hao, do not dare to
-call myself a straightforward and upright person. Nor am I a gentleman, or a
-man of honor. But I always repay the kindnesses shown to me!
-
-- "In Confucianism, there is a concept of a path of justice that contains two
-parts. One part involves being kind and tolerating others. The other involves
-taking action when necessary. After entering the Cultivation world, Meng Hao
-also had his own path. This path had nothing to do with Cultivation, but
-rather, personal principles. Meng Hao’s principles also contained the concept
-of justice, a justice with two parts. One was the law of repaying kindnesses.
-The other was bringing death in response to attacks! Cultivation is about
-developing confidence. Cultivation is about learning how to conduct oneself!"
-
-- "Sowing contains reaping, reaping contains sowing. Everything that happened
-before was all sowing. Karma was reaped after I led the Crow Divinity Tribe out
-of the north all the way to the Black Lands. "It is similar to repaying
-kindnesses. The kindness is the sowing of Karma, and the repayment is the
-reaping of it! "Karma is about cause and effect. I… understand now."
-
-- "Life and death oppose each other but also exist in a cycle. Without life, how
-could there be death? And without death… what could serve as a contrast to
-life!?"
-
-- "Within the sea, time is forgotten. Endless coldness, knows no years."
-
-- "Death is oftentimes quite simple. Life is oftentimes quite fragile."
-
-- "Emotions… are not a hindrance," he murmured. "Emotions… are what make life
-complete."
-
-- "The world is an ever changing system of relationships and structures"
-
-- "Some say continuing to do the same thing over and over again is the definition
-of insanity. On the other hand you say if at first you don't succeed try try
-and try again."
-
-- "I can not only imagine artificial intelligence evolving spontaneously on the
-internet, but I can’t tell you that it hasn’t happened already. Because it
-wouldn’t necessarily reveal itself to us."
-
-- "Civilisation is always about four square meals away from ruin."
-
-- "On the internet nobody knows if you are a dog."
-
-- "Time is like a dream. It’s impossible to tell what is true and what is false.
-When you dream, you see others. Perhaps in the world of others, the dream
-version of you appears. Or perhaps our lives are like an invisible bubble that
-could pop at any time, and cause us to awaken. Who dreams of you, and who you
-dream of… this is truly a difficult riddle to explain…."
-
-- "I thought that when I saw you, I would have the world. I didn’t know that
-within your dreams, you already had me."
-
-- "Ten thousand things, all in this breath grasping hold of emptiness, there
-really is nothing to say. Why are people so busy? Just for this one breath,
-People say busy, busy; mine, mine. Busy a whole lifetime for Me’. When this one
-breath is let off, you let go of this whole universe, why not let go from the
-start?"
 

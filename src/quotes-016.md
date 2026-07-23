@@ -1,4 +1,84 @@
-<!-- Page 16 of 53  ·  quotes 1501–1600 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 16 of 54  ·  quotes 1501–1600 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "I see now that one’s birth is irrelevant. It’s what you do that determines who
+you are."
+
+- "There’s no sense in going out of your way to get somebody to like you."
+
+- "It’s more important to master the cards you’re holding than to complain about
+the ones your opponent was dealt."
+
+- "Do you always need a reason to help somebody?"
+
+- "You see, sometimes friends have to go away, but a part of them stays behind
+with you."
+
+- "If we live a monotonous life, do we get used to it and stop thinking about how
+to change it?"
+
+- "If somewhere in this world there is someone who understands you, it feels like
+that person is right beside you, even if youre as far apart as the end of the
+land and the top of the sky"
+
+- "So, this is my power... but what is my purpose?"
+
+- "The Earth is so pretty, so blue…"
+
+- "A good friend left me and, I miss her, every day... but I... I know we'll
+always be friends forever!"
+
+- "To all of my beautiful future children who taught me how to believe. I offer
+all of you now my sincerest hopes, and wishes that the future world will become
+more and more beautiful. And that is exactly the kind of world you find
+yourselves in."
+
+- "We're all architecting our lives day by day, and when our life comes to an
+end, people will see what mattered to us most by looking at what we built. When
+you look back on your life, you'll see what you've built and you'll see what
+you've loved...and you'll realize that you build what you love. Your most
+powerful artifact in which you build your life upon are people. When you
+understand this, you begin to realize that your building blocks are the
+relationships you have, sustain, and influence. don't just want to be a builder
+of applications. I don't just want to be a builder of systems. I don't just
+want to be a builder of brands. I want to be a builder of people, using those
+avenues to do so. When lay on my deathbed, I want to look back on my life and
+see that what I built was people. I want to see that what I built was the
+product of a love for humanity. You build what you love. What are you
+building?’
+
+- "Which is worse, to live as a monster or to die as a good man?"
+
+- "Sanity is not a choice Marshall, you can't just choose to get over it."
+
+- "What if while you were looking into them, they were looking into you?"
+
+- "Wounds can create monsters and you are wounded, martial. And wouldn't you
+agree, when you see a monster, you must stop it?"
+
+- "God loves violence. I... I hadn't noticed. Sure you have. Why else would there
+be so much of it? It's  in us. It's  what we are. We wage war, we burn
+sacrifices, and pillage and plunder and tear at the flesh of our brothers. And
+why? Because God gave us violence to wage in his honor. I thought God gave us
+moral order. There's  no moral order as pure as this storm. There's  no moral
+order at all. There's  just this: can my violence conquer yours??
+
+- "Do you know how pain enters the body, Marshal? Do you? Depends on where you're
+hurt? No, it has nothing to do with the flesh. The brain controls pain."
+
+- "That's  the beauty of it. Mental Patients make the perfect subjects, if they
+talk nobody listens to them!"
+
+- "He wanted to ask her what sound a heart made when it broke from pleasure, when
+just the sight of someone filled you the way food, blood, and air never could,
+when you felt as if you'd been born for only one moment and this, for whatever
+reason, was it."
+
+- "This world can only give me reminders of what I don't have, can never have,
+didn't have for long enough."
+
+- "The brain controls pain. It controls fear. Sleep. Empathy. Hunger. Everything
+we associate with the heart or the soul or the nervous system is actually
+controlled by the brain. Everything. What if you could control it?"
+
 - "If you are deemed insane, then all actions that would oherwise prove you are
 not do, in actuality, fall into the framework of an insane person’s actions.
 Your sound protests constitute denial. Your valid fears are deemed paranoia.
@@ -125,6 +205,7 @@ the end, there were still some people or matters that could not be let go."
 
 - "All things have a beginning and an end. Even those of Concealed Divinity and
 those above, who have obtained Grand Liberation, have a birth and death."
+
 - "Things easily decay, but the effects they leave are everlasting. Ultimately,
 one must see how deep the tracks are that one has left." The Divine Empress
 turned and looked at her, continuing, "And those tracks come from your and my
@@ -139,6 +220,7 @@ Only this way can we get close to true eternity."
 weak to protect themselves None of them are important." Xu Yourong asked, "Then
 what is the most important thing?" The Divine Empress looked up towards the sky
 and leisurely said, "To exist." After a moment of silence, Xu Yourong asked,
+
 - "How should we exist?" "How to exist? Take all that is wondrous, see how long
 can one exist, how can one make the soul inextinguishable, and proceed in the
 direction of the Great Dao."
@@ -156,6 +238,7 @@ innumerable choices. Who can avoid them completely?"
 - "On the verge of death, even the words are kind, let alone one's  intentions."
 
 - "Do you know when people are the most courageous?" "When confronting death?
+
 - "It's  not wrong, but there is another situation...because of love." The Divine
 Empress looked out the window at the dark palace and continued, "In other
 words, when driven by passion."
@@ -341,134 +424,4 @@ institutions can and should have a heart."
 coming true."
 
 - "Am I a fun-loving Tigger or am I a sad-sack Eeyore?"
-
-- "What do we mean by G.o.d? Being detached from life and death as well as being
-one with heaven and earth like G.o.d! In this aspect, we are no different from
-the elementalists. They also believe that they have a common origin with heaven
-and earth and they will live forever. In short, they are following the path of
-the cultivators from the past. However, we are different. We walk in between
-the path of life and death. We treat life and death as an integral whole, that
-they are similar. Our theory is profound. Walking between life and death is
-akin to walking on a tightrope between high cliffs. Below our feet is an
-unknown abyss. In order to succeed, our hearts and minds must be resolute. We
-must not hesitate, else we will definitely fall into an situation with no hope
-of reprieve.
-
-- "You have to complete the path you chose even if it’s going to kill you," the
-red-dressed girl said plainly.
-
-- "If one works for it and he doesn’t succeed, then it can be said that his fate
-had already been decided. However, if one never even tries then serves him
-right."
-
-- "One can either choose to let others control his life, or he can choose to
-control others’ lives."
-
-- "There were four seasons in life. The spring of adolescence, the summer of
-youthfulness, the autumn of confidence, and the winter of obsolescence.
-However, there would only be one cycle of life."
-
-- "From mankind’s perspective, the world was ever-changing. Perhaps from the
-world’s perspective, it was mankind that was ever-changing."
-
-- "A strong body needs an equally mighty soul."
-
-- "You’re still young. When you’re older, you will understand that time is money.
-You won’t give your money to someone who has nothing to do with you, right?
-Then why are you wasting time on them?"
-
-- "I feel that you’re like me: someone who has desire. My desire is to become a
-Grandmaster and defeat Dai Gang. I don’t know what your desire is and whether
-it is easier or harder to achieve than mine, but if you have a desire, you have
-to be hard on yourself. Mediocrity is not enough to make your desire come
-true."
-
-- "When a Grandmaster is alive, he defeats all heroes under the sky. When he
-dies, he stirs all clouds under the sky. Look, the sun and moon lose their
-splendor and the stars dim. The sky is so high, the earth is so vast. All
-living things gather to grieve. How heroic! How delightful! Living a life
-without being a Grandmaster is unsatisfying!"
-
-- "If you’re short on money, everyone else is a beggar."
-
-- "He viewed each and every challenge from the previous half of his life as
-fate's  way of refining his very being. Not once did he lose hope, give himself
-up to anger, or whimper in sorrow. His heart was as pure as that of a newborn."
-
-- "A human mind was complicated yet centralized at the same time. It was a world…
-a complete, diverse world that was beyond mankind's  understanding. It could
-emit light and warmth like the sun, giving warmth to the souls surrounding it.
-However, it could also pile up shadows that were darker than the night in a
-secluded corner.  It could be impregnable, enduring the cruelest torture and
-the deepest agony in the world. It could also be soft like an air bubble that
-could be shattered easily with a gentle poke from a crisp toothpick. Nobility
-and malevolence could be buried in the same tomb while courage and cowardice
-were like two vines that entwined each other. It was extremely difficult to
-make sense of them and tell them apart."
-
-- "As the saying goes, it is only when one experiences true knowledge that he
-finally understands how little he knows"
-
-- "But magic is also an art, great lady," the Murgo said. "There are many who
-think so," Aunt Pol said, "but true magic comes from within and is not the
-result of nimble fingers which trick the eye."
-
-- "Everything is idiocy if you choose to look at it in the proper light,"
-
-- "Why are the people all so unhappy?" he asked Mister Wolf."They have a stern
-and demanding God," Wolf replied."Which God is that?" Garion asked."Money,"
-
-- "It is power that teaches patience; holding power, I mean. And you learn the
-price it exacts—which is something I never knew when I was your age and thought
-a sword and quick wits could deal with anything. I never knew the price you pay
-for power."
-
-- "Authority? You want the authority to create, to be noticed, and to make a
-difference? You’re waiting for permission to stand up and speak up and ship?
-Sorry, there’s no authority left. Oprah has left the building. She can’t choose
-you to be on her show because her show is gone. Youtube wants you to have your
-own show now, but they’re not going to call you. Dick clark has left the
-building. He’s not going to be able to get you a record deal or a tv gig
-because he and his show are long gone. Itunes and a hundred other outlets want
-you to have your own gig, but they’re not going to call you, either. Neither is
-rodney dangerfield or the head of programming at comedy central. Marc
-marondidn’t wait to be cast on saturday night live — he started his own podcast
-and earned a million listeners. Our cultural instinct is to wait to get picked.
-To seek out the permission, authority, and safety that come from a publisher or
-a talk-show host or even a blogger who says "i pick you." Once you reject that
-impulse and realize that no one is going to select you — that prince charming
-has chosen another house in his search for cinderella — then you can actually
-get to work. The myth that the ceo is going to discover you and nurture you and
-ask you to join her for lunch is just that, a hollywood myth. Once you
-understand that there are problems waiting to be solved, once you realize that
-you have all the tools and all the permission you need, then opportunities to
-contribute abound. The opportunity is not to have your résumé picked from the
-pile but to make the pile irrelevant by leading without having to be asked.
-When we take responsibility and eagerly give credit, doors open. When we grab a
-microphone and speak up, we’re a step closer to doing the work we’re able to
-do. Most of all, when we buckle down, confront the lizard brain, and ship our
-best work, we’re becoming the artists we’re capable of becoming. No one
-is going to pick you. Pick yourself."
-
-- "There are kinds of action, for good or ill, that lie so far outside the
-boundaries of normal behaviour that they force us, in acknowledging that they
-have occurred, to restructure our own understanding of reality. We have to make
-room for them."
-
-- "Deny not your own mortality."
-
-- "Names are like clothes, Durnik," Silk explained. "We put on what's  most
-suitable for the occasion. Honest men have little need to wear strange clothes
-or strange names Those of us who aren't so honest, however, occasionally have
-to change one or the other."
-
-- "Women are almost always angry with us for one reason or another. It's  one of
-the things you'll have to get used to as you get older."
-
-- "Events are like horses," Hettar told him. "Sometimes they run away. After
-they've run for a while, though, they'll start to walk again, Then there'll be
-time to put everything together."
-
-- "Patience, Excellency," Silk advised. "The more we suffer, the greater the
-rewards in the end."
 

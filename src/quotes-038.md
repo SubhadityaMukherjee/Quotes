@@ -1,4 +1,235 @@
-<!-- Page 38 of 53  ·  quotes 3701–3800 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 38 of 54  ·  quotes 3701–3800 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "If children do not receive enough attention, psychological problems often emerge."
+
+- "If I like myself, it is easy for me to like people around me. But if I am unhappy with
+myself, it is easy to feel unhappy with those around me. May you become your own biggest
+fan!"
+
+- "The absurd is essentially a divorce. It lies in neither of the elements compared; it is
+born of their confrontation."
+
+- "neither the human nor the universe are necessarily absurd on their own, but rather,
+their relationship is absurd. As humans, we exist with an innate desire for meaning,
+reason, and order, but yet, we simultaneously exist in a universe that appears to lack all
+of the above. So far as we can tell, the universe is completely indifferent. Thus, what we
+want and expect from the universe is fundamentally in contradiction with what we get. In
+this conflict, the absurdity of the human experience is found."
+
+- "Unlike anything else in the known universe, we are able to consciously observe,
+consider, reason, and act. As a result of our unique abilities, we ask ourselves why. We
+desperately try to find the answer. We get increasingly clever in our attempts, yet every
+time, just like the rock in The Myth of Sisyphus, at some point, we return to the bottom
+of the hill, leaving us to start anew."
+
+- "The struggle itself towards the heights is enough to fill a man's heart."
+
+- "Everyone is experiencing the same dissonance of being, living their own story through
+the nauseating rollercoaster of ups and downs to nowhere. It is both banal and almost
+hollow to say that we should be compassionate and kind to others because of this. Every
+first-grade child knows this in fewer words. The notion of togetherness and compassion is
+sold to us in soda and fast-food commercials as well as nearly every Disney movie. It is
+so commodified, clichéd, and obvious that it's hard to even take seriously the idea of
+needing to consider it further. Life isn't a soda commercial nor a Disney movie, and it
+isn't anywhere near as clean as a first-grade child could likely even imagine. There is a
+world filled with malevolence and anger and greed and impatience and all the rest. But for
+this very reason—because compassion is so trite and yet still seemingly so hard and
+absent—it is perhaps all the more essential and rational to give it serious focus and
+effort."
+
+- "There is but one thing that seems to have any positive effect against such absurdity: a
+sort of compassion for the whole. We must try to remember that everyone is in it, and
+everyone is flailing against it for the same reasons as everyone else. Thus, within limits
+perhaps, everyone deserves such consideration and compassion."
+
+- "Man can do what he wills but he cannot will what he wills."
+
+- "We see the world not as it is, but as we are,"
+
+- "In all cases, for the most part, knowing what the real color of things are
+(metaphorically speaking) is perhaps minimally relevant to living and thriving as an
+individual and as a species. Perhaps what matters more is that we can agree and disagree
+on subjective things sufficiently well enough, cordially enough, and often enough. And it
+seems as though that in order to do so, if such a feat is possible, the prerequisite is a
+willingness to embrace often being wrong."
+
+- "We so often take personally what the world does without us in mind."
+
+- "Those who are often angered reveal themselves to be a strange sort of optimist, still
+in denial of the tragedies of this life and the death of their youthful innocence—the
+belief that life can be what it can't."
+
+- "A theory in psychology known as appraisal theory, initially developed by psychologist
+Magda Arnold, suggests that our emotional responses are in large part created by our
+conscious evaluations of events—how we view, interpret, and label stimuli rather than the
+stimuli themselves. In other words, in between our primary experience of an event and our
+emotional experience of an event, there is a filtering process that occurs through and is
+based on our cognitive faculties. In this space, how we think based on our experiences,
+perceptions, views, and values determines what we feel."
+
+- "For the stoics, events in the world are objective and neutral, and our qualitative
+emotional experiences are merely a product of the narratives we tell ourselves. "It
+doesn't hurt me unless I interpret it's happening as harmful to me. I can choose not to,"
+wrote Marcus Aurelius."
+
+- "Rather, if we realize that the world has not singled us out, that most people are good
+people trying their best, that ignorance is far more often behind the curtain and not
+malice, that our emotions are not the result of being made victims by others but by us not
+taking ownership of them ourselves, that life is inherently difficult and suffering is
+fundamental to everyone, we can perhaps more accurately evaluate if what we are angered by
+is worthy of being angry about, and how."
+
+- "Knowing how to know and be yourself versus actually knowing and being it is like
+knowing the mechanics of how to surf on paper and then going out into the ocean and
+encountering an actual wave."
+
+- "Of course, it feels very nice to be liked. In certain cases, it is essential. Our
+wellbeing depends to some degree on the quality of our social relations, which require us
+to be sufficiently liked by at least some people some amount of the time."
+
+- "In infancy and early childhood, we are inadvertently conditioned by our parents,
+teachers, and other people we encounter to feel like we are the center of all attention,
+the most important thing in the world and beyond. Everything we do is relevant,
+consequential, or impressive. When we walk for the first time, it's the most important
+thing that could have happened in the world that day. If we draw on the wall, it's the
+worst thing. But of course, the world did not care about either of those things that day
+at all. As we age and are further socialized into the world, we slowly but surely realize
+that the world mostly has never and will never care about what just about anyone does,
+including us. We are not really at the center of anything at all, not even our own minds.
+We are not important in any grand sense. No one really cares."
+
+- "In his famous twentieth-century play, No Exit, Jean-Paul Sartre wrote, "You remember
+all we were told about the torture-chambers, the fire and brimstone, the "burning marl."
+Old wives' tales! There's no need for red-hot pokers. Hell is other people!"
+
+- "Even on the highest throne in the world, we are still sitting on our ass,"
+
+- "I am not who you think I am; I am not who I think I am; I am who I think you think I
+am,"
+
+- "I have sometimes thought that, in order to be a good minister, it was necessary to
+leave the ministry,"
+
+- "No man," he wrote, "can antedate his experience or guess what faculty or feeling a new
+object shall unlock, any more than he can draw today the face of a person whom he shall
+see tomorrow for the first time." In other words, no one can know what life will be like
+tomorrow nor what such life may cause one to think or feel. However, one must move with it
+and live according to the present now."
+
+- "Arguably, great artists and writers aren't popular because they say something no one
+has thought of or experienced before, but because they say something that most of us have
+but weren't sure we were right in doing so. Emerson"
+
+- "Perhaps so long as one authentically stands in their own position of confusion and
+limitation, they have still remained in accordance with their own relative truth and
+greatness, and the notion of self-reliance holds steady."
+
+- "One's shadow does not disappear by looking away from it. In the same way that one
+cannot literally evade the shadow of their body by outrunning it, there is no move or
+evasive tactic that separates the individual from their psychological shadow. The danger,
+rather, is in the attempt to do so—the ignorance and denial of it. Jung wrote: Good does
+not"
+
+- "One must know of a problem to be able to fix it, and it is an act of healing to admit
+that one is sick."
+
+- "man is a worm and food for worms. This is the paradox: he is out of nature and
+hopelessly in it; he is dual, up in the stars and yet housed in a heart-pumping,
+breath-gasping body that once belonged to a fish and still carries the gill-marks to prove
+it."
+
+- "What does it mean to be a self-conscious animal? The idea is ludicrous, if it is not
+monstrous. It means to know that one is food for worms. This is the terror: to have
+emerged from nothing, to have a name, consciousness of self, deep inner feelings, an
+excruciating inner yearning for life and self-expression and with all this yet to die. It
+seems like a hoax."
+
+- "One must be careful to not make the singularness of their shot at existence a pressure
+to get it all right—to do all the right things and think all the right thoughts and feel
+all the right feelings."
+
+- "The point is quite the opposite; you will mostly do a lot of the wrong things, think a
+lot of the wrong thoughts, and feel a lot of the wrong feelings. But precisely because
+this is your one shot at life, this must be ok. You are driving blind through the most
+impossibly complex, strange maze that you know ends in a head-on collision with a wall.
+What use is getting more upset or guilty about feeling upset or guilty in an existence
+that set you up? Of course, this is far easier said than done, but perhaps in true, deep
+contemplations of one's mortality, at least on occasion, this reminder can sometimes serve
+more as a sedative and not merely a stimulant."
+
+- "It is strange and rather terrifying to consider that we can be something for now and
+nothing forever—but perhaps it is only because of the fact that we are nothing forever
+that we can be something for now."
+
+- "We might never know what nothing is until we know nothing at all. And even then, we
+might not. We are all free to imagine nothing however we like. Because if nothingness is
+in fact the source and destiny that connects us all, then perhaps, through nothing,
+anything is possible."
+
+- "If we are to be fully human and fully alive and aware, it seems that we must be willing
+to suffer for our pleasures."
+
+- "the more one tries to remove or escape the negative experience of life, the more
+negative it becomes. Rather, the more one faces it willingly and intentionally, the
+stronger and more equipped one becomes—the more meaningful and positive the pain and
+hardship can be made to feel ."
+
+- "However, beyond this area of exceptional misery, there still exists a realm of
+suffering and unhappiness entrenched in human life that appears to be unshakeable, even
+when one's circumstances are relatively good. This realm can draw the healthy, decent,
+prosperous person to self-hatred and self-sabotage, to addiction and suicide. It is the
+realm of misery in the background of any and every moment that should be enjoyed simply
+and happily but isn't. It is the mental pain that is specific to no one but applicable to
+everyone."
+
+- "The person who depends on their ability to accomplish away the struggle, sadness, and
+uncertainty of life, could accomplish the whole world just to be met with a disappointment
+so intense that it would destroy whatever is left of them. Perhaps, then, our quality of
+life is not found in the heights of our happiness or pleasures but in how we choose to
+consider and look at what surrounds these extremes, how we attempt to create a life of
+personal intention, meaning, and decency, and justify the inevitable lows rather than
+always trying to escape them."
+
+- "In every exhalation, there is a breath to come so long as we keep breathing. In every
+moment of hardship, pain, confusion, or weakness, there is a story taking place filled
+with the potential for triumph and vitality worthy of tears bursting with wonder and
+fondness for life, so long as we keep moving. So long as there is life in us, there is the
+rare and exclusively human opportunity to take this chaotic, thrashing existence, this
+strange nothingness, and make it something. There is the chance to connect and love and
+help, to feel and think and live, to experience the cosmic everything. And at some point,
+perhaps that is enough."
+
+- "When you get the shit kicked out of you long enough . . . you will have a tendency to
+say what you really mean," said"
+
+- "Too many writers write for the wrong reasons. They want to get famous or they want to
+get rich or they want to get laid by the girls with the bluebells in their hair . . . When
+everything works best, it's not because you chose writing, but because writing chose you.
+It's when you're mad with it. When it's stuffed in your ears, nostrils, under your finger
+nails. It's when there's no hope but that."
+
+- "There are degrees of madness, and the madder you are the more obvious it will be to
+other people. Most of my life I have hidden my madness within myself but it is there,"
+
+- "Men are so necessarily mad, that not to be mad would amount to another form of
+madness,"
+
+- "Like a wild elephant, the untamed mind can inflict enormous damage on ourselves and
+those around us."
+
+- "One traditional Tibetan doctor whom I know once commented on people living in the West,
+"From the perspective of Tibetan medicine, you are all suffering from nervous disorders.
+But given how ill you are, you are coping remarkably well!"
+
+- "Physicians don't heal abrasions, and surgeons don't mend bone fractures. Instead, they
+do whatever they can to allow the body to heal itself—by keeping the wound clean, setting
+the broken bone, and so on."
+
+- "The reason we don't devote more time to balancing our minds is that we are betting our
+lives that we can find the happiness we seek by chasing fleeting pleasures. Psychologists
+have called this the hedonic treadmill, and the first step to escaping from this
+exhausting grind is to seek a vision of genuine happiness that draws on our own, largely
+untapped inner resources."
+
 - "During the path of cultivation, he would meet enemies one by one. If he wanted to
 improve, he would have to constantly look towards the future and review the past. Only
 then, he would be able to improve slowly."
@@ -183,207 +414,4 @@ knowledge and training are reserved are freed so far as possible from the obliga
 simple labor. In this way a structure is given to all labor processes that at its extremes
 polarizes those whose time is infinitely valuable and those whose time is worth almost
 nothing."
-
-- "The more fragmented and minutely timeable work becomes, the more meaningless it
-becomes."
-
-- "A psychopath would make a terrible content moderator."
-
-- "At Cognizant, where humans keep coming in for work despite the conditions, one worker
-tells Newton that they are merely "bodies in seats."
-
-- "The tragedy of fungible labor time lies first in its historical association with
-coercion, exploitation, and the imagining of people as machines. Time is the punitive
-dimension in which the wage worker is both measured and squeezed. But beyond that, an
-overemphasis on fungible time upholds an impoverished view of what time and labor are in
-the first place."
-
-- "Just because you're going forward doesn't mean I'm going backward."
-
-- "As a form of Protestantism, seventeeth-century Puritanism invited introspection and
-constant evaluation of the self against a high moral standard, a practice that included
-the use of daily journals where self-observation and measurement could take place."
-
-- "A feeling of time pressure can result from constantly having to switch tasks or
-coordinate with external factors. Here,"
-
-- "Self-help has generally promised to revolutionize your life, not the social or economic
-hierarchy—and you can't really blame anyone for not fulfilling a promise they never made.
-At the same time, even seemingly practical self-help can read as an invitation to find a
-niche in a brutal world and wait for the storm to pass you over."
-
-- "If time management is not simply an issue of numerical hours but of some people having
-more control over their time than others, then the most realistic and expansive version of
-time management has to be collective:"
-
-- "Excess work and performance escalate into auto-exploitation."
-
-- "Trained to set her sights on infinity, she never experiences the feeling of having
-actually reached a goal and, instead, exhibits the "auto-aggression" of the master and
-mastered rolled into one. She is forever "jumping over [her] own shadow," frustrated at
-the impossible gap between what is and what could be."
-
-- "Social comparison is probably as old as time, but to compare a wide range of people
-using the same grades, you have to be able to turn those people into data and decide what
-you're optimizing for."
-
-- "If, in Taylorism, the measurement of work was an attempt to intensify it, then, in
-eugenics, the measurement of people was an attempt to "mold" them in a specific direction,
-a mechanistic combination of Mendelian genetics and social Darwinism."
-
-- "this is "a terrible time to have a midlife crisis." But advice for winning the rat race
-assumes that you're running"
-
-- "But advice for winning the rat race assumes that you're running in it, rather than
-peeling away from a vanishing dream."
-
-- "Slow living is now 'for sale' and approaches a consumerist lifestyle mostly for
-middle-class metropolitan dwellers—the majority of whom are probably far from holding
-transformative, progressivist or even socialist agendas. Arguably, many would admit that
-'it all needs to slow down,' but such slowness would then be, more often than not,
-consumed, and consumed privately."
-
-- "It's just that, as the experience economy expands to include commodified notions of
-things like slowness, community, authenticity, and "nature"—all while income inequality
-yawns wider and the signs of climate change intensify—I feel the panic of watching
-possible exits blocked. I keep wanting to do something instead of consume the experience
-of it. But seeking new ways of being, I find only new ways of spending."
-
-- "Whether conspicuous, compensatory, or both, consumption has long had a relationship to
-leisure, which can make leisure a strange kind of circumscribed freedom."
-
-- "Sociologists have observed that once assembly-line jobs made it difficult to see how
-well or hard someone had worked, what became visible instead was how much someone was able
-to consume. This consumption, in turn, became the new way to signal how hard one had
-worked."
-
-- "What makes you unique?" is a standard interview question. As a result, what once looked
-like leisure so easily becomes the arena both of the eternal self-upgrade and the search
-for some uniqueness to exploit. Marketing advice formerly given to companies—for example
-to "find your niche"—is now applicable to individuals during every moment of the day."
-
-- "true leisure requires the kind of emptiness in which you remember the fact of your own
-aliveness."
-
-- "Leisure is not refreshment-for-work but something completely different that exists for
-its own sake."
-
-- "If I exhibited the leisure mindset while in line for groceries, it was at least in part
-because I wasn't worried about paying for them."
-
-- "Pieper's definition of leisure emphasizes wholeness; it is "when a man is at one with
-himself, when he acquiesces in his own being."
-
-- "Heartbreak did not make me love the birds less; it did not make the ocean less
-beautiful; it only suffused my seeing them with a deep desire for things to be different."
-
-- "momentary pattern of light. Perhaps this is precisely what Pieper meant with his
-"vertical" time—maybe it is vertical not just in that it's the opposite of horizontal, but
-also in that it reaches deep into the recesses of history even as it stretches up toward
-an infinite and utopian ideal."
-
-- "Rest is not some cute lil luxury item you grant to yourself as an extra treat after
-you've worked like a machine and are now burned out," Hersey tweeted in October 2020.
-"Rest is our path to liberation. A portal for healing. A right."
-
-- "Hersey uses social media for work but is critical of the way it encourages a grind
-culture with historical roots in capitalism and white supremacy."
-
-- "introduced"—for example, indentured or wage labor. Whereas"
-
-- "Whereas the source of boredom for the leisure class was free time, the source of
-boredom for everyone else was work, and working people had no problem deciding what to do
-with whatever leisure time they were allotted."
-
-- "In its least useful form, the concept of leisure time reflects an undignified process:
-working to buy the temporary experience of freedom and then faithfully breathing air in
-the little gaps that are allowed in the horizontal plane of work. Rest and recreation are
-applied like maintenance, the leisure machine to the feeding machine."
-
-- "At its most useful, however, leisure time is an interim means of questioning the bounds
-of the work that surrounds it. Like a stent in a culture that can't stand what looks like
-emptiness, it might provide that vertical crack in the horizontal scale of work and
-not-work—that critical pause during which the worker wonders why she works so much, where
-collective grief is processed, and where the edges of something new start to become
-visible."
-
-- "What songs are audible when the wind stops? What has been kept alive in the time
-snatched from work and sheltered from ongoing destruction—what moments of recognition,
-what ways of relating, what other imagined worlds, what other selves? What other kinds of
-time?"
-
-- "In his 2021 special, Inside, Bo Burnham deadpans that "the outside world, the
-non-digital world, is merely a theatrical space in which one stages and records content
-for the much more real, much more vital, digital space. One should only engage with the
-outside world as one engages with a coal mine. Suit up, gather what is needed, and return
-to the surface."
-
-- "For Bergson, time was duration—something creating, developing, and somewhat mysterious,
-as opposed to abstract and measurable. According to him, all our problems conceiving of
-the true nature of time stemmed from wanting to imagine discrete moments sitting side by
-side in space. He further noted that this "space" was not concrete environmental space,
-but something purely conceptual: Think of that green-on-black grid that sometimes shows up
-in the virtual nonspace of sci-fi movies, and think of moments in this kind of time as
-cubes existing in that space. (This conception also provided the grounds for the concept
-of fungible time I mention in chapters 1 and 2.) Bergson thought that our predisposition
-toward thinking of time in these kinds of spatial terms came from our experience
-manipulating inert matter; we wanted to see time in the same way, as something we could
-cut up, stack, and move around."
-
-- "Time as expressed in these processes—which Bergson explains using what he calls the
-élan vital (usually translated as "vital impetus" or "life force")—is not an abstract
-quantity to be counted up and measured. Instead, it's another irreversible turn of the
-kaleidoscope, something driving division, reproduction, growth, decay, and complexity. The
-old adage "You never step in the same river twice" also speaks quite well to what Bergson
-is describing, especially if you go on to consider the shifts in evolution of the
-riverbank, the canyon that the river may be slowly carving, and maybe even the cellular
-processes in your foot."
-
-- "Meanwhile, as you stand there thinking about it, the live edge of the lava is moving
-forward into the future, which is imminent in every present moment but also contains the
-history of everything that happened before. Another example would be a seed that has
-fallen from one individual in a generation of plants and that contains the instructions
-for a future plant."
-
-- "Clock time is not the only form of time reckoning we experience, but it is certainly
-primary in how many of us think about the "stuff" of time. And it was an allegiance to
-clock time that allowed colonists, anthropologists, and contemporary Western observers in
-general to view non-Western and indigenous cultures as being without, or outside, time."
-
-- "We don't have a word for nonlinear in our languages because nobody would consider
-traveling, thinking, or talking in a straight line in the first place. The winding path is
-just how a path is, and therefore it needs no name."
-
-- "by every subsequent wave. Look again at the pebbles. Make no mistake: They are neither
-signs nor symbols of time. No—they really are two things at once: seafloor from the last
-ice age, and future sand."
-
-- "Resting here gives us a very different sense of being "on time." Rather than avatars
-passing through an empty calendar square, we are actually on top of the material outcome
-of processes that span millions of years into both the past and the future. Suddenly,
-everything we look at is suffused with concrete time: not just the pebbles, crags, and
-cliffs, but also the fog's slow movement to the south; each wave's unrepeatable expression
-of tides and wind; the frenetic activity of the beach flies; the dispersion of air and
-water through our bodies; and even the chemicals flashing across our synapses as we think
-these very thoughts. They, too, will never repeat, and they, too, make the world anew."
-
-- "ROCKS WILL TEACH you the inseparability of time and space."
-
-- "I see that the events of the past are still present….This impression is a glimpse not
-of timelessness but timefulness, an acute consciousness of how the world is made
-by—indeed, made of—time."
-
-- "Newtonian time is the kind of time that can be measured, bought, and sold. Wage work
-requires us to see time as "stuff" divorced from bodies and environmental context."
-
-- "There is no inherent reason for a season to be any length of time, much less of four
-equal, mutually exclusive lengths. Until relatively recently, the naming and recognition
-of seasons or seasonal entities was an indicator of some action to be taken: collecting,
-hunting, harvesting."
-
-- "If, as Deloria puts it, each place exhibits a "personality," then it is made out of as
-much when as who: a string of overlapping developments like the tracks of a song. This
-song sounds slightly different in each place:"
-
-- "invisibility is part of the very nature of habit."
 

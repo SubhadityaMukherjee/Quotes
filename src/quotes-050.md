@@ -1,4 +1,180 @@
-<!-- Page 50 of 53  ·  quotes 4901–5000 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 50 of 54  ·  quotes 4901–5000 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "What is karma? I seek a wooden house, but this mountain has no wood, so I plant this
+lone tree. During sunrise, I harvest the branches. During midday, I harvest the wood. And
+during sunset, I harvest the roots… What is karma. Planting the tree is karmic cause and
+harvesting the wood is karmic effect… The day the house took form, it also became a karmic
+cycle…"
+
+- "As years pass, people will see the willow leaves cover the city. They don’t understand
+that the willow leaves come to find the person they are connected to. Each willow leaf
+represents the entire life of a person…
+
+- "Karma, it can’t be cut because it is void… Karma is karma. Fate gathers to be scattered
+in the void."
+
+- "Memories are like water in your palm. Although the water will flow away, the palm will
+remember the temperature of the water. Then, when the palm holds the water again, the palm
+will remember, and the water will also remember the warmth of the palm.
+
+- "I cover the world in fire only so you won’t have a reason to be cold.
+
+- "If life and death were a rope, countless lives and deaths would connect together to
+form circles. These countless circles would form a net, and that net would be karma. This
+large karma net would be used to catch oneself in the river of reincarnation. The river of
+reincarnation contains true and false, and only with a pair of eyes that can see through
+true and false can one throw the net to fish oneself out.
+
+- "A reincarnation is a lifetime, and one has many ties in life. How could it be all cut
+so easily? This is the power of reincarnation… It can make one unable to free themselves
+or not want to free themselves." There was confusion in Wang Lin’s eyes, and he seemed to
+gain more enlightenment in this confusion.
+
+- "oppressive societies create the monsters they ultimately come to hate and fear.
+
+- "Legs are the wind, the land, and the root of all strength"
+
+- "Whilst the monkey cried incessantly from one side of a river to another, the dreadfully
+cold wind froze his crotch!
+
+- "How powerful is a practitioner isn’t solely based on the power of his moves, it’s more
+important that the spirit is strong! If your spirit loses to a pile of broken rocks, no
+matter how powerful you become you will still be a total failure!"
+
+- "It’s easy to destroy the god in the temple but difficult to destroy the god in your
+heart.
+
+- "As what Buddhism goes by, if there’s a Buddha in you heart, it’s hard for you to become
+Buddha.
+
+- "Eight hundred old men idle at home, filled with ambitions that never cease; rising to
+the heaven after death, clouds still float and water still flows!
+
+- "The sentence that there’s no end to learning is wrong and it should be there’s no end
+to creating. One can’t achieve only by learning, learning all one’s life. It is creation
+that has no limit. You’re still young now and need to absorb the stuff that others have
+created. When your knowledge has accumulated to a certain extent, you must try to create.
+If you always learn, you will always be a student but once you create a move, you will be
+master."
+
+- "I cant keep saying im in a perpetual state of learning to perfect something. Youll
+never perfect something, you just have to put yourself out there and face trial by fire.
+
+- "When life is weak and one’s direction is lost, coming and going like a lunatic.
+
+- "To the people of Disabled Elderly Village, the disability of the body was not a
+disability. Their true disabilities lay in their hearts.
+
+- "The true disability is when both the body and the heart are disabled.
+
+- "One’s life was nothing more than a cultivation path, and it was easy to be led astray
+by an extreme way of thinking. Anyone who didn’t have a mature reflection and unmovable
+thoughts would easily be led astray by their own heart.
+
+- "the people of the village had said that one can lose a battle, but not their bearing.
+
+- "Ordinary people can only see the danger, but wise people can see the opportunity that
+lies with the danger. However, only those with the abilities can be able to grasp this
+opportunity!
+
+- "One should not think about boasting, for after the crisis comes hope. When looking at
+the sky and sea, a journey taken seems but a smoke!
+
+- "Only by breaking the despair in one’s heart can one blaze with stronger hope and
+fighting spirit.
+
+- "Heaven never bars one’s way; it’s mostly humans themselves barring their own way by
+giving up hope! I never give up so I can make my way out alive!"
+
+- "How can a man not have any ambition in this world, if one doesn’t have any, what’s the
+difference between them and a dried fish?"
+
+- "A true leader can change a bad thing into something good, to twist everyone’s hearts
+together to form a rope.
+
+- "You only notice the stain in your life but have forgotten the saplings you have left
+behind. They have already grown into towering trees and lush green forest. Your Highness,
+look forward."
+
+- "Big sister, this is the difficult part in breaking the god in one’s heart and breaking
+the god in the temple. The more terrifying the god is, the more fearful and respectful,
+the foolish commoners would be, which makes it easier for the gods to receive worships.
+Imperial Preceptor is trying to reform the popular custom to break the god in the people’s
+hearts. No matter divine arts practitioner or god, they must work for the people and serve
+the people."
+
+- "After all, to the well-organized mind, death is but the next great adventure. You know,
+the Stone was really not such a wonderful thing. As much money and life as you could want!
+The two things most human beings would choose above all — the trouble is, humans do have a
+knack of choosing precisely those things that are worst for them."
+
+- "You-Know-Who —" "Call him Voldemort, Harry. Always use the proper name for things. Fear
+of a name increases fear of the thing itself."
+
+- "You think the dead we have loved ever truly leave us? You think that we don’t recall
+them more clearly than ever in times of great trouble?"
+
+- "Dumbledore was the one who stuck up for me after Dad went. Got me the gamekeeper
+job . . . trusts people, he does. Gives ’em second chances . . . tha’s what sets him apar’
+from other Heads, see. He’ll accept anyone at Hogwarts, s’long as they’ve got the talent.
+Knows people can turn out okay even if their families weren’ . . . well . . . all tha’
+respectable. But some don’ understand that. There’s some who’d always hold it against
+yeh . . . there’s some who’d even pretend they just had big bones rather than stand up an’
+say — I am what I am, an’ I’m not ashamed. ‘Never be ashamed,’ my ol’ dad used ter say,
+‘there’s some who’ll hold it against you, but they’re not worth botherin’ with.’"
+
+- "Understanding is the first step to acceptance, and only with acceptance can there be
+recovery."
+
+- "Numbing the pain for a while will make it worse when you finally feel"
+
+- "If I thought I could help you," Dumbledore said gently, “by putting you into an
+enchanted sleep and allowing you to postpone the moment when you would have to think about
+what has happened tonight, I would do it. But I know better. Numbing the pain for a while
+will make it worse when you finally feel it."
+
+- "As Hagrid had said, what would come, would come . . . and he would have to meet it when
+it did."
+
+- "Trivial hurts, tiny human accidents," said Firenze, as his hooves thudded over the
+mossy floor. "These are of no more significance than the scurryings of ants to the wide
+universe, and are unaffected by planetary movements."
+
+- "Youth cannot know how age thinks and feels. But old men are guilty if they forget what
+it was to be young . . ."
+
+- "He has never wanted to occupy the throne himself; he prefers the backseat — more room
+to spread out, you see."
+
+- "people find it far easier to forgive others for being wrong than being right,"
+
+- "Age is foolish and forgetful when it underestimates youth. . . ."
+
+- "Death is but crossing the world, as friends do the seas; they live in one another
+still. For they must needs be present, that love and live in that which is omnipresent. In
+this divine glass, they see face to face; and their converse is free, as well as pure.
+This is the comfort of friends, that though they may be said to die, yet their friendship
+and society are, in the best sense, ever present, because immortal."
+
+- "The worst part of holding the memories is not the pain. It’s the loneliness of it.
+Memories need to be shared."
+
+- "After all, no matter how great the treasures are, our lives are more important. But if
+we work together, we can cover each other’s weaknesses. We might even be able to obtain
+serendipities.
+
+- "What I seek isn’t a Dao, but to have my mind acting as my aspiration, to have my spirit
+as my realm, and when I open my eyes, I will draw out my heart’s desires… This is the
+reason why I can draw, but you can only copy."
+
+- "If all the people in the world are drunk and you are the only one sober, then it means
+that all the people in the world are awake, and you are asleep…"
+
+- "A person’s emotions and desires were one of the sources that affected a person’s life.
+They would make a person be unable to clear his mind and cause disorder within him. When
+that disorder appeared and the person did not deal with it properly, then it would be
+difficult for him to continue with his practice. If his heart was no longer calm, then it
+was impossible for him to immerse his mind in anything else."
+
 - "There is a saying that goes that the people who are lonely may be different from each
 other, but all of them stare at the moon."
 
@@ -230,204 +406,4 @@ grossest breach of confidence to give them away."
 
 - "To become so grand that you refuse to let your work be edited—and we can all think of a
 few writers who got to that point—is to be a bad servant, not a good one."
-
-- "Art, whatever kind of art it is, is like the mysterious music described in the words of
-the greatest writer of all, the "sounds and sweet airs, that give delight and hurt not."
-To bear the responsibility of giving delight and hurting not is one of the greatest
-privileges a human being can have, and I ask nothing more than the chance to go on being
-responsible for it till the end of my days."
-
-- "The world of books is not a collection of random units of self-interest, but a living
-ecology. Or it used to be, and should be still. Whenever we can see something going on in
-any field where we can make a difference on the side of virtue, we have a responsibility
-to make it."
-
-- "The dao of the heavens is something everyone can prove and everyone can confirm. The
-heavens is not dao. Dao is formed by the will of the heavens and earth. Everyone can have
-this will! "Just like the fish that lives in the river. It doesn’t violate the heavens or
-provoke yin and yang, it lives peacefully and free! This river is the heavens, the world.
-The fish is all living things that exist inside the world! "However, the net pulls the
-fish out from the river. This net is dao, the laws of the world! No matter where you are,
-you won’t be able to escape dao! "This net will one day pull the fish out from the river.
-Once out of the river, the fish will face the laws of the world. Either it obeys and
-enters the reincarnation cycle or it must revolt! Break the net and revolt! "Cultivators
-are like the struggling fish. The more they fiercely the struggle, the more they defy dao!
-"This is dao! Whether it is life and death or karma, all of it is formed by the will of
-dao! I’m karma!"
-
-- "People have spirit, so they can comprehend dao. Beasts have souls, so they can also be
-enlightened. Everything in this world that has a spirit or soul can comprehend dao! "This
-planet has a soul and can also be enlightened!"
-
-- "For the first time, he personally felt that the passage of time was like a ruthless
-river that washed away all his good memories of the past..."
-
-- "For us cultivators, one hundred years, one thousand years pass in the blink of an eye.
-Most relatives will have passed away, and those that remain feel alienated… Once you step
-on the path of cultivation, you are doomed to a life of hardship. "When you’re walking
-down the path of cultivation, when you turn your head you can’t see where you came from,
-and when you look at the path ahead, it is shrouded in fog."
-
-- "The flame moved with the wind just like how the wind makes the plants move, which
-makes it look like the mountain is moving, but in reality…" Wang Lin pondered. "In
-reality, the mountain didn’t move, the flame didn’t move, what moved was the wind!"
-
-- "The wind only blew the surface, yet the mountain seemed to move, but in reality, it
-was my heart that moved! My heart moved, so the mountain moved!"
-
-- "The apricot tree blooms white flowers. The daughter won’t be taken by a daoist family.
-Last year, Lang the Second went up the mountain, and a year later, Lang the First was a
-bag of bones. The cry of the daughter accompanies the dead but takes the coffin as family…
-The apricot tree blooms white flowers and children shouldn’t be taken by daoists. If asked
-about my age, I still haven’t found my dao. The dog barks, the cat scratches, scaring the
-daoist back home."
-
-- "We are all antennae for creative thought. Some transmissions come on strong, others are
-more faint. If your antenna isn’t sensitively tuned, you’re likely to lose the data in the
-noise. Particularly since the signals coming through are often more subtle than the
-content we collect through sensory awareness. They are energetic more than tactile,
-intuitively perceived more than consciously recorded."
-
-- "The world is the doer and we are the witness."
-
-- "Changing the instrument is not always the easiest way to change the sound of the music,
-but it can be the most powerful. No matter what tools you use to create, the true
-instrument is you."
-
-- "What we create allows us to share glimpses of an inner landscape, one that is beyond
-our understanding. Art is our portal to the unseen world."
-
-- "When we take notice of the cycles of the planet, and choose to live in accordance with
-its seasons, something remarkable happens. We become connected. We begin to see ourselves
-as part of a greater whole that is constantly regenerating itself. And we may then tap
-into this all-powerful propagating force and ride its creative wave."
-
-- "Living life as an artist is a practice. You are either engaging in the practice or
-you’re not."
-
-- "You know, it’s funny. When you have the flu you feel like you are going to die, but
-when you are dying, most of the time you feel just fine."
-
-- "The core premise of economic theory is that people choose by optimizing."
-
-- "Economists get in trouble when they make a highly specific prediction that depends
-explicitly on everyone being economically sophisticated."
-
-- "Just as all that appears imperishable tends toward its own destruction, those moments
-that at the time seem the most fleeting recreate themselves - not only in my memory (which
-in the final accounting loses nothing) but in the throbbing of my heart and the prickling
-of my hair, making themselves new just as our Commonwealth reconstitutes itself each
-morning in the shrill tones of its own clarions."
-
-- "Certain mystes aver that the real world has been constructed by the human mind, since
-our ways are governed by the artificial categories into which we place essentially
-undifferentiated things, things weaker than our words for them."
-
-- "We believe that we invent symbols. The truth is that they invent us; we are their
-creatures, shaped by their hard, defining edges. When soldiers take their oath they are
-given a coin, an asimi stamped with the profile of the Autarch. Their acceptance of that
-coin is their acceptance of the special duties and burdens of military life - they are
-soldiers from that moment, though they may know nothing of the management of arms. I did
-not know that then, but it is a profound mistake to believe that we must know of such
-things to be influenced by them, and in fact to believe so is to believe in the most
-debased and superstitious kind of magic. The would-be sorcerer alone has faith in the
-efficacy of pure knowledge; rational people know that things act of themselves or not at
-all."
-
-- "before they come too near to being men, boys often have an almost female insight."
-
-- "I felt that it could have and should have changed everything, but it was only the
-episode of a few months, and when it was over and he was gone, it was only another winter
-passed and the"
-
-- "There are encounters that change nothing. Urth turns her aged face to the sun and he
-beams upon her snows; they scintillate and coruscate until each little point of ice
-hanging from the swelling sides of the towers seems the Claw of the Conciliator, the most
-precious of gems. Then everyone except the wisest believes that the snow must melt and
-give way to a protracted summer beyond summer. Nothing of the sort occurs. The paradise
-endures for a watch or two, then shadows blue as watered milk lengthen on the snow, which
-shifts and dances under the spur of an east wind. Night comes, and all is at it was."
-
-- "You love him, so another may love him. You love him, so you may love another."
-
-- "Of the trail of ink there is no end,"
-
-- "One can't found a novel theology on Nothing, and nothing is so secure a foundation as a
-contradiction. Look at the great successes of the past - they say their deities are the
-masters of all the universes, and yet that they require grandmothers to defend them, as if
-they were children frightened by poultry. Or that the authority that punishes no one while
-there exists a chance for reformation will punish everyone when there is no possibility
-anyone will become the better for it."
-
-- "That's so, I'm sure. When you're brought up in the guild it seems like the center of
-the world. But when you're a little older - this is what I've found myself, and I know I
-can rely on you not to tell tales - something pops in your head, and you discover it isn't
-the linchpin of this universe after all, only a well-paid, unpopular business you happen
-to have fallen into."
-
-- "Men are said to desire women, Severian. Why do they despise the women they obtain?"
-
-- "Hope is a psychological mechanism unaffected by external realities."
-
-- "Time is like a song, the path is never ending, and the love last forever."
-
-- "You don’t live if you never go crazy."
-
-- "It was just that the more intelligent one was, the easier they would waste time on
-solving a simple problem."
-
-- "Your Majesty, it might look like you control all the power and are unrivaled in the
-world, however, when you find yourself utterly isolated and sinking into desperate
-straits, no one will come to save you."
-
-- The gods want the people to be stupid, not daring to resist and revolt, while foolish
-people will willingly remain stupid, not wanting to resist and revolt.
-
-- When Nothingness Is Treated As Something, Something Becomes Nothing
-
-- People are always too critical of good people and too tolerant of bad people.
-
-- If one’s entire knowledge was being imbued directly, how could one seek to change its
-foundation?
-
-- "Time doesn’t matter for cultivation if one is like a tree without roots or water
-without its source."
-
--  When power had been let out of the cage, it was very difficult to put it back in again.
-When servility was being brought out, it was very difficult to straighten those bent backs
-and knees again.
-
-- "If an old farmer farmed for his entire life and thought only about that, it would be
-hard for him to get out of it. He would be a farmer forever. If his focus wasn’t just on
-his land, he could discover a more vast world outside. He wouldn’t be limited to that
-land, and he could walk out of that land for greater attainments!"
-
-- We try to reduce what we are poor in to make us richer in what we are rich in.
-
-- As the saying goes, once you are at the edge of something, you have to return
-
-- "Hell is the place where the person you are meets the person you could have been."
-
-- It can be seen that living for a long time doesn't make you smarter. What's terrifying
-is that living for a long time will make you rely more on experience instead of your own
-brain. When you fall into experience, you will be in danger.
-
-- In the land of Dou Qi, there is one famous sentence: If you find yourself stuck in a
-ditch or forsaken by the world, don’t panic. Take two steps forward and maybe you’ll find
-yourself stronger than ever before.
-
-- As they said, love for a person extends even to the crows on his roof.
--  This so-called ‘knot’ was a place in the heart that the mind could not reason with. In
-a martial artist’s journey, they not only cultivated their bodies, but they also
-cultivated their hearts and minds. They had to be true to themselves, and follow their
-desires, whether it was love or hate. Otherwise, what was the point? If they tortured
-themselves to cultivate, and practiced martial arts day and night, and felt the desolation
-and loneliness at the same time, and yet had to bear everything in life patiently even as
-they suffered countless humiliations, then what exactly was the point of practicing
-martial arts? Why not just be a normal, common person? A martial artist had a proud heart.
-They would not keep things in their heart such as losing an important contest or fight.
-Things like that could not frustrate their proud hearts.
-
-- The wise old saying said that if you weren’t planning to give something to a beggar, you
-shouldn’t at least kick his begging bowl.
 

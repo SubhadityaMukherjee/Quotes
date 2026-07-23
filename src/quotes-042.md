@@ -1,4 +1,161 @@
-<!-- Page 42 of 53  ·  quotes 4101–4200 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 42 of 54  ·  quotes 4101–4200 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Distraction is one of the best tools available to the artist when used skillfully. In
+some cases, it's the only way to get where we are going."
+
+- "Nothing begins with us. The more we pay attention, the more we begin to realize that
+all the work we ever do is a collaboration."
+
+- "The inspired-artist aspect of your self may be in conflict with the craftsperson
+aspect, disappointed that the craftsperson is unable to create the physical embodiment of
+the inspired artist's vision."
+
+- "A painting is just a painting until you put a frame on it and hang it on the wall, then
+it's called art. What's considered art is simply an agreement. And none of it is true."
+
+- "A completed project is only made up of our intention and our experiments around it.
+Remove intention and all that's left is the ornamental shell."
+
+- "Not all projects take time, but they do take a lifetime."
+
+- "Most creators think of themselves as the conductor of the orchestra. If we zoom out of
+our small view of reality, we function more as an instrumentalist in a much larger
+symphony the universe is orchestrating. We may not have a great understanding of what this
+magnum opus is because we only see the small part we play."
+
+- "Similarly, the total output of human creativity, in all its kaleidoscopic breadth,
+pieces together the fabric forming our culture. The underlying intention of our work is
+the aspect allowing it to fit neatly into this fabric. Rarely if ever do we know the grand
+intention, yet if we surrender to the creative impulse, our singular piece of the puzzle
+takes its proper shape."
+
+- "Intention is all there is. The work is just a reminder."
+
+- "Rules, by their nature, are limitations."
+
+- "Rules direct us to average behaviors. If we're aiming to create works that are
+exceptional, most rules don't apply. Average is nothing to aspire to. The goal is not to
+fit in. If anything, it's to amplify the differences, what doesn't fit, the special
+characteristics unique to how you see the world. Instead of sounding like others, value
+your own voice. Develop it. Cherish it."
+
+- "The reason to make art is to innovate and self-express, show something new, share
+what's inside, and communicate your singular perspective."
+
+- "In the beginning, we approach our craft with a template of what's come before."
+
+- "As soon as you use a label to describe what you're working on, there's a temptation to
+conform to its rules."
+
+- "Often, the most innovative ideas come from those who master the rules to such a degree
+that they can see past them or from those who never learned them at all."
+
+- "Rules obeyed unconsciously are far stronger than the ones set on purpose."
+
+- "Holding every rule as breakable is a healthy way to live as an artist. It loosens
+constraints that promote a predictable sameness in our working methods."
+
+- "Once you have a new framework, some elements of your older process may find their way
+back into the work, and that's okay."
+
+- "For any rules you accept of what you can and cannot do as an artist . . . of what your
+voice is and isn't . . . of what's required to do the work and what you don't need . . .
+it would be worthwhile to try the opposite."
+
+- "Think of a rule as an imbalance."
+
+- "Though to say that we listen with the ears, or the mind, might be a misconception. We
+listen with the whole body, our whole self."
+
+- "Many of us experience life as if we're taking it in through a pair of headphones. We
+strip away the full register. We hear information, but don't detect the subtler vibrations
+of feeling in the body."
+
+- "If it's music you're listening to, consider closing your eyes. You may find yourself
+getting lost in the experience. When the piece ends, you might be surprised by where you
+find yourself. You've been transported to another place. The place where the music lives."
+
+- "Formulating an opinion is not listening. Neither is preparing a response, or defending
+our position or attacking another's. To listen impatiently is to hear nothing at all."
+
+- "Listening is suspending disbelief."
+
+- "More often than not, there are no right answers, just different perspectives."
+
+- "Many of our beliefs were learned before we had a choice in what we were taught. Some of
+them might go back generations and may no longer apply. Some may never have applied."
+
+- "The lottery winner isn't ultimately happy after their sudden change of fortune. The
+home built hastily rarely survives the first storm. The single-sentence summary of a book
+or news event is no substitute for the full story."
+
+- "Re-reading even a well-understood paragraph or page can be revelatory."
+
+- "Our continual quest for efficiency discourages looking too deeply."
+
+- "Impatience is an argument with reality."
+
+- "When it comes to the creative process, patience is accepting that the majority of the
+work we do is out of our control. We can't force greatness to happen. All we can do is
+invite it in and await it actively. Not anxiously, as this might scare it off. Simply in a
+state of continual welcoming."
+
+- "If we remove time from the equation of a work's development, what we're left with is
+patience."
+
+- "Even the masterpieces that have been produced on tight timelines are the sum of decades
+spent patiently laboring on other works."
+
+- "What was it that allowed a machine to devise a move no one steeped in the game had ever
+made in thousands of years of play? It wasn't necessarily its intelligence. It was the
+fact that the machine learned the game from scratch, with no coach, no human intervention,
+no lessons based on an expert's past experience. The AI followed the fixed rules, not the
+millennia of accepted cultural norms attached to them. It didn't take into account the
+three-thousand-year-old traditions and conventions of Go. It didn't accept the narrative
+of how to properly play this game. It wasn't held back by limiting beliefs."
+
+- "One Go expert commented, "After humanity spent thousands of years improving our
+tactics, computers tell us that humans are completely wrong . . . I would go as far as to
+say not a single human has touched the edge of the truth of Go."
+
+- "To see what no human has seen before, to know what no human has known before, to create
+as no human has created before, it may be necessary to see as if through eyes that have
+never seen, know through a mind that has never thought, create with hands that have never
+been trained."
+
+- "Did the computer win because it knew more than the grandmaster or because it knew
+less?"
+
+- "Experience provides wisdom to draw from, but it tempers the power of naivete."
+
+- "The more ingrained your adopted approach, the harder it is to see past it."
+
+- "Just as an infant is selfish, they're protective of their art in a way that's not
+always cooperative."
+
+- "A child has no set of premises it relies on to make sense of the world. It may serve
+you to do the same. Any label you assume before sitting down to create, even one as
+foundational as sculptor, rapper, author, or entrepreneur, could be doing more harm than
+good. Strip away the labels. Now how do you see the world?"
+
+- "If you spent your whole life living near the ocean, your experience of it would almost
+certainly be less dramatic."
+
+- "As artists, we aim to live in a way in which we see the extraordinary hidden in the
+seemingly mundane. Then challenge ourselves to share what we see in a way that allows
+others a glimpse of this remarkable beauty."
+
+- "For the lungs to draw in air, they must first be emptied. For the mind to draw
+inspiration, it wants space to welcome the new. The universe seeks balance. Through this
+absence, you are inviting energy in."
+
+- "To vary your inspiration, consider varying your inputs. Turn the sound off to watch a
+film, listen to the same song on repeat, read only the first word of each sentence in a
+short story, arrange stones by size or color, learn to lucid dream."
+
+- "The work yielded may not be used in the current project, but it may be of use another
+time. Or it may not. The task of the artist is simply to recognize the transmission and
+stay with it in gratitude, until it truly runs its course."
+
 - "In terms of priority, inspiration comes first. You come next. The audience comes last."
 
 - "A full, imperfect version is generally more helpful than a seemingly perfect fragment."
@@ -187,162 +344,4 @@ improved before discarding the entire piece."
 
 - "Many of us are taught to create through sheer will. If we choose surrender, the ideas
 that want to come through us will not be blocked."
-
-- "For the artist, whose job is testing possibilities, success is as much ruling out a
-solution as finding one that works."
-
-- "In the process of experimentation, we allow ourselves to make mistakes, to go too far,
-to go even further, to be inept. There is no failure, as every step we take is necessary
-to reach our destination, including the missteps. Each experiment is valuable in its own
-way if we learn something from it. Even if we can't comprehend its worth, we are still
-practicing our craft, moving ever so much closer to mastery."
-
-- "Humanity breathes in mistakes."
-
-- "Making great art may not always require great effort, but without it, you'll never
-know."
-
-- "Creativity is something you are, not only something you do."
-
-- "Quality isn't based on the amount of time invested."
-
-- "If you sit down to write with no preparation or forethought, you might bypass the
-conscious mind and draw from the unconscious. You may find that what emerges holds a
-charge that cannot be duplicated through rational means."
-
-- "If we were to learn anything, it would be to free ourselves from any beliefs or baggage
-or dogma that gets in the way of us acting according to our true nature. The closer we get
-to a childlike state of free self-expression, the purer our test and the better our art."
-
-- "Once a work is complete, no amount of testing can guarantee we've made the best
-possible version. These qualities are not measurable. We test to identify which is the
-best version from the options at hand."
-
-- "When the work has five mistakes, it's not yet completed. When it has eight mistakes, it
-might be."
-
-- "If we like what we are creating, we don't have to know why. Sometimes the reasons are
-obvious, sometimes not. And they can change over time. It could be good for any of a
-thousand different reasons. When we're making things we love, our mission is accomplished.
-There's nothing at all to figure out."
-- "Holding your work hostage to meaning is a limitation."
-
-- "is far more powerful than our plans"
-
-- "Art is far more powerful than our plans for it."
-
-- "Art is above and beyond judgment. It either speaks to you or it doesn't. The artist's
-only responsibility is to the work itself. There are no other requirements. You're free to
-create what you will."
-
-- "Whether you have a powerful passion or a tortured compulsion, neither makes the art any
-better or worse. If you are able to choose between these paths, consider selecting the
-more sustainable one. An artist earns the toc: true title simply through self-expression,
-as they work in their own way at their own pace."
-
-- "Established artists generally draw from their personal experience and recommend the
-solutions that worked for them. These tend to be specific to their journey, not yours.
-It's worth remembering that their way is not the way."
-
-- "The passive element of practice is as important as the active one."
-
-- "I'm both a professor and student, because if you're no longer a student, you don't have
-the right to call yourself a professor."
-
-- "If you feel unable to hit a note or faithfully paint an image, it's helpful to remember
-that the challenge is not that you can't do it, but that you haven't done it yet. Avoid
-thinking in impossibilities."
-
-- "Having the knowledge won't hurt the work. How you use the knowledge may. You have new
-tools. You don't have to use them."
-
-- "If we train ourselves to step away from the work, to truly detach from it, to distract
-ourselves completely, to dive fully into something else . . . After being away for a long
-enough period of time, when we come back, we just may be able to see it as if for the
-first time."
-
-- "A way to practice keeping a clean slate is to avoid looking at the work too often. If
-you finish a section or come to a sticking point, consider putting the project away and
-not engaging with it for a period of time. Let it sit for a minute, a week, or longer,
-while you go get lost."
-
-- "The context changes the content."
-
-- "The social norms of any time and place are another contextual box that art lives in."
-
-- "When a piece isn't living up to your expectations, consider changing the context. Look
-past the principle element, examine the variables around it. Play with different
-combinations. Place it next to other works. Surprise yourself."
-
-- "If the work is thrilling one day and isn't for a long while after, you may have
-experienced a false indicator. When the moments of joy seem like a distant memory and the
-work feels like an obligation to a past idea, this could mean you've either gone too far
-or that particular seed wasn't actually ready to germinate yet."
-
-- "Every artist creates a dynamic history. A living museum of finished objects. One work
-after another. Begun, completed, released. Begun, completed, released. Over and over
-again. Each a time stamp commemorating a moment of passage. A moment filled with energy,
-now forever embodied in a work of art."
-
-- "Within every artist, there's a child emptying a box of crayons onto the floor,
-searching for just the right color to draw the sky."
-
-- "If you're looking for the work to support you, you may be asking too much of it. We
-create in service to art, not for what we can get from art."
-
-- "Creativity is contagious."
-
-- "If asked to participate in a fellow creator's project, proceed delicately."
-
-- "Sometimes the most valuable touch a collaborator can have is no touch at all."
-
-- "Believing an idea is best because it's ours is an error of inexperience. The ego
-demands personal authorship, inflating itself at the expense of the art. It can reject new
-methods that appear counterintuitive and protect familiar ones."
-
-- "Great decisions aren't made in a spirit of sacrifice. They're made by the mutual
-recognition of the best solution available."
-
-- "The more clinical the feedback, the better it will be received."
-
-- "Our ego can perceive assistance as interference."
-
-- "It helps to keep in mind that language is an imperfect means of communication."
-
-- "We like to think of ourselves as consistent, rational beings, possessing certain
-attributes and not others. Yet a person who is completely consistent, who possesses no
-contradictions, comes across as less real. Wooden. Plastic."
-
-- "Art goes deeper than thought. Deeper than the stories about yourself. It breaks through
-inner walls and accesses what's behind. If we get out of the way and let the art do its
-work, it may yield the sincerity we seek. And sincerity may look nothing like we
-expected."
-
-- "The editor's role is to gather and sift. Amplifying what's vital and whittling away the
-excess. Culling the work down to the best version of itself."
-
-- "The editor is required to set ego aside. Ego pridefully attaches to individual elements
-of a work. The editor's role is to remain unattached and see beyond these passions to find
-unity and balance. Talented artists who are unskilled editors can do subpar work and fail
-to live up to their gift's promise."
-
-- "As we move closer to the completion of a project, it can be helpful to drastically cut
-the work back to only what's necessary, to conduct a ruthless edit."
-
-- "Making the simple complicated is commonplace," Charles Mingus once said. "Making the
-complicated simple, awesomely simple, that's creativity."
-
-- "Art is a reverberation of an impermanent life."
-
-- "Just as each small stroke on a canvas can't step aside to see the whole painting, we're
-unable to take in the great whole of relationships and counterbalance that surrounds us in
-all directions."
-
-- "The magic is not in the analyzing or the understanding. The magic lives in the wonder
-of what we do not know."
-
-- "The widespread use of chopsticks shaped the development of Chinese cuisine—the reason
-there's so much preparatory chopping involved in making a Chinese meal is because dishes
-had to consist of bite-size pieces that could easily be grasped with chopsticks, since
-nothing was sliced at the table."
 

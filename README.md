@@ -29,12 +29,13 @@ survives in the parsed entries, and aborts without writing anything if not.
 
 ## Adding quotes (the normal workflow)
 
-1. Open `inbox.md` (it's tiny) and paste new quotes under the comment block:
+1. Open `inbox.md` (it's tiny) and paste new quotes under the comment block.
+   Each line starting with `- ` is one quote — a blank line between them is
+   optional, and quotation marks are added automatically if missing:
 
    ```markdown
-   - "a new quote you want to keep"
-
-   - "and another one"
+   - a new quote you want to keep
+   - and another one
    ```
 
 2. Rebuild:

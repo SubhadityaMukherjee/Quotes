@@ -1,4 +1,6 @@
-<!-- Page 3 of 53  ·  quotes 201–300 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 3 of 54  ·  quotes 201–300 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "It is the unknown we fear when we look upon death and darkness. Nothing more."
+
 - "Life is pain, highness. Anyone who says differently is selling something."
 
 - "If I got rid of my demons I d lose my angels too."
@@ -241,6 +243,7 @@ depths of hell. And you wouldn t know what it's like to be her angel, to have
 that love for her, be there forever, through anything, through cancer. And you
 wouldn t know about sleeping sitting up in the hospital room for two months,
 holding her hand, because the doctors could see in your eyes, that the terms
+
 - "visiting hours" don t apply to you. You don t know about real loss, cause it
 only occurs when you ve loved something more than you love yourself. And I
 doubt you ve ever dared to love anybody that much."
@@ -310,6 +313,7 @@ people, but we live as if divided."
 happiness and love."
 
 - "There are reasons each of us are born. we have to find those reasons."
+
 - "Sometimes life is like this dark tunnel, you can t always see the light at the
 end of the tunnel, but if you just keep moving, you will come to a better
 place."
@@ -404,13 +408,4 @@ want to die after that, come find me. I ll end you."
 
 - "It doesn't matter whether it's wrong or not, the thing is... What's important
 is memory...The memory that you can t forget for the rest of your life…"
-
-- "If you let yourself get depressed, you will be making light of the people who
-follow and trust you."
-
-- "Happiness is like glass. It may be all around you… Yet be invisible. But if
-you can change your angle of viewing a little, then it will reflect light more
-beautifully than any other object around you."
-
-- "I ll leave tomorrow's problems to tomorrow's me."
 

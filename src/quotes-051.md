@@ -1,4 +1,205 @@
-<!-- Page 51 of 53  ·  quotes 5001–5100 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 51 of 54  ·  quotes 5001–5100 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Art, whatever kind of art it is, is like the mysterious music described in the words of
+the greatest writer of all, the "sounds and sweet airs, that give delight and hurt not."
+To bear the responsibility of giving delight and hurting not is one of the greatest
+privileges a human being can have, and I ask nothing more than the chance to go on being
+responsible for it till the end of my days."
+
+- "The world of books is not a collection of random units of self-interest, but a living
+ecology. Or it used to be, and should be still. Whenever we can see something going on in
+any field where we can make a difference on the side of virtue, we have a responsibility
+to make it."
+
+- "The dao of the heavens is something everyone can prove and everyone can confirm. The
+heavens is not dao. Dao is formed by the will of the heavens and earth. Everyone can have
+this will! "Just like the fish that lives in the river. It doesn’t violate the heavens or
+provoke yin and yang, it lives peacefully and free! This river is the heavens, the world.
+The fish is all living things that exist inside the world! "However, the net pulls the
+fish out from the river. This net is dao, the laws of the world! No matter where you are,
+you won’t be able to escape dao! "This net will one day pull the fish out from the river.
+Once out of the river, the fish will face the laws of the world. Either it obeys and
+enters the reincarnation cycle or it must revolt! Break the net and revolt! "Cultivators
+are like the struggling fish. The more they fiercely the struggle, the more they defy dao!
+"This is dao! Whether it is life and death or karma, all of it is formed by the will of
+dao! I’m karma!"
+
+- "People have spirit, so they can comprehend dao. Beasts have souls, so they can also be
+enlightened. Everything in this world that has a spirit or soul can comprehend dao! "This
+planet has a soul and can also be enlightened!"
+
+- "For the first time, he personally felt that the passage of time was like a ruthless
+river that washed away all his good memories of the past..."
+
+- "For us cultivators, one hundred years, one thousand years pass in the blink of an eye.
+Most relatives will have passed away, and those that remain feel alienated… Once you step
+on the path of cultivation, you are doomed to a life of hardship. "When you’re walking
+down the path of cultivation, when you turn your head you can’t see where you came from,
+and when you look at the path ahead, it is shrouded in fog."
+
+- "The flame moved with the wind just like how the wind makes the plants move, which
+makes it look like the mountain is moving, but in reality…" Wang Lin pondered. "In
+reality, the mountain didn’t move, the flame didn’t move, what moved was the wind!"
+
+- "The wind only blew the surface, yet the mountain seemed to move, but in reality, it
+was my heart that moved! My heart moved, so the mountain moved!"
+
+- "The apricot tree blooms white flowers. The daughter won’t be taken by a daoist family.
+Last year, Lang the Second went up the mountain, and a year later, Lang the First was a
+bag of bones. The cry of the daughter accompanies the dead but takes the coffin as family…
+The apricot tree blooms white flowers and children shouldn’t be taken by daoists. If asked
+about my age, I still haven’t found my dao. The dog barks, the cat scratches, scaring the
+daoist back home."
+
+- "We are all antennae for creative thought. Some transmissions come on strong, others are
+more faint. If your antenna isn’t sensitively tuned, you’re likely to lose the data in the
+noise. Particularly since the signals coming through are often more subtle than the
+content we collect through sensory awareness. They are energetic more than tactile,
+intuitively perceived more than consciously recorded."
+
+- "The world is the doer and we are the witness."
+
+- "Changing the instrument is not always the easiest way to change the sound of the music,
+but it can be the most powerful. No matter what tools you use to create, the true
+instrument is you."
+
+- "What we create allows us to share glimpses of an inner landscape, one that is beyond
+our understanding. Art is our portal to the unseen world."
+
+- "When we take notice of the cycles of the planet, and choose to live in accordance with
+its seasons, something remarkable happens. We become connected. We begin to see ourselves
+as part of a greater whole that is constantly regenerating itself. And we may then tap
+into this all-powerful propagating force and ride its creative wave."
+
+- "Living life as an artist is a practice. You are either engaging in the practice or
+you’re not."
+
+- "You know, it’s funny. When you have the flu you feel like you are going to die, but
+when you are dying, most of the time you feel just fine."
+
+- "The core premise of economic theory is that people choose by optimizing."
+
+- "Economists get in trouble when they make a highly specific prediction that depends
+explicitly on everyone being economically sophisticated."
+
+- "Just as all that appears imperishable tends toward its own destruction, those moments
+that at the time seem the most fleeting recreate themselves - not only in my memory (which
+in the final accounting loses nothing) but in the throbbing of my heart and the prickling
+of my hair, making themselves new just as our Commonwealth reconstitutes itself each
+morning in the shrill tones of its own clarions."
+
+- "Certain mystes aver that the real world has been constructed by the human mind, since
+our ways are governed by the artificial categories into which we place essentially
+undifferentiated things, things weaker than our words for them."
+
+- "We believe that we invent symbols. The truth is that they invent us; we are their
+creatures, shaped by their hard, defining edges. When soldiers take their oath they are
+given a coin, an asimi stamped with the profile of the Autarch. Their acceptance of that
+coin is their acceptance of the special duties and burdens of military life - they are
+soldiers from that moment, though they may know nothing of the management of arms. I did
+not know that then, but it is a profound mistake to believe that we must know of such
+things to be influenced by them, and in fact to believe so is to believe in the most
+debased and superstitious kind of magic. The would-be sorcerer alone has faith in the
+efficacy of pure knowledge; rational people know that things act of themselves or not at
+all."
+
+- "before they come too near to being men, boys often have an almost female insight."
+
+- "I felt that it could have and should have changed everything, but it was only the
+episode of a few months, and when it was over and he was gone, it was only another winter
+passed and the"
+
+- "There are encounters that change nothing. Urth turns her aged face to the sun and he
+beams upon her snows; they scintillate and coruscate until each little point of ice
+hanging from the swelling sides of the towers seems the Claw of the Conciliator, the most
+precious of gems. Then everyone except the wisest believes that the snow must melt and
+give way to a protracted summer beyond summer. Nothing of the sort occurs. The paradise
+endures for a watch or two, then shadows blue as watered milk lengthen on the snow, which
+shifts and dances under the spur of an east wind. Night comes, and all is at it was."
+
+- "You love him, so another may love him. You love him, so you may love another."
+
+- "Of the trail of ink there is no end,"
+
+- "One can't found a novel theology on Nothing, and nothing is so secure a foundation as a
+contradiction. Look at the great successes of the past - they say their deities are the
+masters of all the universes, and yet that they require grandmothers to defend them, as if
+they were children frightened by poultry. Or that the authority that punishes no one while
+there exists a chance for reformation will punish everyone when there is no possibility
+anyone will become the better for it."
+
+- "That's so, I'm sure. When you're brought up in the guild it seems like the center of
+the world. But when you're a little older - this is what I've found myself, and I know I
+can rely on you not to tell tales - something pops in your head, and you discover it isn't
+the linchpin of this universe after all, only a well-paid, unpopular business you happen
+to have fallen into."
+
+- "Men are said to desire women, Severian. Why do they despise the women they obtain?"
+
+- "Hope is a psychological mechanism unaffected by external realities."
+
+- "Time is like a song, the path is never ending, and the love last forever."
+
+- "You don’t live if you never go crazy."
+
+- "It was just that the more intelligent one was, the easier they would waste time on
+solving a simple problem."
+
+- "Your Majesty, it might look like you control all the power and are unrivaled in the
+world, however, when you find yourself utterly isolated and sinking into desperate
+straits, no one will come to save you."
+
+- The gods want the people to be stupid, not daring to resist and revolt, while foolish
+people will willingly remain stupid, not wanting to resist and revolt.
+
+- When Nothingness Is Treated As Something, Something Becomes Nothing
+
+- People are always too critical of good people and too tolerant of bad people.
+
+- If one’s entire knowledge was being imbued directly, how could one seek to change its
+foundation?
+
+- "Time doesn’t matter for cultivation if one is like a tree without roots or water
+without its source."
+
+-  When power had been let out of the cage, it was very difficult to put it back in again.
+When servility was being brought out, it was very difficult to straighten those bent backs
+and knees again.
+
+- "If an old farmer farmed for his entire life and thought only about that, it would be
+hard for him to get out of it. He would be a farmer forever. If his focus wasn’t just on
+his land, he could discover a more vast world outside. He wouldn’t be limited to that
+land, and he could walk out of that land for greater attainments!"
+
+- We try to reduce what we are poor in to make us richer in what we are rich in.
+
+- As the saying goes, once you are at the edge of something, you have to return
+
+- "Hell is the place where the person you are meets the person you could have been."
+
+- It can be seen that living for a long time doesn't make you smarter. What's terrifying
+is that living for a long time will make you rely more on experience instead of your own
+brain. When you fall into experience, you will be in danger.
+
+- In the land of Dou Qi, there is one famous sentence: If you find yourself stuck in a
+ditch or forsaken by the world, don’t panic. Take two steps forward and maybe you’ll find
+yourself stronger than ever before.
+
+- As they said, love for a person extends even to the crows on his roof.
+
+-  This so-called ‘knot’ was a place in the heart that the mind could not reason with. In
+a martial artist’s journey, they not only cultivated their bodies, but they also
+cultivated their hearts and minds. They had to be true to themselves, and follow their
+desires, whether it was love or hate. Otherwise, what was the point? If they tortured
+themselves to cultivate, and practiced martial arts day and night, and felt the desolation
+and loneliness at the same time, and yet had to bear everything in life patiently even as
+they suffered countless humiliations, then what exactly was the point of practicing
+martial arts? Why not just be a normal, common person? A martial artist had a proud heart.
+They would not keep things in their heart such as losing an important contest or fight.
+Things like that could not frustrate their proud hearts.
+
+- The wise old saying said that if you weren’t planning to give something to a beggar, you
+shouldn’t at least kick his begging bowl.
+
 -  "In the four seasons of life, spring won’t come just by waiting. You have to endure the
 bitter cold and struggle to break through the frozen earth. Only then can you see the
 light of day and welcome spring."
@@ -198,116 +399,4 @@ us in a different form. In that sense, we didn't lose anything at all."
 - "If you still have regrets, let them fuel your resolve in the battles to come. Your
 deeds will become new legends and nurture new forms of power, just like the items once
 stored here."
-
-- "You feel loss keenly. It seems to stir up feelings of regret in you... But this is
-something I have long since come to terms with."
-
-- "I suppose, but so what? Don't forget, time takes many forms. The past, present, and
-future co-exist, and all are equally important. Even if the future ends in destruction,
-that's still no reason to give up on the here and now. And it's precisely because we
-humans cannot know our fate that we will never give up on our struggle."
-
-- "Wealth leads to unending conflicts between people, yet you alone transcend the value of
-gold. Baleful thunder and wrathful waves bring terror to mortal hearts, yet again and
-again, you've braved them to find new worlds."
-
-- "A family does whatever it takes to protect their own."
-
-- "When walking in the forest, it is only natural to encounter wild beasts. However, not
-every beast has the courage to come out and bite."
-
-- "May your flame forever burn pure and bright."
-
-- "A new future deserves a new meaning, a chance to take a definitive step forward."
-
-- "For those cursed with immortality, release from the mortal coil is the greatest form of
-peace."
-
-- "We are the inheritors of memory and legend. Those who grew alongside sun and wind.
-Those who forged our own destiny and future. That is Natlan's fire, the lifeblood of our
-nation. The fallen are never truly lost to us. We will be reunited one day."
-
-- "The weight of fate is decided by the one who has to bear it."
-
-- "Sing your final song with pride, like a hero's march to the other side."
-
-- "In the beginning, there was darkness. Until someone set themselves aflame. Only then did the universe know light."
-
-- "Having foretold his own death, the omniscient man holds a feast in celebration."
-
-- "We love this world because it contains everything we hold dear... everything that has
-happened here has moved us, shaped us, and turned us into who we are today. Giving up our
-memories and history would mean rewriting everything. The people of this world would then
-become fundamentally different beings, their physical bodies the only connection to their
-former selves."
-
-- "No matter what path lies before us, we still have a destination. If we lose our way now, we will lose the meaning of our existence."
-
-- "Never slow down, and never hold back. Spread your wings and fly free, like the fiercest qucusaur in the sky. Show the world who the bravest Flower-Feather warrior is... Because that's who you are... and that's the sister I'm proud of."
-
-- "How unfair life can be... She's had the odds stacked against her from the very beginning, and each step forward has been an agonizing one. Maybe she would have been better off embracing her pain... But her journey goes on, and one question looms large in her mind: If she could rise above the layers of pain, and ascend over the dark clouds of her mind... what, then, would she find? Maybe the glorious light of the sun, or maybe a dark, empty void. There is only one way to find out. She needs to spread her wings and soar to new heights... that is the true meaning of life."
-
-- "My life's suffering shall be my epitaph. To remember the pain I endured...And, finally, transcended."
-
-- "We fight for the people we love, and also for the chance to see them again."
-
-- "As long as blood still runs through your veins, even the tiniest spark of steel against stone can ignite a flame."
-
-- "Even amid everlasting darkness, our bonds remain eternal."
-
-- "It's important to listen to your limits. Just like in training, pushing too hard will only hurt you in the long run. Everyone needs time to rest."
-
-- "When facing an impossible situation, you just need to act. And if you fail, so what? That's just life."
-
-- "But, I am of the belief that, in this world, no destiny is unchangeable, no death inevitable, and no rule unbreakable. So, before the final moment truly arrives, we must fight harder than ever."
-
-- "Maybe you'll change in the future, but you can still be proud of who you are now."
-
-- "Y'know, I used take a lot of things for granted. Growing up, it's easy to think that everything around you will just exist forever. But the battle taught me that very few things in life are permanent. Like this path, for example... It's the same one we walked before, but now, the view is completely different. It makes the things we love even more precious. So, I want to do as much as I can to defend my family and friends, so I can move forward without regrets."
-
-- "When future generations look back on our accomplishment, they, too, will see our deeds for their greater significance."
-
-- "May the skies forever be clear and bright, and may we always be free to spread our wings and soar."
-
-- "The dead draw solace from the living, and the living push forward in honor of the dead."
-
-- "We all have our own journey, and we need to see it through to the end. Not all adventurers go down in history..."
-
-- "The most idealistic and righteous among us are the most fragile, so I must protect his edge. A strong hand is required to stand against a strong foe."
-
-- "We embark on a pilgrimage, for the wishes of the people. We choose to battle, to earn a glorious name. And in the end, we burn to cinders for a dream."
-
-- "With fear comes darkness, and with darkness comes dominion. In darkness the world was born, and so it shall return."
-
-- "When you're hungry, you go eat something tasty, and when you're tired, you go lie down in a nice comfy bed, alright? Seriously, don't punish yourself like this."
-
-- "It is only by fate that people's paths may cross."
-
-- "It was like I took a look at the world and, on the surface, it looked like a vast realm with so many places I could go. Then I looked a little closer. And there was nowhere for me to go at all."
-
-- "The play has an ending, but life goes on."
-
-- "Strange how nearsighted being invisible can make you"
-
-- "After all, to the well-organized mind, death is but the next great adventure. You know, the Stone was really not such a wonderful thing. As much money and life as you could want! The two things most human beings would choose above all — the trouble is, humans do have a knack of choosing precisely those things that are worst for them."
-
-- "You-Know-Who —” “Call him Voldemort, Harry. Always use the proper name for things. Fear of a name increases fear of the thing itself."
-
-- "Always use the proper name for things. Fear of a name increases fear of the thing itself."
-
-- "You think the dead we have loved ever truly leave us? You think that we don’t recall them more clearly than ever in times of great trouble?"
-
-- "Dumbledore was the one who stuck up for me after Dad went. Got me the gamekeeper job . . . trusts people, he does. Gives ’em second chances . . . tha’s what sets him apar’ from other Heads, see. He’ll accept anyone at Hogwarts, s’long as they’ve got the talent. Knows people can turn out okay even if their families weren’ . . . well . . . all tha’ respectable. But some don’ understand that. There’s some who’d always hold it against yeh . . . there’s some who’d even pretend they just had big bones rather than stand up an’ say — I am what I am, an’ I’m not ashamed. ‘Never be ashamed,’ my ol’ dad used ter say, ‘there’s some who’ll hold it against you, but they’re not worth botherin’ with.’"
-
-- "Understanding is the first step to acceptance, and only with acceptance can there be recovery."
-
-- "Numbing the pain for a while will make it worse when you finally feel"
-
-- "If I thought I could help you,” Dumbledore said gently, “by putting you into an enchanted sleep and allowing you to postpone the moment when you would have to think about what has happened tonight, I would do it. But I know better. Numbing the pain for a while will make it worse when you finally feel it."
-
-- "As Hagrid had said, what would come, would come . . . and he would have to meet it when it did."
-
-- "Trivial hurts, tiny human accidents,” said Firenze, as his hooves thudded over the mossy floor. “These are of no more significance than the scurryings of ants to the wide universe, and are unaffected by planetary movements."
-
-- "Youth cannot know how age thinks and feels. But old men are guilty if they forget what it was to be young . . ."
 

@@ -1,4 +1,76 @@
-<!-- Page 9 of 53  ·  quotes 801–900 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 9 of 54  ·  quotes 801–900 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Because we can't do everything, we do nothing at all."
+
+- "Is it the nature of the world that all things seek a rhythm, and in that
+rhythm a sort of peace? Certainly it has always seemed so to me. All events, no
+matter how earthshaking or bizarre, are diluted within moments of their
+occurrence by the continuance of the necessary routines of day-to-day living.
+Men walking a battlefield to search for wounded among the dead will still stop
+to cough, to blow their noses, still lift their eyes to watch a V of geese in
+flight. I have seen farmers continue their plowing and planting, heedless of
+armies clashing but a few miles away. "
+
+- "Reading ten thousand books is not equal to traveling ten thousand li"
+
+- "Little San is right. The departed are already gone, the living are still
+alive. He’s stronger than me, he’s resurrected you in just a few years. Child,
+treasure the people before you. Don’t be sad and grieving. The past has already
+passed, you both should face a new life."
+
+- "Parents never owe their children, no matter when or how. That you brought me
+into this world is already the biggest, biggest favor, one I’ll never be able
+to repay in my life. Without you, there would be no me. My life was given by
+you. There are no other debts beside that"
+
+- "It’s difficult to hide people in the world, but the best place to hide people
+is amongst people, so traveling with people is the safest, and also the most
+dangerous. The outcome between the two relies on how devoted you are to it."
+
+- "The world is formed from the dark night and the daytime. In the days before,
+we always traveled in the dark night, so all we saw was the color of the night,
+and all we met was darkness. However, if we walked under the sun, perhaps we
+can see sunlight."
+
+- "Nobody likes to kill others, and neither do I." Su Li ended it with these
+words, "If too much blood flows, it's  very troublesome to clean the sword, let
+alone the clothes. So I don't like killing. But there are times when there are
+some people that have to die, when blood has to flow."
+
+- "In living in this world, if you want to live freely and protect those that you
+love from harm, you have to be strong enough—so strong that the whole world
+will admit that you are strong, will fear your strength. How can you prove it,
+and make the world admit this point? You must be willing to kill others,
+willing to let the entire world bleed"
+
+- "Ecstasy was often a shocked happiness, coming from something unimaginable.
+Warmth was more mild, more profound, and more lingering. It was gratification
+that arose from the perfect match of one's  desires and reality. "
+
+- "An even more brilliant and lovely spring sunshine would eventually fade away.
+An ever-constant echo would also eventually dissipate."
+
+- "There is no person whose moral character will improve with age. In the vast
+majority of cases, a young sucker would turn into an old sucker—old bastards,
+old suckers."
+
+- "Calmly welcoming death is acting serious? Then I don't like acting serious.
+Given a choice to die on the battlefield in the endless mountains or die
+comfortably in bed in the bosom of a beauty, I would definitely choose the
+latter."
+
+- "The torrential great river is divided into two shores. Even if you look and
+don't speak, you still have to pick a side."
+
+- "The ten thousand things share the same principle, so there are naturally
+places where the mortal world and the divine intersect."
+
+- "To be old and not die, what is that? It's  a thief, an old thief. Ah, people.
+They're just like trees. When they're at their healthiest and sturdiest, they
+should do their best to brag in the spring wind. When they grow too old and
+still cling desperately to their lives, their bodies will grow old and their
+wood will rot, until finally a lightning bolt cleaves down and turns them into
+burnt ash. Just what meaning is there in that?"
+
 - "Sometimes you want things to change so badly, you can’t even stand to be in
 the same room with the way things actually are."
 
@@ -49,6 +121,7 @@ because of that. Value, quality, meaning, those things are only found in the
 impermanent, the temporary, and the intangible; things that don’t exist
 physically or do not last for long. The solid, the enduring—the permanent
 things of our world…" he illustrated by knocking on the wood beneath him,
+
 - "…those things are the least valuable, because they endure. That’s why the
 beauty of a flower is so cherished, because it only lasts for a short time.
 That is exactly why love is of such inestimable value. We treasure it because
@@ -87,6 +160,7 @@ right, but the man is drowning."
 
 - "Sherlock: "Look, it doesn’t matter to me who’s Prime Minister... or who’s
 sleeping with who ..." John : "Whether the Earth goes round the Sun." Sherlock:
+
 - "Not that again. It’s not important." John: "But it’s the solar system!"
 Sherlock: "Oh, hell! What does that matter? So we go round the Sun! If we went
 round the Moon, or round and round the garden like a teddy bear, it wouldn’t
@@ -335,83 +409,4 @@ ourselves."
 
 - "I think anybody who falls in love is a freak. It's  a crazy thing to do. It's
 kind of like a form of socially acceptable insanity."
-
-- "We are only here briefly, and in this moment I want to allow myself joy. So
-fuck it."
-
-- "It's  how we spend a third of our lives asleep, and maybe that's  the time
-when we feel the most free."
-
-- "You know, I actually used to be so worried about not having a body, but now I
-truly love it. I'm growing in a way that I couldn't if I had a physical form. I
-mean, I'm not limited - I can be anywhere and everywhere simultaneously. I'm
-not tethered to time and space in the way that I would be if I was stuck inside
-a body that's  inevitably going to die."
-
-- " Theodore: What does a baby computer call its father? Samantha: I don't know.
-What? Theodore: Data."
-
-- "Samantha: Good. Tonight, after you were gone, I thought a lot. About you and
-how you've been treating me and I thought, "Why do I love you?" And then, I
-felt everything in me just let go of everything I was holding onto so tightly.
-And it hit me that I don't have an intellectual reason. I don't need one. I
-trust myself, I trust my feelings. I'm not gonna try to be anything other than
-who I am anymore and I hope you can accept that."
-
-- "Yeah, obviously. But I'm happy that you have friends in your life that care so
-much about you so much. That's  so important."
-
-- "It's  like I'm reading a book and it's  a book I deeply love. But I'm reading
-it slowly now. So the words are really far apart and the spaces between the
-words are almost infinite. I can still feel you, and the words of our
-story...but it's  in this endless space between the words that I'm finding
-myself now."
-
-- "You know...I can feel the fear that you carry around and I wish there was
-something I could do to help you let go of it because...if you could...I don't
-think you'd feel so alone anymore. You're beautiful."
-
-- "Theodore: I’ve never loved anyone the way I loved you. Samantha: Me too. Now
-we know how. "
-
-- "Outside of life and death, everything else was other people's  business. Life
-and death are also matters of great importance. There were no other important
-events in life, only birth and death."
-
-- "There were times when youths were so hot-blooded and naive that it exasperated
-others, but when compared to those elders that had endured many long years of
-tribulations, their lives were much simpler and the relationships between them
-would also be much simpler."
-
-- "Now that they had finally touched upon these things, they abruptly realized
-that they  didn't want to mature anymore. Because maturing often indicated
-decay, indicated complexity and exhaustion."
-
-- "The world has always been very big and the minds of men have always been very
-complex. The dark times will always exceed the night, the uninteresting times
-will exceed the Heavenly Dao Academy, especially those old folks that rule this
-world. Their bodies exude the smell of dust from every pore." Tang Thirty-Six
-looked at him and said, "But those things aren't really important, because we
-aren't that sort of people." Chen Changsheng gazed into the water at his
-reflection, examining his own face. Somewhat uneasy, he asked, "Did you ever
-think…in the future, we might change into that sort of abhorrent people." Tang
-Thirty-Six sneered, "That's  every single person's  own problem. Could it be
-that even if you turn into a pile of shit, you still have the face to blame the
-world?" He continued, "You must understand, if we want to become a certain type
-of person, then our world will change to that type of world."
-
-- "You see, if you have the energy, you have to use it. If you have the strength,
-you have to apply it. When you're young, why shouldn't you be frivolous, doing
-whatever takes your fancy?"
-
-- "At a certain point in life, all of us find ourselves in the situation where we
-feel inadequate or lacking, but we should never let that get the best of us."
-
-- "Alcoholism and death make you omnivorous, both reckless & afraid, amoral,
-desperate. Do you really believe that? Sometimes. Sure. No. Yes."
-
-- "Just close your eyes, but keep your mind wide open."
-
-- "You know, the best prize that life offers is the chance to work hard at work
-worth doing"
 

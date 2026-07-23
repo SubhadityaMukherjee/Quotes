@@ -1,4 +1,208 @@
-<!-- Page 36 of 53  ·  quotes 3501–3600 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 36 of 54  ·  quotes 3501–3600 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Sometimes the things you hate are the things you need"
+
+- "THE WISDOM OF LIFE CONSISTS IN THE ELIMINATION OF NONESSENTIALS."
+
+- "In this example is the basic value proposition of Essentialism: only once you give
+yourself permission to stop trying to do it all, to stop saying yes to everyone, can you
+make your highest contribution towards the things that really matter."
+
+- "It took courage, as it always does, to eliminate the nonessential."
+
+- "the pursuit of success can be a catalyst for failure."
+
+- "It is not just the number of choices that has increased exponentially, it is also the
+strength and number of outside influences on our decisions that has increased."
+
+- "Instead of reacting to the social pressures pulling you to go in a million directions,
+you will learn a way to reduce, simplify, and focus on what is absolutely essential by
+eliminating everything else."
+
+- "One paradox of Essentialism is that Essentialists actually explore more options than
+their Nonessentialist counterparts."
+
+- "There is tremendous freedom in learning that we can eliminate the nonessentials, that
+we are no longer controlled by other people's agendas, and that we get to choose."
+
+- "That's when I realized that in sacrificing my power to choose I had made a choice—a bad
+one."
+
+- "My first act of free will shall be to believe in free will."
+
+- "Ironically, in a Nonessentialist culture these things—space, listening, playing,
+sleeping, and selecting—can be seen as trivial distractions. At best they are considered
+nice to have. At worst they are derided as evidence of weakness and wastefulness"
+
+- "If somebody can't make the meeting because of too much going on, that tells me either
+we're doing something inefficiently or we need to hire more people."
+
+- "We have sold ourselves into a fast-food model of education, and it's impoverishing our
+spirit and our energies as much as fast food is depleting our physical bodies.…
+Imagination is the source of every form of human achievement. And it's the one thing that
+I believe we are systematically jeopardizing in the way we educate our children and
+ourselves."2 In this he is correct. This idea that play is trivial stays with us as we
+reach adulthood and only becomes more ingrained as we enter the workplace. Sadly, not only
+do far too few companies and organizations foster play; many unintentionally undermine it.
+True, some companies and executives give lip service to the value of play in sparking
+creativity, yet most still fail to create the kind of playful culture that sparks true
+exploration. None of this should surprise us. Modern corporations were born out of the
+Industrial Revolution, when their entire reason for being was to achieve efficiency in the
+mass production of goods. Furthermore, these early managers looked to the military—a
+rather less-than-playful entity—for their inspiration (indeed, the language of the
+military is still strong in corporations today; we still often talk of employees being on
+the front lines, and the word company itself is a term for a military unit). While the
+industrial era is long behind us, those mores, structures, and systems continue to pervade
+most modern organizations. Play, which I would define as anything we do simply for the joy
+of doing rather than as a means to an end—whether"
+
+- "Pushing oneself to the limit is easy! The real challenge for the person who thrives on
+challenges is not to work hard."
+
+- "If the answer isn't a definite yes then it should be a no."
+
+- "It's natural not to want to let go of what we wasted on a bad choice, but when we
+don't, we doom ourselves to keep wasting even more."
+
+- "In other words, a good film editor makes it hard not to see what's important because
+she eliminates everything but the elements that absolutely need to be there."
+
+- "It's true that doing less can be harder, both in art and in life."
+
+- "Remember, forcing these people to solve their own problems is equally beneficial for
+you and for them."
+
+- "The only thing we can expect (with any great certainty) is the unexpected. Therefore,
+we can either wait for the moment and react to it or we can prepare. We can create a
+buffer."
+
+- "Being good with a hammer, the Nonessentialist thinks everything is a nail. Thus he
+applies more and more pressure, but this ends up only adding more friction and
+frustration. Indeed, in some situations the harder you push on someone the harder he or
+she will push back."
+
+- "When we don't know what we're really trying to achieve, all change is arbitrary."
+
+- "It is the process Pixar uses on their movies. Instead of starting with a script, they
+start with storyboards—or what have been described as the comic book version of a movie.
+They try ideas out and see what works. They do this in small cycles hundreds of times.
+Then they put out a movie to small groups of people to give them advance feedback."
+
+- "We don't actually finish our films, we release them."
+
+- "ROUTINE, IN AN INTELLIGENT MAN, IS A SIGN OF AMBITION."
+
+- "If one's life is simple, contentment has to come. Simplicity is extremely important for
+happiness."
+
+- "When you reach my age, Amara, people show themselves to you very clearly. They write
+their intentions and beliefs through their actions, their lies."
+
+- "There are some people who will never understand what loyalty means. They could tell you
+what it was, of course, but they will never know. They will never see it from the inside.
+They couldn't imagine a world where something like that was real."
+
+- "There's two kinds of bad men in the world. I mean, there's all kinds of ways for a man
+to go bad, but when you get right down to it, there's only about two kinds of men who will
+hurt others with forethought. Premeditation. Men that don't figure there's anyone else
+alive who matters but them. And men who figure that there's something that matters more
+than anyone's life. Even their own." He shook his head. "First one is common enough.
+Petty, small. They're everywhere. People who just don't give a scorched crow about anyone
+else. Mostly, the bad they do doesn't amount to much. "The second kind is like your
+patriserus. People who hold something dear above their own lives, above anyone else's.
+They'll fight to protect it and kill to protect it, and the whole time they'll be thinking
+to themselves that it has to be done. That it's the right thing to do." Bernard glanced up
+at her and said, "Dangerous those. Very dangerous."
+
+- "If the beginning of wisdom is in realizing that one knows nothing, then the beginning
+of understanding is in realizing that all things exist in accord with a single truth:
+large things are made of smaller things. Drops of ink are shaped into letters, letters
+form words, words form sentences, and sentences combine to express thought. So it is with
+the growth of plants that spring from seeds, as well as with walls built of many stones.
+So it is with mankind, as the customs and traditions of our progenitors blend together to
+form the foundation for our own cities, history, and way of life. Be they dead stone,
+living flesh, or rolling sea; be they idle times or events of world-shattering proportion,
+market days, or desperate battles, to this law, all things hold: Large things are made
+from small things. Significance is cumulative—but not always obvious."
+
+- "If you've been unable to change a bad situation, even after many attempts, you should
+change how you look at the situation"
+
+- "Awareness is inherently pure, like the open sky. Stress, irritation, and anger can
+temporarily cloud the sky, but they can never pollute it."
+
+- "The martial path was lonely. It was a source of great happiness if one found a
+confidant."
+
+- "The Azure Yang Lord's uninhibited life was filled with ups and down. Having felt both
+extreme happiness and sadness, he knew how difficult it was to earn happiness. If he could
+make this moment last forever, that would be a blissful matter… However, be it the Azure
+Yang Lord or the ancient Great Empress, they knew that these days were not going to last."
+
+- "Warriors had to suffer hardship and experience numerous life and death encounters. If
+they were not careful, they would lose their lives. They had to restrain their desires and
+endure lonely decades of reclusive training. Wasn't all this for them to lead a free life
+and do as they pleased when their power succeeded on reaching unprecedented heights!?
+Everything in the world depended on one's preference. To do as the heart pleased!"
+
+"The ways of the world are full of vicissitudes, and in it, there is the grief at
+separation and joy in union, the suffering of life and death. No matter how thick a
+history book is, it would not be able to record everything down. However, it is such
+infinite matters of the past that can pass by with a finger snap. In one's old age, while
+looking back at the past, only then would you feel like everything was ephemeral."
+
+- "The further he walked, the tinier he felt."
+
+- "Against the vast cosmos, the lives of people were like ants. It was like how bacteria
+did not know what it meant for the first and last day of the month, or how mole crickets
+did not know the seasons. What was a mortal's life to the Universe? Yi Yun did not want to
+remain like a speck of dust in the Universe."
+
+- "In a warrior's world, we may have the power to cause great destruction, have long
+lifespans, and are able to lead extravagant lives, but the pressure is intense. Be it
+life-and-death trials or breakthroughs that require great risks, or the sense of urgency
+of being killed by someone else at any moment in time, it forces us to continuously forge
+ahead." "The accumulation of all these pressure naturally need an opportunity for it to be
+released."
+
+- "Time is like a flowing river. Everything and anything can be washed away by that
+river."
+
+- "Everyone had their own time, but time treated everyone equally."
+
+- "Were destruction and finality the end? Matter in the Universe could not remain eternal.
+They would eventually proceed towards destruction, including the Universe. But what
+happened after destruction? Could it be that all that was left was eternal 'nothingness'?
+Everything in the world underwent birth and death. A drop of water could evaporate and
+become part of a cloud before condensing into new drops of rain. Plants would wither, but
+the fruits that they bore could give rise to seeds. Mortals would die of age, but babies
+would grow up into adults. Stars could be destroyed, but new stars would eventually be
+born… Everything in the world underwent a cycle, so it definitely included the Universe.
+The destruction of the Universe was the beginnings of a new Universe. It was just that the
+cycle was immensely long that it was beyond the imagination of mere mortals. New Universe…
+Yi Yun suddenly seemed to realize something. What were the beginnings of the Universe? Dao
+begets One, One begets Two… Before Yin-Yang and Space-time was Chaos! Rebirth after
+destruction was Chaos and Major Destruction respectively. They were both two Great Dao of
+Supremacy! Why were there two Great Dao of Supremacy? They might be like Yin-Yang,
+Space-time, Water-Fire, just two sides of the Universe. The two could supplement each
+other and not a single one was dispensable."
+
+- "Chaos in the world leads to the suffering of all life, but it is something some people
+are willing to see. Heroes are born in difficult times."
+
+- "Humans were warlike, to begin with. It was common among humans to fight unceasingly for
+their interests. Furthermore, there were some perverse people who wanted revenge on the
+world. Such people were even more dangerous. There was no limit to what they would do. Yi
+Yun knew that there was evil deeply rooted in human nature. However, he was not a person
+who would bemoan the state of the universe and mankind, much less the kind who would
+question life after seeing the ugly nature of humans and eventually decide to destroy the
+entire world in a crazy fit. He was only Yi Yun, an ordinary person that pursued the
+martial path, wanting his life to escape the cycle of samsara."
+
+- "He who understands the times is a wise man."
+
+- "Life, from lifeforms as large as towering trees to bugs as small as ants, the reason
+for all they do is for the continuation of their bloodline."
+
 - "In this Sinkhole that was filled with despair, a bunch of seniors were forging ahead
 bearing the burdens, so as to hold up the sky for the young. Although these seniors had
 their backs hunched from the pressures of time, to the point of not being able to bear the
@@ -189,177 +393,4 @@ history can be quite the slattern. One never knows who that person is, where he 
 or what decision he might make. It is almost enough to make me believe in Destiny."
 
 - "I think men who lust for power are capable of almost anything."
-
-- "But the power to shake mountains does little good if the knife is already buried in
-one's throat"
-
-- "Courage." Tavi sighed. "As near as I can figure it, all courage gets you is more of a
-beating than if you'd run away."
-
-- "Sometimes," Bernard rumbled, "the only smart thing to do is nothing. Sometimes you just
-have to be still and see how events begin to unfold before you move. Be patient."
-
-- "Don't struggle to heal your wounds. Just pour time into your heart and wait"
-
-- "Having critics means what you're doing is getting people's attention"
-
-- "To be happy, it's not necessary to expend great effort so we get somewhere else.
-Instead, relax into the present moment while finding humor in your life. With humor, life
-becomes light and leisurely. And laughter always brings people to experience openness and
-joy"
-
-- "Humor opens closed hearts."
-
-- "as frequently as you can as a family. Although we see our family every day, we don't
-really get to be with"
-
-- "Although we see our family every day, we don't really get to be with one another. A
-change in environment can do wonders and can bring families closer. A good family trip can
-prevent divorce. What makes music beautiful is the distance between one note and another.
-What makes speech eloquent is the appropriate pause between words. From time to time we
-should take a breath and notice the silence between sounds. When you have to make an
-important decision,"
-
-- "The world will keep turning even without you. Let go of the idea that your way is the
-only way, that you are the only one who can make it happen"
-
-- "Therefore, much like a mirror reflects what is before it without judgment or
-identification with the image, simply reflect the negative emotion—let's say it's
-anger—and watch dispassionately. You will see the anger slowly changing shape, either
-revealing a deeper layer of emotion or disappearing on its own. If another layer of
-emotion is revealing itself, attend to it the way you did with your anger."
-
-- "pure attention without judgment is not only the highest form of human intelligence, but
-also the expression of love"
-
-- "No person can be found Who has been, is, or will be Only criticized Or only praised."
-
-- "When someone criticizes another, you might think he deserves it. But if you look more
-closely, you'll see that the critic is complaining because he did not get his way."
-
-- "As we resist, we are in constant motion trying to adjust, and yet we still remain
-unhappy about what is"
-
-- "When you cannot control even your own mind, what makes you think you can control
-others?"
-
-- "Whether it is an object, a thought, or a feeling, if it has emerged out of emptiness,
-it will soon change its form and eventually retreat back to emptiness. Seekers in search
-of the eternal Truth must look beyond its impermanent nature and become aware of "that"
-which knows impermanence"
-
-- "Spirituality must be practiced not just in solitude but also among people. Open up to
-people around you and feel connected. This is the true challenge of spiritual practice."
-
-- "Feelings are often born from a matrix of conditions beyond your control. Just like you
-can't control the weather, or your boss's mood, you can't control the feelings in your
-body. They are just passing through, like clouds in the sky. They, too, dissipate on their
-own. But if you take them too seriously and start internalizing them as part of your
-identity, then you will resuscitate them every time you think about the past. Remember
-that you are neither your feelings nor the story your mind tells about you to make sense
-of them. You are the vast silence that knows of their emergence and their disappearance"
-
-- "Of all the words that pour out of our mouths every day, how many are really ours, and
-how many are borrowed from others?"
-
-- "Everything in this universe is evanescent. Because it is evanescent, it is also
-precious. Spend this precious moment wisely and beautifully. The mind cannot have two
-thoughts at once. See if you can think two thoughts at exactly the same time. Well? Is it
-possible? We can be consumed by anger for a long time without realizing we have been
-angry. Similarly, we are easily lost in thought without knowing we have been thinking.
-Even when we are awake we are no different from a sleepwalker. We do things without the
-awareness of doing them. Just because our eyes are open does not mean we are awake. Being
-awake means that"
-
-- "When I gaze upon water, I become water. When I look at a flower, I become the flower.
-The flower riding on the water, yippee!"
-
-- "A long time ago, there was only one mind, which became bored by being alone for so
-long. So it decided to split into two. But since the two knew they were originally one,
-playing together was not much fun— as if playing both sides of a chess game. So the two
-minds agreed to forget where they came from; they pretended not to know each other. As
-time passed, they also forgot about their agreement. They forgot they were actually one
-and the same. This is the condition of our existence. We forget that we are originally
-from one mind."
-
-- "Life is like theater. You are assigned a role. If you don't like the role, keep in mind
-that you have the power to re-create the role you want"
-
-- "something I should have known all along. When we're first given a job, especially one
-we've been working toward for a long time, it's easy to become overly enthusiastic, as we
-are eager to prove ourselves. But in our excitement, we make the mistake of equating our
-own eagerness with effectiveness"
-
-- "When we're first given a job, especially one we've been working toward for a long time,
-it's easy to become overly enthusiastic, as we are eager to prove ourselves. But in our
-excitement, we make the mistake of equating our own eagerness with effectiveness. Getting
-the job done well is more important than one's feelings of doing a good job. It takes
-wisdom to discern that these two are not always related. In some cases, one's zealous
-efforts can get in the way of achieving the desired outcome, especially if one is unable
-to see the needs of the others working toward it together"
-
-- "The world notices your efforts more quickly than you think"
-
-- "It is important that you work hard, but don't be enamored of the feeling of working
-hard. If you are drunk on that feeling, then you care less about the actual work than
-about how you appear to others to be working hard."
-
-- "A person does not live the way he says he would. He lives the way he has been living"
-
-- "A vow to help others can summon immense energy from within."
-
-- "When you are making a decision, try to assess how many people it will benefit. If it
-satisfies only your ego and unnecessarily hurts many, then it is the wrong decision"
-
-- "Isn't it better to be happy together than to be right alone?"
-
-- "One lesson of maturity is that we should not take our thoughts too seriously, and must
-learn to curb our ego and see the bigger picture."
-
-- "Criticism without a solution is merely an inflation of the critic's ego."
-
-- "When you ask a question and there is no response, then that is the answer."
-
-- "Don't try to make it perfect. Instead, make it interesting!"
-
-- "After mastering eighteen levels of kung fu, you can hurt someone with the flick of a
-finger. But if you go on to master all thirty-six levels, you choose to retreat when the
-weak foolishly come to fight"
-
-- "From this experience I realized that the art of maintaining a good relationship can be
-compared to sitting by a fireplace. If we sit too close for too long, we become hot and
-possibly burned. If we sit too far away, we cannot feel the warmth. Similarly, no matter
-how well we get along with someone, if we stick too close without building in some
-personal space, we soon feel trapped and burned out; it is easy to take the relationship
-for granted and feel resentful about not having enough privacy and independence. On the
-other hand, if we put in too little effort to stay in touch with friends and family, we
-can't feel the warmth of their love. Striking a balance is key"
-
-- "cup was full. Perplexed, Maeng demanded to know what he was doing. "You seem to know
-that too much tea will ruin the floor," the master answered, "but how do you not know that
-too much knowledge will ruin one's character?"
-
-- "If you lower your head, you won't bump into trouble."
-
-- "Do not expect others to follow your way. When things always go your way, it is easy to
-become arrogant."
-
-- "The end of a sushi roll, with the filling sticking out, is often tastier than a piece
-sliced neatly from the middle. Someone slick and well-put-together can come across as cold
-and alienating, while an average guy without pretense is more genuine and attractive"
-
-- "People say hurtful things because they themselves have been hurt."
-
-- "When you criticize someone, see if you are doing so out of envy. Your criticism reveals
-more about yourself than you realize. Even if you are correct, people still may find you
-unappealing. If you wish to communicate effectively with others, better to describe what
-you are feeling rather than go on the offensive. For instance, say, "I am very sad to hear
-that," not, "Why do you always make me sad?"
-
-- "You want people to hear you rather than have to defend themselves from you"
-
-- "When blinded by anger, we make choices we later regret. Leaving the room before the
-bridge is burned is a sign of maturity"
-
-- "The best revenge is love"
 

@@ -1,4 +1,91 @@
-<!-- Page 12 of 53  ·  quotes 1101–1200 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 12 of 54  ·  quotes 1101–1200 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Heaven and Earth are just resting places for the myriads of living creatures.
+Time represents the passage of hundreds of generations of passing travellers."
+A smile broke out on Meng Hao’s face. Life is a journey, every turn of which is
+filled with new scenery. This path that he tread now contained his mark.
+Whether the mark was shallow or deep didn’t matter. That was because, it was
+his choice. "Maybe my path hasn’t even arrived." He shook his head. Perhaps in
+the future he would realize what his purpose in life was. For the moment, he
+still didn’t know. Since he didn’t know, he wouldn’t force himself to choose.
+When traveling, it is never possible to know what unfathomable things might
+occur. That is what makes it beautiful."
+
+- "Cultivators have what it takes to stand up to Heaven and Earth. Cultivators
+have the stubbornness to never bow their heads, no matter how bloody the
+battle. That is a Cultivator. To me, a Cultivator is someone who stands,
+covered in blood, hair snow white, facing a host of enemies. And yet, no matter
+the danger, no matter how difficult the path, a Cultivator will grit his teeth,
+lift his head up and laugh! In this manner, he will become a legend! That is
+what a Cultivator is to me."
+
+- "Entombed on the Earth, but desirous of a return to life in the Heavens…."
+
+- "There are some things I hesitate to do, but after I do them, I feel no
+regret."
+
+- "Sometimes, the meaning of an entire life can be only because of a chance
+meeting."
+
+- "What Cultivators truly cultivate, is self-confidence, and even more
+importantly, self-awareness. I have to say that … I, Meng Hao, do not dare to
+call myself a straightforward and upright person. Nor am I a gentleman, or a
+man of honor. But I always repay the kindnesses shown to me!
+
+- "In Confucianism, there is a concept of a path of justice that contains two
+parts. One part involves being kind and tolerating others. The other involves
+taking action when necessary. After entering the Cultivation world, Meng Hao
+also had his own path. This path had nothing to do with Cultivation, but
+rather, personal principles. Meng Hao’s principles also contained the concept
+of justice, a justice with two parts. One was the law of repaying kindnesses.
+The other was bringing death in response to attacks! Cultivation is about
+developing confidence. Cultivation is about learning how to conduct oneself!"
+
+- "Sowing contains reaping, reaping contains sowing. Everything that happened
+before was all sowing. Karma was reaped after I led the Crow Divinity Tribe out
+of the north all the way to the Black Lands. "It is similar to repaying
+kindnesses. The kindness is the sowing of Karma, and the repayment is the
+reaping of it! "Karma is about cause and effect. I… understand now."
+
+- "Life and death oppose each other but also exist in a cycle. Without life, how
+could there be death? And without death… what could serve as a contrast to
+life!?"
+
+- "Within the sea, time is forgotten. Endless coldness, knows no years."
+
+- "Death is oftentimes quite simple. Life is oftentimes quite fragile."
+
+- "Emotions… are not a hindrance," he murmured. "Emotions… are what make life
+complete."
+
+- "The world is an ever changing system of relationships and structures"
+
+- "Some say continuing to do the same thing over and over again is the definition
+of insanity. On the other hand you say if at first you don't succeed try try
+and try again."
+
+- "I can not only imagine artificial intelligence evolving spontaneously on the
+internet, but I can’t tell you that it hasn’t happened already. Because it
+wouldn’t necessarily reveal itself to us."
+
+- "Civilisation is always about four square meals away from ruin."
+
+- "On the internet nobody knows if you are a dog."
+
+- "Time is like a dream. It’s impossible to tell what is true and what is false.
+When you dream, you see others. Perhaps in the world of others, the dream
+version of you appears. Or perhaps our lives are like an invisible bubble that
+could pop at any time, and cause us to awaken. Who dreams of you, and who you
+dream of… this is truly a difficult riddle to explain…."
+
+- "I thought that when I saw you, I would have the world. I didn’t know that
+within your dreams, you already had me."
+
+- "Ten thousand things, all in this breath grasping hold of emptiness, there
+really is nothing to say. Why are people so busy? Just for this one breath,
+People say busy, busy; mine, mine. Busy a whole lifetime for Me’. When this one
+breath is let off, you let go of this whole universe, why not let go from the
+start?"
+
 - "You want to talk about real. Show mean thing that is real. There is nothing
 real from the start. Every morning to night, gathering things, big and small,
 valuables, money name and recognition; gathering it all up into your lap. Busy
@@ -284,6 +371,7 @@ ever get lonely, just go to the record store and visit your friends."
 can really explain rock 'n' roll. Maybe Pete Townshend, but that's  okay. Rock
 'n' roll is a lifestyle and a way of thinking... and it's  not about money and
 popularity. Although, some money would be nice. But it's  a voice that says,
+
 - "Here I am... and fuck you if you can't understand me." And one of these people
 is gonna save the world. And that means that rock 'n' roll can save the
 world... all of us together. And the chicks are great. But what it all comes
@@ -390,96 +478,4 @@ sail for ten thousand years that you must control with care. The path of
 Immortal cultivation…it requires sharpness. Only with a heart that is filled
 with a desire to charge into the heavens can you walk even farther on this
 path."
-
-- "How to make your goals grand but not too high…how to be cautious and yet have
-the desire to charge into the heavens…you will need to handle this yourself.
-The world is divided into yin and yang, and between yin and yang lies the
-heart."
-
-- "Good. That’s the attitude I like to see. Defeat isn’t frightening; what’s
-frightening is not even having the courage to try."
-
-- "But there are no absolutes in life. There’s always a chance."
-
-- "Stupidity does not mean you have the power to speak unreasonably, nor is it
-something that requires respect."
-
-- "Skill from diligence; incompetence from indulgence. I dare not slack off."
-
-- "What will people think of your 's cience' two thousand years from now?" Mr. D
-continued. "Hmm? They will call it primitive mumbo jumbo. That's  what. Oh, I
-love mortals—they have absolutely no sense of perspective. "
-
-- "There is no sound more annoying than the chatter of a child, and none more sad
-than the silence they leave when they are gone."
-
-- "A Dark time comes. My time. If it offends you. Stop Me."
-
-- "I think you're enough like me to understand. If my life is going to mean
-anything, I have to live it myself. I can't let a god take care of me ... or my
-son. I have to . . . find the courage on my own. "
-
-- "Families are messy. Immortal families are eternally messy. Sometimes the best
-we can do is to remind each other that we're related, for better or worse ...
-and try to keep the maiming and killing to a minimum."
-
-- "Evil is easy to fight. Lack of wisdom... that is very hard indeed."
-
-- "Happily Ever After doesn’t exist. Every day you wake up and decide to love
-your partner and your life—the good, the bad and the ugly. Some days it’s a
-struggle and some days you feel like the luckiest person in the world."
-
-- "When you commit to someone, you don’t actually know who you’re committing to.
-You know who they are today, but you have no idea who this person is going to
-be in five years, ten years, and so on. You have to be prepared for the
-unexpected, and truly ask yourself if you admire this person regardless of the
-superficial (or not-so-superficial) details, because I promise almost all of
-them at some point are going to either change or go away."
-
-- "Relationships exist as waves, people need to learn how to ride them."
-
-- "You can work through anything as long as you are not destroying yourself or
-each other. That means emotionally, physically, financially, or spiritually.
-Make nothing off limits to discuss. Never shame or mock each other for the
-things you do that make you happy. Write down why you fell in love and read it
-every year on your anniversary (or more often). Write love letters to each
-other often. Make each other first. When kids arrive, it will be easy to fall
-into a frenzy of making them the only focus of your life…do not forget the love
-that produced them. You must keep that love alive and strong to feed them love.
-Spouse comes first. Each of you will continue to grow. Bring the other one with
-you. Be the one that welcomes that growth. Don’t think that the other one will
-hold the relationship together. Both of you should assume it’s up to you so
-that you are both working on it. Be passionate about cleaning house, preparing
-meals, and taking care of your home. This is required of everyone daily, make
-it fun and happy and do it together. Do not complain about your partner to
-anyone. Love them for who they are. Make love even when you are not in the
-mood. Trust each other. Give each other the benefit of the doubt always. Be
-transparent. Have nothing to hide. Be proud of each other. Have a life outside
-of each other, but share it through conversation. Pamper and adore each other.
-Go to counseling now before you need it so that you are both open to working on
-the relationship together. Disagree with respect to each other’s feelings. Be
-open to change and accepting of differences."
-
-- "The wine god sighed. "Oh, Hades if I know. But remember, boy, that a kind act
-can sometimes be as powerful as a sword. As a mortal, I was never a great
-fighter or athlete or poet. I only made wine. The people in my village laughed
-at me. They said I would never amount to anything. Look at me now. Sometimes
-small things can become very large indeed."
-
-- "Poseidon put his weathered hand on my shoulder. "Percy, lesser beings do many
-horrible things in the name of the gods. That does not mean we gods approve.
-The way our sons and daughters act in our names...well, it usually says more
-about them than it does about us. "
-
-- "Sometimes the hardest power to master is the power of yielding. Do you believe
-me?"
-
-- "You can't beat me, Oliver. Yes, you're younger and you're faster, yet you
-always come up short against me. Wanna know why? Because you don't know, in
-your heart, what you're fighting for. What you're willing to sacrifice. And I
-do."
-
-- "So you'll atone for one murder, Robert, by committing hundreds, thousands?"
-
-- "Nothing is bred that is weaker than man."
 

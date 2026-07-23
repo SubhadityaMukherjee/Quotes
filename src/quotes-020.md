@@ -1,4 +1,130 @@
-<!-- Page 20 of 53  ·  quotes 1901–2000 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 20 of 54  ·  quotes 1901–2000 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Just pity him, my boy. Tomorrow we’ll be on our way, but he’ll have to keep
+his own disagreeable company until the day he dies."
+
+- "A poet is a musician who can’t sing. Words have to find a man’s mind before
+they can touch his heart, and some men’s minds are woeful small targets. Music
+touches their hearts directly no matter how small or stubborn the mind of the
+man who listens."
+
+- "Bones mend. Regret stays with you forever."
+
+- "Because pride is a strange thing, and because generosity deserves generosity
+in return. But mostly because it felt like the right thing to do, and that is
+reason enough."
+
+- "Besides, anger can keep you warm at night, and wounded pride can spur a man to
+wondrous things."
+
+- "Anyone who thinks boys are innocent and sweet has never been a boy himself, or
+has forgotten it. And anyone who thinks men aren’t hurtful and cruel at times
+must not leave his house often. And he has certainly never been a physicker."
+
+- "That’s why stories appeal to us. They give us the clarity and simplicity our
+real lives lack."
+
+- "Music is a proud, temperamental mistress. Give her the time and attention she
+deserves, and she is yours. Slight her and there will come a day when you call
+and she will not answer."
+
+- "And while my suite of rooms at the Horse and Four had been luxurious, my tiny
+room at Anker’s was comfortable. Think in terms of shoes. You don’t want the
+biggest you can find. You want the pair that fits. In time, that tiny room at
+Anker’s came to be more of a home to me than anywhere else in the world."
+
+- "If you are searching for a pattern in anything, you will most likely find it"
+
+- "It had been treated unkindly in the past, but that didn’t make it less lovely
+underneath. So yes. It had flaws, but what does that matter when it comes to
+matters of the heart? We love what we love. Reason does not enter into it. In
+many ways, unwise love is the truest love. Anyone can love a thing because.
+That’s as easy as putting a penny in your pocket. But to love something
+despite. To know the flaws and love them too. That is rare and pure and
+perfect."
+
+- "You know you’re clever. That’s your weakness. You assume you know what you’re
+getting into, but you don’t."
+
+- "My point is this. In each of us there is a mind we use for all our waking
+deeds. But there is another mind as well, a sleeping mind. It is so powerful
+that the sleeping mind of an eight-year-old can accomplish in one second what
+the waking minds of seven members of the Arcanum could not in fifteen minutes."
+
+He made a sweeping gesture. "Your sleeping mind is wide and wild enough to hold
+the names of things. This I know because sometimes this knowledge bubbles to
+the surface. Inyssa has spoken the name of iron. Her waking mind does not know
+it, but her sleeping mind is wiser. Something deep inside Fela understands the
+name of the stone."
+
+Elodin pointed at me. "Kvothe has called the wind. If we are to believe the
+writings of those long dead, his is the traditional path. The wind was the name
+aspiring namers sought and caught when things were studied here so long ago."
+
+- "What use is care? What good is watching for that matter? People are forever
+watching things. They should be seeing. I see the things I look at. I am a
+see-er."
+
+- "The struggle is great, the task divine—to gain mastery, freedom, happiness,
+and tranquility."
+
+- "This is, in fact, the first obligation of a leader and a decision maker. Our
+job is not to "go with our gut" or fixate on the first impression we form about
+an issue. No, we need to be strong enough to resist thinking that is too neat,
+too plausible, and therefore almost always wrong. Because if the leader can’t
+take the time to develop a clear sense of the bigger picture, who will? If the
+leader isn’t thinking through all the way to the end, who is?"
+
+- "We do not live in this moment. We, in fact, try desperately to get out of
+it—by thinking, doing, talking, worrying, remembering, hoping, whatever. We pay
+thousands of dollars to have a device in our pocket to ensure that we are never
+bored. We sign up for endless activities and obligations, chase money and
+accomplishments, all with the naïve belief that at the end of it will be
+happiness."
+
+- "A wealth of information creates a poverty of attention."
+
+- "With my sighted eye I see what’s before me, and with my unsighted eye I see
+what’s hidden"
+
+- "What they thought was silence, because they didn’t know how to listen, was
+full of accidental sounds. You could hear the wind stirring outside during the
+first movement. During the second, raindrops began pattering the roof, and
+during the third the people themselves made all kinds of interesting sounds as
+they talked or walked out."
+
+- "Most of us would be seized with fear if our bodies went numb, and would do
+everything possible to avoid it, yet we take no interest at all in the numbing
+of our souls."
+
+- "In other words, any act that rejects immediate gratification in favor of
+long-term growth, health, or integrity. Or, expressed another way, any act that
+derives from our higher nature instead of our lower. Any of these will elicit
+Resistance."
+
+- "The more important a call or action is to our souls evolution, the more
+Resistance we will feel toward pursuing it."
+
+- "Doctors estimate that seventy to eighty percent of their business is
+non-health-related. People aren't sick, they're self-dramatizing."
+
+- "In the past, the focus of the process of invention has tended to be on
+actually getting something to work ("find the lightbulb filament that works,"
+et cetera). But in the computational universe, the focus shifts to the question
+of what you want the invention to do. Because once you’ve described the goal,
+finding a way to achieve it is something that can be automated."
+
+- "the truly free individual is free only to the extent of his own self-mastery."
+
+- "The artist must be like that Marine. He has to know how to be miserable. He
+has to love being miserable. He has to take pride in being more miserable than
+any soldier or swabbie or jet jockey. Because this is war, baby. And war is
+hell."
+
+- "My friend Tony K e p p e l m a n's n a p p e d me out of it by asking if I was
+gonna quit. Hell, no! "Then be happy. You're where you wanted to be, aren't
+you? So you're taking a few blows. That ''s the price for being in the arena
+and not on the sidelines. Stop complaining and be grateful."
+
 - "He knows that any job, whether it's  a novel or a kitchen remodel, takes twice
 as long as he thinks and costs twice as much. He accepts that."
 
@@ -324,116 +450,4 @@ another stage of life for them?"
 
 - "When your Dao is the heart, then if you have something in your heart, it
 exists. If you don’t have it in your heart, it doesn’t exist."
-
-- "Give a man a fish and you feed him for a day. Teach a man to fish and you feed
-him for a lifetime so that he many never discover how much he loves steak"
-
-- "It’s not the writing part that’s hard. What’s hard is sitting down to write.
-What keeps us from sitting down is Resistance."
-
-- "You think Resistance isn’t real? Resistance will bury you."
-
-- "The danger is greatest when the finish line is in sight. At this point,
-Resistance knows we’re about to beat it. It hits the panic button. It marshals
-one last assault and slams us with everything it’s got."
-
-- "The paradox seems to be, as Socrates demonstrated long ago, that the truly
-free individual is free only to the extent of his own self-mastery. While those
-who will not govern themselves are condemned to find masters to govern over
-them."
-
-- "The counterfeit innovator is wildly self-confident. The real one is scared to
-death."
-
-- "So if you’re paralyzed with fear, it’s a good sign. It shows you what you have
-to do."
-
-- "Remember, the part of us that we imagine needs healing is not the part we
-create from; that part is far deeper and stronger. The part we create from
-can’t be touched by anything our parents did, or society did. That part is
-unsullied, uncorrupted; soundproof, waterproof, and bulletproof. In fact, the
-more troubles we’ve got, the better and richer that part becomes."
-
-- "I write only when inspiration strikes," he replied. "Fortunately it strikes
-every morning at nine o’clock sharp."
-
-- "Show me a writer who’s too good to take Job X or Assignment Y and I’ll show
-you a guy I can crack like a walnut."
-
-- "He knows that any job, whether it’s a novel or a kitchen remodel, takes twice
-as long as he thinks and costs twice as much. He accepts that. He recognizes it
-as reality."
-
-- "Clear your mind young padawan, There is no emotion, there is peace. There is
-no ignorance, there is knowledge. There is no passion, there is serenity. There
-is no chaos, there is harmony. There is no death, there is the Force".
-
-- "There you are; human nature in action, wrongdoers, blaming everybody but
-themselves. We are all like that."
-
-- "When dealing with people, let us remember we are not dealing with creatures of
-logic. We are dealing with creatures of emotion, creatures bristling with
-prejudices and motivated by pride and vanity."
-
-- "God himself, sir, does not propose to judge man until the end of his days. Why
-should you and I?"
-
-- "If there is any one secret of success," said Henry Ford, "it lies in the
-ability to get the other person's  point of view and see things from that
-person's  angle as well as from your own."
-
-- "The universe is largely left up to chance, and the control you think you have…
-much of it is a delusion."
-
-- "Those who work in a playful, relaxed manner tend to work efficiently and
-creatively. Those who work nonstop, driven only by stress, work without joy."
-
-- "A good family trip can prevent divorce. What makes music beautiful is the
-distance between one note and another. What makes speech eloquent is the
-appropriate pause between words. From time to time we should take a breath and
-notice the silence between sounds."
-
-- "The tycoons of social media have to stop pretending that they’re friendly nerd
-gods building a better world and admit they’re just tobacco farmers in T-shirts
-selling an addictive product to children. Because, let’s face it, checking your
-- "likes" is the new smoking."
-
-- "Some may not believe it,but I spent hours perfecting whatever I did."
-
-- "People have to grow through skillful frustrations, otherwise they have no
-incentive to develop their own means and ways of coping with the world."
-
-- "Had not this water just now illustrated to me the principle of gung fu? I
-struck it but it did not suffer hurt. Again, I struck it with all my might—yet
-it was not wounded! I then tried to grasp a handful of it but this proved
-impossible. This water, the softest substance in the world, which could be
-contained in the smallest jar, only seemed weak. In reality, it could penetrate
-the hardest substances in the world. That was it! I wanted to be like the
-nature of water."
-
-- "Well, the water was not to be deterred. It was going to find a path, or even
-multiple paths. It would move along until it met with an obstacle, and then, if
-it needed to, it would change course and keep on flowing. It used "no way" as
-its way. In other words, it used every possible way. And it ran along without
-limitation."
-
-- "Perfection as we typically think about it should be treated more as a way to
-focus our attention rather than a final accomplishment that we attain"
-
-- "Like flowing water, life is perpetual movement"
-
-- "Water doesn’t have this problem. A wave doesn’t have to remember how to land
-on the shore. A river doesn’t have to consider how to carve a canyon into a
-mountain. A lake doesn’t have to practice giving life to the fish and the
-plants. In its simple way of just being, water can be our guide along our path
-to our natural selves. And one day, if we self-actualize, we can attain (and
-reclaim) this"
-
-- "The world is always fair to those who win"
-
-- "Work hard, try your best and enjoy the good fortune if it comes your way. But
-dont depend on it. And dont think if it doesnt, you are somehow less worthy or
-to blame "
-
-- "Life can only be understood backwards; but it must be lived forwards."
 

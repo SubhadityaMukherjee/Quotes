@@ -1,4 +1,141 @@
-<!-- Page 27 of 53  ·  quotes 2601–2700 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 27 of 54  ·  quotes 2601–2700 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Jeht: I don't have family traditions, and I don't even remember my mother's
+face. I only have you, and you only have me. There is no large tree and no
+branches that tie us together.  Jeht: You might have left the desert long ago,
+and this might be my first time seeing it for myself, but I have this feeling
+that we are like grains of sand here in the desert.  Jeht: No family, no
+objective... But what we are is pretty free. Haha!  Paimon: Jeht...  Jebrael:
+The desert holds only the past. It has no future. If what lies beneath the sand
+and wind can be described as the truth, then I can only say that it perhaps
+isn't something that will bring joy to everyone.  Jebrael: I gave up the path
+of seclusion, not because it's a mistaken path, but because I found a better
+path. Jeht, I hope you'll be able to take that bright path.  Jeht: I don't
+really understand you. If the path of sand isn't what you desire, then why
+accept Tirzad's commission? Don't tell me it's because you want to take a look
+at your past.  Jeht: I think you just can't forget the desert and the hot winds
+that sweep it.  Jeht: The strange thing is that I have no memories of the
+desert, but coming here makes me feel like I've returned home all the same.
+Jeht: I love the sand, just like I love Paimon and Benben."
+
+- "O stars high above the wasteland; O nightingales weary from the day; It's time
+to take off the crown of roses; Cleanse yourself with wine made from grapes.
+Sleep, close your eyes; Yon golden slumber summons thee, wandering sand; Drink
+not that bitter salt water; For the sorrows of tomorrow have gone away."
+
+- "Underestimate the sand and you'll pay with your life."
+
+- "The door is protecting something very important, and so much time has passed
+that it has almost forgotten how it used to open."
+
+- "Coming to the desert is like returning home, and in the end, I'm a grain of
+sand. I was born here, and I shall be buried here as well."
+
+- "Ufairah and I were like a bird and a fish, but Al-Ahmar's secrets allowed our
+fates to intertwine. Now, you and I, people from different lands, are again
+here for those very same secrets."
+
+- "A man chained by hatred cannot raise a daughter."
+
+- "There was the Door to which I found no Key; There was the Veil through which I
+might not see: Some little talk awhile of Me and Thee There was--and then no
+more of Thee and Me." "Each Morn a thousand Roses brings, you say: Yes, but
+where leaves the Rose of Yesterday?"
+
+- "Agree to disagree. But, your appearance just made this a whole lot more
+interesting."
+
+- "Every journey has its end. Don’t rush."
+
+- "Some say a few are chosen and the rest are dregs; But I say we humans have our
+humanity. We will defy this world with a power from beyond."
+
+- "Then, the threads of all fate will be yours to reweave..."
+
+- "Beauty is a waste when the beholder has no taste."
+
+- "Nobody ever feels alone when they set off a firework"
+
+- "There will always be those who dare to brave the lightning's glow".
+
+- "Even if an antique is priceless, the happiness it brings lasts for only the
+moment you obtain it."
+
+- "I know, I know, you can't get me out of your mind. But you really don't need
+to call my name all the time."
+
+- "Never stop searching, even for a brief flash of light"
+
+- "We have always... had enough time"
+
+- "People believe whatever they want to believe. Some things they do not
+see,simply because they do not wish to look.
+
+- "To endure hardship you must prepare for hardship"
+
+- "What you might not realize is that all too often… people have far more to lose
+by chasing their dreams"
+
+- "If you’re not willing to communicate, then the problem just sits there. If you
+just keep staring at it without doing anything, eventually you’ll watch every
+last opportunity to resolve it slip away before your eyes"
+
+- "Where our legs cannot take us, maybe our tools can. And when tools fail us,
+perhaps wings can carry us instead."
+
+- "The spirit soars the mountains high, while the body rests as the world goes
+by...  By wave and storm I hunt for fish, by wind and snow I slay evil..."
+
+- "Let this be a lesson to those who yesterday said, "I'll do it tomorrow."
+
+- "As a Guuji, there's one thing I know very well: People believe whatever they
+want to believe. Some things you do not see, simply because you do not wish to
+look. And so... it falls to me to place the truth before your eyes, in all its
+ugliness."
+
+- "There are no coincidences in the world. Everything is the fruit of seeds
+planted long ago.Just like your appearance in that tavern.Time is just waiting
+for those seeds to sprout".
+
+- "I'm all for work-life balance, but I think this is pushing it."
+
+- "For those that live too long, the friends of days gone by and scenes from
+their adventures live on in their memories. As such i have no regrets in
+meeting you, friend. Should the day ever come that we are not together, you
+will continue to shine like gold in my memories."
+
+- "You stand upon your tomb, though you know it not! "
+
+- "When shall we meet again after this parting? For life is like the morning
+dew."
+
+- "What is more pure and free than than wish of a child?"
+
+- "No matter what the days may bring,whichever roads we choose to take.While this
+oath remains observed,each of us remains the same...."
+
+- "One is simply not partial to the tedium of social interaction, and wished to
+find some peace and quiet."
+
+- "Even I cannot avoid it. But there is something I understand better than most:
+When the door opens, it is time to leave. The greater the power, the greater
+the danger erosion may bring about. The millennia may come and go, but even a
+stone may tire."
+
+- "People who look for the flaws in others, expose theirs quickes"
+
+- "Because maybe it doesn't matter so much if something's real or not. Maybe
+magic and awesomeness are what make something worth believing. Why should
+someone else get to take that away from you?"
+
+- "Cast your fear of injury by the wayside and fight with all your might. I too
+did this during the Archon war"
+
+- "If saving you is a sin, I’ll gladly become a sinner"
+
+- "To be alive is to seek, to set foot in every place that eye can see."
+
+- "In teyvat, the stars in the sky will always have a place for you"
+
 - "Someday even bedrock returns to dust"
 
 - "For dawn to come, there must be those willing to pierce the darkness with
@@ -234,159 +371,4 @@ in life."
 - "I yearn to hear the song of nightingale, my patient ears ready to attend. A
 veil of mist obscures the western skies, into its midst a silver moon
 descends."
-
-- "Life is a long journey, and that's why I must travel far and wide."
-
-- "Ambition is our power in its rawest form. We cannot live without it."
-
-- "Old things often carry around some form of regret."
-
-- "But that's okay. Partings produce reunions, if not at home then in a distant
-land."
-
-- "When the heart is clear, the world is too. And when the heart is unladen, the
-same is true."
-
-- "Only when you witness my whole story does it become truly consigned to
-history."
-
-- "What really matters in life is not how strict we are with ourselves, but the
-connections we make along the way. There's no future for those who linger on
-the past."
-
-- "I often travel during storms Which means my eyes are often blinded by the rain
-Many times, I couldn't even see what was right in front of me One day, I
-finally reached the top of the mountain I looked out with the clouds beneath my
-feet And only the gentle breeze murmuring in my ears The highest mountain is a
-clear and enlightened heart Here, there is no self, no hatred, no regrets, and
-no desires Let's embark on a journey, for I am the breeze We will meet again,
-no matter how far along the road Life has just begun, and maybe the whole world
-can be my home"
-
-- "I wander like the autumn leaves that float to the mountains and seas afar."
-
-- "If an astrologist thinks that their arts can solve all problems, they will be
-forsaken by the starry ether.  Mona: Their divinations will lose the power to
-guide, and will not be able to pierce the fog of the unknown before them.
-Principles are principles."
-
-- "Haste is indeed a normal part of life, yes... but as we often put it, even a
-raging river must sometimes flow peacefully through a serene stream."
-
-- "The forest will remember. No good thing will ever fade away, and all
-suffering will come to nourish something beautiful..."
-
-- "The battlefield is a treacherous place. Every opportunity you take, you put
-everything on the line for. If you fear sacrifice and failure, you can never
-be victorious."
-
-- "Ningguang: Breakfast sets the tone for the rest of the day. You can't
-compromise on it.  Ningguang: If you wake up to the same monotonous meal each
-day, you will start to feel fatigued even before you start working."
-
-- "Times flies and the good years slip away easily."
-
-- "Sorry, sorry! It's just that good conversation can be as fleeting as
-fireworks, sometimes, you know? So when I'm in the mood and I've got a lot to
-say, I just have to get it all out there in one go and leave no regrets!"
-
-- "Yeah, no matter how close you and your friends are, there's always going to
-be some distance after being separated for a long time. But as soon as the
-fireworks lit up the sky, it'd instantly take us right back to our childhood,
-and we'd be chatting away like in the old days."
-
-- "Raiden Shogun: My form is a symbol of supreme majesty, in which has been
-vested power over all the realm. It is the cohesive embodiment of all that
-constitutes the "Raiden Shogun." Raiden Shogun: It inherits Ei's pain — the
-pain of inevitable loss that comes as she moves forward. So too does it inherit
-her determination to reach eternity.  Raiden Shogun: Every action undertaken is
-for the sake of resisting erosion.  Raiden Shogun: Determination, courage,
-love, hatred... All of these will be degraded and distorted by the
-incessant flow of time.  Raiden Shogun: Only rules shall remain
-constant for eternity."
-
-- "Change will come to Inazuma, and with it, new possibilities. This will take
-time, but eventually, the future will bring healing to the scars of the past."
-
-- "The people's sacrifice has always caused me immense pain, but in dwelling on
-the tragedy, I overlooked their splendor... The grief blinded me to how
-brightly they shone in their final moments."
-
-- "Jean: Don't worry about it too much. The more flustered you become, the less
-likely you are to find it.  Jean: Pay attention to what you see in your
-peripheral vision, and you might just stumble upon what you're looking for."
-
-- "Stop cooping yourself up in your cabin. Get some of that sea breeze, it'll do
-you some good."
-
-- "When people see the object of their dreams, how many are really able to
-control their desire and follow the contract...?"
-
-- "Drifting seeds are destined to flourish on nice soil... same for Nara! One
-day, the wind in Nara's hearts will stop, halting their steps."
-
-- "Don't worry, no memories will be lost! The forest will remember, just like the
-rivers emptying into the sea, before being turned into the rain splashing down
-unto the earth."
-
-- "The adepti leave the human world, find somewhere to go be a hermit, and then
-they research and invent all these amazing things..."
-
-- "Yep! Work hard, play hard, and rest even harder. The two of you may need even
-more rest than you'd expect!"
-
-- "Eternity stretches things out over a long time. But each moment within it
-becomes all the more fragile."
-
-- "A glutton, this Paimon is. A bite on the mushroom today, another bite
-tomorrow, and a hundred days later, there shall be no Paimon left in Paimon,
-but only mushrooms."
-
-- "A helping hand must see things to the end."
-
-- "May no regrets linger in the night bygone. May all shadows fade ere the dawn
-to come."
-
-- "Xamaran: ...Ignorance might be a blessing, and knowledge might bring forth
-calamity...  Xamaran: ...Only that which graced with the ambrosia of knowledge
-can flourish into the strong...  Xamaran: ...Only that which has been tested
-with the desolation of wandering can brave the wilderness..."
-
-- "Faith doesn't ask for anything in return though, does it?"
-
-- "Dainsleif: It's just my opinion, but a word of advice: Always be on your guard
-when around gods.  Dainsleif: You shouldn't place too much trust in them. But
-at the same time, don't go too far in the opposite direction... Don't go trying
-to overthrow them, or hunt them down."
-
-- "The ocean is good company... I hope we can all find some peace and happiness
-while we're here."
-
-- "Reply: "Instant gratification has no place in the aesthetics of a wicked
-dragon! First comes expectation, and then comes patience! Once a dragon's
-yearning for golden dreams has reached its peak..." Reply: "...Ah, then would
-the taste of those dreams not be splendid beyond compare?"
-
-- " Venti: It is people's shared will that brings them onto the same page. And
-surely, it is the wind of freedom that brought us together.  Venti: It comes
-from the end of the journey, the edge of the world, the depths of our heart. It
-is ceaseless."
-
-- "Who was it that stroked your bloodied, determined visage By stream flowing
-small By boulder standing large" Venti: "Who was it that embraced your weary
-yet noble soul In dreams deep In skies soaring" Venti: "Dear friend I am
-leading you by the hand Into the night where lanterns shine bright" Venti: To
-tell you a tale of freedom and dreams The tale of where this festival begins"
-
-- "Those who live by the sword know to listen to the voice of their blade.
-...Hehe, she's nagging me to get on with it again."
-
-- "Warriors make friends best when their swords clash, rather than when they talk
-around a table."
-
-- "Truly fascinating. The harder they try to silence the situation, the greater
-the chaos that erupts..."
-
-- "Pale flame, lay waste to this frozen shell and witness my suffering. In fires
-of sin and retribution, your soul will be incinerated!"
 

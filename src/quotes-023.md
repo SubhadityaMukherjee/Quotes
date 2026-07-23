@@ -1,4 +1,156 @@
-<!-- Page 23 of 53  ·  quotes 2201–2300 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 23 of 54  ·  quotes 2201–2300 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "You realize that there’s something to be said to limiting oneself, not just
+geographically, but also emotionally. That there’s a certain depth of
+experience and meaning that can only be achieved when one picks a single piece
+of creation and says, "This is it. This is where I belong."
+
+- "Perpetual world travel literally gives you a whole world of experience. But it
+also takes another away."
+
+- "The vast majority of people don’t care what you say or do the vast majority of
+the time. And this is liberating."
+
+- "But what you quickly notice is that the world moves on. And what may feel like
+a suicide-inducing embarrassment for you is usually but a mild novelty or smirk
+for everybody around you. Understanding this is healthy. And it’s a lesson
+that’s hard to learn sitting comfortably at home, and spending your
+life shuttling between the same three or four locations every day."
+
+- "unsavory friends–they’re then able to see how they actually"an
+
+- "Because once you learn that the vast majority of the planet doesn’t care who
+you are or what you’re doing, you realize that there is no reason to not be who
+you want to be. There is no one to please. There is no one to impress. Most of
+the time, it’s just you, yourself and the stories you invent in your mind."
+
+- "Because uncertainty breeds skepticism, it breeds openness, and it breeds
+non-judgment. Because uncertainty helps you to grow and evolve."
+
+- "And when you go long enough being uncertain of who you really are, what
+results is a form of subtle, long-term meditation–a persistent and necessary
+acceptance of whatever is arising, because you don’t actually know if it was
+the food that made you sick, and you don’t actually know if you like Eastern
+European cultures anymore, and you don’t really know how you feel about income
+inequality anymore, and you don’t know if your career path is the best for you
+or not, and you don’t really know if you miss your friends back home or if you
+just like the idea of missing your friends back home. And at some point, you
+just stop asking questions. And start listening. To the waves and the wind and
+the calls for love in all of the beautiful languages you will never understand.
+You just let it be. And keep moving."
+
+- "We tend to judge the immorality of addiction by the damage it causes to
+others. But Kant believed that, first, over-indulgence was fundamentally the
+act of being immoral to oneself. The harm it did to others was merely
+collateral damage. It was a failure to confront the reality of one’s own mind
+and own consciousness, and this failure is akin to lying to oneself or cheating
+oneself out of precious life potential."
+
+- "Respect was also sacred within Kant’s moral framework because Kant believed
+that all conscious creatures have a fundamental dignity that must be respected
+at all times, and by everyone. For Kant, consent was the act of demonstrating
+respect."
+
+- "Therefore, Kant argued, the only logical way to improve the world is through
+improving ourselves. This is because the only thing we can truly experience
+with any certainty is ourselves."
+
+- "He showed me that what you actually do doesn’t matter as much as the purpose
+behind doing it. And until you find the right purpose, you haven’t found much
+of anything at all."
+
+- "To develop character, a person must master their own actions and master
+themselves. And while few of us can accomplish that in a lifetime, Kant
+believed it’s something we each have a duty to work towards."
+
+- "We didnt know we were making memories. we only knew we were having fun"
+
+- "Don’t oversaturate your life With art"
+
+- "A wiseman speaks because he has something to say. A fool speaks because he has
+to say something."
+
+- "The key to creativity isnt in knowing all the solutions, its in asking the
+strongest questions."
+
+- "If you wish to be wealthy, learn to live like you're poor"
+
+- "Beware of little expenses; a small leak will sink a great ship."
+
+- "No one can remember more than three points."
+
+- "Nothing in this world can take the place of persistence. Nothing is more
+common than unsuccessful men with talent. Persistence and determination alone
+are omnipotent"
+
+- "You are absolutely not going to be gaga over each other every single day for
+the rest of your lives, and all this happily ever after’ bullshit is just
+setting people up for failure. They go into relationships with these
+unrealistic expectations. Then, the instant they realize they aren’t gaga’
+anymore, they think the relationship is broken and over, and they need to get
+out. No! There will be days, or weeks, or maybe even longer, when you aren’t
+all mushy-gushy in-love. You’re even going to wake up some morning and think,
+
+- "Ugh, you’re still here…." That’s normal! And more importantly, sticking it out
+is totally worth it, because . . . in a day, or a week, or maybe even longer,
+you’ll look at that person and a giant wave of love will inundate you, and
+you’ll love them so much you think your heart can’t possibly hold it all and is
+going to burst. Because a love that’s alive is also constantly evolving. It
+expands and contracts and mellows and deepens. It’s not going to be the way it
+used to be, or the way it will be, and it shouldn’t be. I think if more couples
+understood that, they’d be less inclined to panic and rush to break up or
+divorce."
+
+- "God gave man a brain and a penis and only enough blood to operate one at a
+time."
+
+- "Respect yourself and your wife. Never talk badly to or about her. If you don’t
+respect your wife, you don’t respect yourself. You chose her—live up to that
+choice."
+
+- "There can be no secrets. Secrets divide you. Always."
+
+- "Don’t ever give up who you are for the person you’re with. It will only
+backfire and make you both miserable. Have the courage to be who you are, and
+most importantly, let your partner be who they are. Those are the two people
+who fell in love with each other in the first place."
+
+- "If you love your partner enough you will let them be who they are—you don’t
+own them, who they hang with, what they do or how they feel. Drives me nuts
+when I see women not let their husbands go out with the guys or are jealous of
+other women."
+
+- "One day many years from now, you will wake up and your spouse will be a
+different person—make sure you fall in love with that person, too."
+
+- "The relationship is a living, breathing thing. Much like the body and muscles,
+it cannot get stronger without stress and challenge. You have to fight. You
+have to hash things out. Obstacles make the marriage."
+
+- "But there’s no way on God’s green earth this is her fault alone. There were
+times when I saw huge red flags. Instead of trying to figure out what in the
+world was wrong, I just plowed ahead. I’d buy more flowers, or candy, or do
+more chores around the house. I was a "good" husband in every sense of the
+word. But what I wasn’t doing was paying attention to the right things… And
+instead of saying something, I ignored all of the signals."
+
+- "When you end up being right about something—shut up. You can be right and be
+quiet at the same time. Your partner will already know you’re right and will
+feel loved knowing that you didn’t wield it like a bastard sword."
+
+- "Everyone says that compromise is key, but that’s not how my husband and I see
+it. It’s more about seeking understanding. Compromise is bullshit, because it
+leaves both sides unsatisfied, losing little pieces of themselves in an effort
+to get along. On the other hand, refusing to compromise is just as much of a
+disaster, because you turn your partner into a competitor ("I win, you lose").
+These are the wrong goals, because they’re outcome-based rather than
+process-based. When your goal is to find out where your partner is coming
+from—to truly understand on a deep level—you can’t help but be altered by the
+process. Conflict becomes much easier to navigate because you see . . . the
+context."
+
+- "You cant use possibility to justify a certainty. Base your decision on the
+action itself"
+
 - "Who needs ethics when youve got a trust fund"
 
 - "Ambition can be a valuable tool, but so can restraint"
@@ -170,6 +322,7 @@ determination, or it can remove it in an instant."
 
 - "Wisdom and intelligence… begin with imagination! "Imagination can turn a rock
 into a weapon! "Imagination can turn fire into a way to drive away darkness!
+
 - "Imagination can make gods to worship, and form them into totems…. "When you
 take imagination and combine it with action, you have the first sprout of
 wisdom and intelligence!"
@@ -217,135 +370,4 @@ worthwhile, to pursue and love unconditionally, without judgment or shame."
 
 - "Seeing self-discipline in terms of pure willpower fails because beating
 ourselves up for not trying hard enough doesn’t work. In fact, it backfires."
-
-- "The classic approach has the paradoxical effect of training us to feel bad
-about all the things that make us feel good. It basically seeks to teach us
-self-discipline through shaming us—by making us hate ourselves for simply being
-who we are. And the idea is that once we are saddled with a sufficient amount
-of shame about all the things that give us pleasure, we’ll be so self-loathing
-and terrified of our own desires that we’ll just fall in line and do what we’re
-told."
-
-- "It was a simple principle: just as one can only realize the strength of wine
-after one gets drunk, one can only know the value of life after one has died."
-
-- "And don't use zhenqi to control your emotions. If human emotions aren't given
-the proper outlet, even if your powers of zhenqi control are at their peak,
-you'll become a murderous monster."
-
-- "Why do you wish to see this world?" Wu Zhu seemed to be pondering something,
-- "the place you are standing right now, isn’t it part of this world?"
-
-- "Since you only live once, the only way to make the most out of this
-unrepeatable game is to go around seeing different sights and meeting different
-people."
-
-- "Flowers fall once they appear, stones stand still a thousand years. But both
-must go just as they came, and floating clouds are just the same…"
-
-- "A bright moon on a wide river, a clear breeze among the hills."
-
-- "While this world may appear peaceful, if you don’t steel yourself, you will
-always be at a disadvantage."
-
-- "he had always been somewhat chauvinistic, feeling that when it came to matters
-between men and women, it was always women who got the worst of it, and men who
-took advantage."
-
-- "Man's  dearest possession is life. It is given to him but once, and he must
-live it so as to feel no torturing regrets for wasted years, never know the
-burning shame of a mean and petty past; to live that, dying, he might say: I
-did everything I wished to, and even if I was unsuccessful, at least I tried’."
-
-- "You once said that people have to be brave enough to seek happiness."
-
-- "one can’t be sincere without simple living, one can’t have high aspirations
-without a peaceful state of mind"
-
-- "There were too many matters in this world that men's  stupid brains had made
-complicated."
-
-- "Su Ming vaguely remembered one of the scrolls saying that once the prey went
-through a long period of time switching between the state of anxiety and
-relaxation, its fatigue and suffering would increase exponentially. That sort
-of torture was enough to destroy one’s soul."
-
-- "But we are members of the Berserker tribe. We cannot fear death, much less
-give up because the road ahead is too hard to walk." "I know what your dreams
-are. You want to leave this place and travel to see the world. I fully support
-you!"
-
-- "Su Ming, you must remember. There will always be people who are stronger and
-more powerful than you. You must never be arrogant…"
-
-- "He was certain of his words just like any young man who still believed in a
-bright future…"
-
-- "Either he would stay away from something, or he would finish what he had
-started."
-
-- "When you are fighting against someone, do not let your focus waver. Do not
-hesitate. If it is possible to kill your enemy with one strike within the
-shortest amount of time, do not wait till the last moment to do so."
-
-- "The oppression of the heavens is invisible. We can only endure it and while we
-endure it, we must learn to live with it happily… If we do not, are we to fight
-against heaven?’"
-
-- "Qi will only move when the mind moves. If the mind does not move, then Qi will
-also remain still!"
-
-- "To him, there was no one who could be his opponent. The one that he wanted to
-compete against was himself!"
-
-- "A person would experience great things and shortcomings in his life. He would
-also experience days of glory and days where he would stumble and fall. These
-were all things that Su Ming did not understand. The only thing he understood
-was that he had to do this."
-
-- "La Su, you are not alone in the sky. Do not be sad. Do not cry. Mama and papa
-will look at you from where we are… Every year, every day… we will look at
-you…" "I will not cry. I will not be sad. I will not be lonely. I know that you
-are there, watching me… I am happy…"
-
-- "It seemed like there was no sign of life within those ruins, and they would
-eventually turn into a remnant of the passage of time. Perhaps the few
-remaining trees and plants would continue growing there and slowly turn the
-place into a part of the forest, making it difficult for people to come looking
-for their memories and the beautiful moments that had happened during their
-time here."
-
-- "Chances are hidden within danger…"
-
-- "Instead, it would be better to emphasize the benefits of the concoction
-towards himself and subtly reveal some of his own thoughts that would make the
-other party wonder."
-
-- "The more he wanted to obtain something, the more he would have to sacrifice.
-Only he could determine whether the sacrifice was equivalent to the reward and
-whether it was worth it, not anyone else."
-
-- "The mind is restless, Krishna, impetuous, self-willed, hard to train: to
-master the mind seems as difficult as to master the mighty winds."
-
-- "Keep strong, if possible. In any case, keep cool. Have unlimited patience.
-Never corner an opponent, and always assist him to save face. Put yourself in
-his shoes—so as to see things through his eyes. Avoid self-righteousness like
-the devil—nothing is so self-blinding."
-
-- "Ask yourself at every moment, Is this necessary?’"
-
-- "Before we can make deep changes in our lives, we have to look into our diet,
-our way of consuming. We have to live in such a way that we stop consuming the
-things that poison us and intoxicate us. Then we will have the strength to
-allow the best in us to arise, and we will no longer be victims of anger, of
-frustration."
-
-- "To become empty is to become one with the divine—this is the Way."
-
-- "Childlikeness’ has to be restored with long years of training in the art of
-self-forgetfulness. When this is attained, man thinks yet he does not think."
-
-- "Chop wood, carry water. Chop wood, carry water. Chop wood, carry water. Don’t
-overanalyze. Do the work."
 

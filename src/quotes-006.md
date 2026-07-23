@@ -1,4 +1,42 @@
-<!-- Page 6 of 53  ·  quotes 501–600 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 6 of 54  ·  quotes 501–600 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "In the dangers of the age, in the passion of violence, quietly laying down
+your life is utterly insignificant in the ever flowing passage of time. There
+is nothing stronger than the will to live."
+
+- "That, dear one, is the point of the demonstration. Reality isn t relevant.
+Perception is everything. If you think it is the enemy, you can destroy it,
+whether true or not. The magic interprets only your perception. It won t allow
+you to harm someone you think innocent, but it will destroy whoever you
+perceive to be the enemy, within limits. Only what you believe, and not the
+truth of your thoughts, is the determining factor."
+
+- "There is no such thing as pure good or pure evil, least of all in people. In
+the best of us there are thoughts or deeds that are wicked, and in the worst of
+us, at least some virtue. An adversary is not one who does loathsome acts for
+their own sake. He always has a reason that to him is justification. My cat
+eats mice. Does that make him bad? I don t think so, and the cat doesn't think
+so, but I would bet the mice have a different opinion. Every murderer thinks
+the victim needed killing."
+
+- "The anger of teeth be force by contact. Violence by touch. Combat. The magic
+of the Sword of Truth be the magic of the anger of teeth. Ripping. Tearing. The
+anger of the tongue need not touch, but it be force just the same. It cuts just
+as quick"
+
+- "Everything is valuable under the right conditions. To a man dying of thirst,
+water be more precious than gold. To a drowning man, water be of little worth
+and great trouble."
+
+- "Wizard's First Rule: people are stupid." Richard and Kahlan frowned even more.
+
+- "People are stupid; given proper motivation, almost anyone will believe almost
+anything. Because people are stupid, they will believe a lie because they want
+to believe it's true, or because they are afraid it might be true. People's
+heads are full of knowledge, facts, and beliefs, and most of it is false, yet
+they think it all true. People are stupid; they can only rarely tell the
+difference between a lie and the truth, and yet they are confident they can,
+and so are all the easier to fool."
+
 - "As long as the heart is there, it doesn't matter if it is red or black. Your
 will is the most important factor. Your will is like a blade, and that blade…
 can still be used in your Third Severing. There is no need to be swept up with
@@ -81,6 +119,7 @@ career of unlawful gain, nothing that tends more to secrecy (or stealthiness)
 than avarice, nothing that isolates a man more than trusting to himself alone,
 nothing more dangerous than employing those whom you have reason to suspect,
 and nothing more certain to bring ruin to you than unfairness or partiality."
+
 - "What we are is invulnerable and cannot be bound."
 
 - "But… is it really possible to completely Sever evil? If humanity was left only
@@ -448,6 +487,7 @@ way to the brain."
 - "We choose—or choose not—to be alone when we decide whom we will accept as our
 fellows, and whom we will reject. Thus an eremite in a mountain cave is in
 company, because the birds and coneys, the initiates whose words live in his
+
 - "forest books," and the winds—the messengers of the Increate—are his
 companions. Another man, living in the midst of millions, may be alone, because
 there are none but enemies and victims around him."
@@ -504,66 +544,4 @@ than our few and empty victories—may be equally specious."
 
 - "Resolution and a plan are better than a sword, because a man whets his own
 edges on them."
-
-- "Form is empty. But it is full of everything else in the cosmos."
-
-- "The future is a blank sheet of paper. Only my will can leave footprints on
-it."
-
-- "This mind is my mind. It should be up to me to employ it- it should not go out
-following others."
-
-- "My destiny lies in my own hands, and I will never let others control my fate."
-
-- "First, you must be able to understand… what the Dao is! "The Dao?" Meng Hao
-gaped. Why is there life? Why is there death?" The ancient voiced echoed back
-and forth endlessly. Why is there reincarnation? It's like a circle, with the
-head and the tail connected, but what exactly does that mean, and is
-reincarnation the only explanation? Why are there cultivators? Why are there
-cultivation Realms? Why is there Daoist magic? Why are there divine abilities?
-How does light shine? How does darkness descend? Metal. Wood. Water. Fire.
-Earth. What are the differences between these elements? Fire is fire, and yet,
-why are there different types of heat? What is heat? What is cold? What does it
-mean when something that can only survive in the ice can be burned to death by
-a single drop of water?" The ancient voice spoke with increasing speed, causing
-Meng Hao's mind to tremble. Questions piled up in his mind. Each one seemed
-possible to answer directly, but if he actually had to answer them, he would be
-left speechless. "What is the Dao?" That was the final question uttered by the
-ancient voice, and it left Meng Hao's mind rumbling. The Essence is the Dao,
-the basis of everything that defies Heaven!" A bright light shone in the
-middle-aged man's eyes, and he suddenly seemed very serious. All such unknowns
-are Essence. Only when you seek out the Essence, can you comprehend Heaven and
-Earth, understand all living things, and control everything! When you
-understand all transformations of Heaven and Earth, when you have defied the
-Heavens, when you have sealed the Earth, then what could possibly be difficult
-to you?!"
-
-- "So long as there were benefits, forgetting favors to violate justice and not
-recognizing one's family were no less common than drinking water."
-
-- "A cultivator's talents and physique aren t enough; one also needs a strong Dao
-willpower, and a will strong enough to follow the road to the end. One day, he
-would be the last one smiling, and he would be the one to stand at the highest
-peak, looking down on humanity."
-
-- "The most important thing… was to have an unshakable Dao willpower; a willpower
-that thirsts for knowledge! A willpower that understands that the truth of all
-rivers flow into the same sea! A willpower that was diligent and assiduous!
-This was the most important thing! For insufficient talents, hard work would
-suffice as long as the mind was willing; for insufficient talents, others take
-one day to awaken, and you take one hundred days to awaken. There would always
-be a fruitful harvest. With a Dao willpower that could accept that all rivers
-lead into the sea, one could see the entirety of the eight directions and not
-be blinded by their own shortsightedness!"
-
-- "Though I come from the mortal dust, my heart still soars towards the heavens.
-It was like the grass upon the desolate battlefield… It had to struggle to
-emerge from the dirt and grow up. It fought for every ray of sunshine, every
-drop of rain, because it wanted to grow higher and higher. It might be very
-low-key and unremarkable…but not even the most exalted major powers of the
-Three Realms could stop the will and the heart of the grass. The heart was
-infinite and unlimited; even a beggar could have the heart and ambitions of an
-emperor. The power of the heart was invisible and formless…but it was
-incomparably marvelous. Even mortals who had sufficiently powerful hearts and
-wills could create miracles. They would become heroes!"
 

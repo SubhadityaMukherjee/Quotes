@@ -1,4 +1,198 @@
-<!-- Page 34 of 53  ·  quotes 3301–3400 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 34 of 54  ·  quotes 3301–3400 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Xiaochun…" he said softly. "You’re right. As long as we’re alive, there are
+  endless possibilities. But just because we die doesn’t mean that our hopes
+  and dreams die with us! "I can’t speak for anyone else, but I can say that
+  when I look at all of these graves, I'm absolutely certain… that these
+  disciples who died in battle did it because of the Dao that existed in their
+  hearts!"
+
+- "You often found it easier just to adapt to their ideas of what was best for
+  you rather than trying to figure it out for yourself. But in all this
+  adapting to your society’s attempts to make you fit in, and in your own
+  attempt to find less trouble, you have unwittingly relinquished your most
+  basic foundation: your total and absolute freedom to create."
+
+- "That is the optimal creative vantage point: To stand on the brink of what is
+  coming, feeling eager, optimistic anticipation—with no feeling of impatience,
+  doubt, or unworthiness hindering the receiving of it—that is the Science of
+  Deliberate Creation at its best."
+
+- "You cannot desire something, predominantly focus on the absence of it, and
+  then expect to receive it,"
+
+- "You would not walk into a brightly lit room and look for the "dark switch."
+  In other words, you would not expect to find a switch that would flood an
+  inky darkness into the room to cover the brightness of the light—you would
+  find a switch that would resist the light, for in the absence of the light there is darkness."
+
+- "In a world that often seems too crowded or busy to notice beautiful things
+  or make meaningful connections, there is still room for each of us to grow in
+  the ways we were meant to."
+
+- "It is hard for me to resent my parents, although I envy them their naivete."
+
+- "When Love cast me out, it was Cruelty who took pity upon me"
+
+- "When you care for yourself first, the world will also find you worthy of care."
+
+- "But because of the weight of the secrets, we become more humble and understanding."
+
+- "Why should your life be destroyed by the easy criticism of those who do not know you or
+care about you?"
+
+- "Just as a mother looks at her child with love, look at your own suffering with
+compassion. You will soon feel that you are not alone. There is a soft inner core of love
+and caring at the heart of every suffering. You are not thrown into this world alone."
+
+- "The reason adolescents don’t listen to their parents and stubbornly try to have their
+own way is that they are learning to be independent. It is normal, so don’t worry too
+much."
+
+- "Do your best to give your children someone to look up to."
+
+- "It is nearly impossible for a son or daughter to change a parent’s personality, values,
+or behavior. Even if children consider their parents problematic in some way, they have
+neither the right nor the responsibility to change them"
+
+- "If you assume that, since you’ve been together for so long, you should be able to read
+each other’s minds, there are so many things you will fail to understand about each
+other."
+
+- "When someone is showing his temper, it could be because he wants us to hear about his
+current situation and empathize. Rather than arguing, try to understand his deeper needs"
+
+- "If we think of the child as a stranger, we focus on the inconvenience to ourselves, but
+if we think of the child as a family member, we become merciful, wondering whether the
+child is uncomfortable or in pain"
+
+- "If you give something your full attention, whatever it is, and examine it closely, it
+will come to attract your interest and care."
+
+- "My interest in philosophy started where I’d imagine it starts for most people: a
+dissatisfaction with what I had been told about life combined with a curiosity about what
+I had not."
+
+- "My desire for knowledge is intermittent; but my desire to commune with the spirit of
+the universe, to be intoxicated with the fumes, call it, of that divine nectar, to bear my
+head through atmospheres and over heights unknown to my feet, is perennial and constant."
+
+- "the experience and effects of concrete knowledge can be fleeting, but the wonder found
+in the spirit of the unknown can be constant and enduring"
+
+- "Nobody ever figures out what life is all about, and it doesn’t matter. Explore the
+world. Nearly everything is really interesting if you go into it deeply enough,"
+
+- "Through our eyes, the universe is perceiving itself. Through our ears, the universe is
+listening to its harmonies. We are the witnesses through which the universe becomes
+conscious of its glory, of its magnificence,"
+
+- "As we experience more of life, and we are continually disappointed by our optimism’s
+inability to align with the real conditions of the world, our optimism is beaten further
+and further into submission."
+
+- "healthy dose of pessimism is necessary in our ability to adequately deal with this
+life. It helps us mitigate our expectations and serves as padding that protects us from
+life’s constant attempts to beat our spirit out of us. Pessimism counterbalances the
+ridiculously overly optimistic expectations of the culture we live in and helps us adapt
+out of the deeply detached, unrealistic perspective that we likely formed as children. It
+reminds us that things won’t always go our way or always be that nice, but rather, things
+will go wrong a lot, but despite this, we can still be ok."
+
+- "To be completely optimistic about the rules always working in our favor would be
+foolish. However, to be completely pessimistic about the game as a whole simply because
+the rules don’t always work in our favor would be equally foolish."
+
+- "In the dirt of life, it is up to us to plant the seeds, watch the flowers grow, and
+enjoy their beauty, even in spite of the fact that we know that they will die."
+
+- "Perhaps all reality is a prison and time is its guard"
+
+- "Perhaps what we should and only can do is to try to enjoy the process of playing with
+the blocks of philosophy like children playing with toy blocks for no reason other than
+the curiosity and fun of it; not because in the end the blocks will provide something that
+stays up forever, but because we inevitably will take the blocks down, put them away for a
+little while, and then play with them again on another day, in a different way."
+
+- "Kōans did not spring up out of lack of thought or contemplation, but rather, out of a
+specific sort of contemplation: a self-referential thinking that denies its ability to be
+a single, concrete, and universal thought that answers or understands what might exist
+beyond itself. Zen and the lesson of the kōans suggest that we should flow with life, ask
+questions, contemplate them, but not become tricked by any singular idea or answer that
+might tempt us into a final resolution"
+
+- "Just like how the center of a tornado is calm with little to no motion, despite it
+being surrounded by a coil of rapid, violent wind, we can live in the center of the
+tornado of knowing and unknowing and still remain calm and at ease."
+
+- "it takes no more than a sick stomach or migraine to realize just how heavy this
+corporeal weight is, how stricken and limited by it we are. We are stuck inside the body,
+captives to it, subject to its faulty and fragile mechanisms that do and will break,
+keeping us bound in space according to its condition—until it finally turns itself off,
+and us with it."
+
+- "We can only think through the mind, and we can only think in the way our mind thinks."
+
+- "It is a demonstration of humanity’s overzealous ego and anthropocentrism to think that
+so long as no other humans tell them what to do, they are free."
+
+- "Freedom can be manifested only in the void of beliefs, in the absence of axioms, and
+only where the laws have no more authority than a hypothesis,"
+
+- "Like the desire for perfect, unending happiness, the desire for complete and absolute
+freedom is impossible. But like happiness, it is, in its true, ultimate form, a state that
+comes and goes, unattainable in the ideal but attainable in the moment—in the moments when
+we surrender to the complete unified image of being, when we cease trying to square
+circles and placate everything that contests us, when we stop trying to escape what cannot
+be escaped. It is the classic lesson: the Chinese finger trap, the Tao in Taoism, Nirvana
+in Buddhism, the silence of Wittgenstein; the harder one tries, the harder one flails, the
+more entrenched one becomes."
+
+- "for you can only be free when even the desire of seeking freedom becomes a harness to
+you, and when you cease to speak of freedom as a goal and a fulfilment."
+
+- "In truth that which you call freedom is the strongest of these chains, though its links
+glitter in the sun and dazzle your eyes."
+
+- "When we persist with the belief that things outside of ourselves or things in the
+future will provide us with a form of ultimate happiness, we exchange the real moments of
+our lives for ones that do not exist. We become dependent on things outside of ourselves
+that we cannot control, and we endlessly run on a treadmill of unceasing desire."
+
+- "We can and should engage our nature to progress and pursue bigger, faster, better, and
+more interesting things, but we should ensure that in our pursuits, we are intentional
+about what we are doing so as to ensure that we are not being careless with our time and
+wasting our experience of life"
+
+- "No matter what task we undertake, we will do it wastefully if we assume that anything
+beyond the task itself will provide anything better than the experience of focus and
+presence in the task."
+
+- "Until we have begun to go without them, we fail to realize how unnecessary many things
+are. We’ve been using them not because we needed them but because we had them"
+
+- "It is now that we must find time and it is now that we must find happiness if it is
+either that we are seeking, because if we do not focus the lens through which we view life
+right now, everything we see from this moment forward will remain out of focus"
+
+- "Starting from birth, we seemingly run, if not sprint, through life, racing out of every
+moment, unsatisfied with what life is and constantly looking to the future for what life
+could be if we could just obtain something more or different. Our cultures overwhelm us
+with the reinforcement of this idea, convincing us that our duty is to achieve, buy, own,
+and live perfect, unaffected lives. This delusion, however, frenzies us with an anxiety
+that we are then told, by culture, that we can rid ourselves of if we just achieve a few
+more things, make a little more money, be a little more popular, and buy a little more
+stuff, creating an endless feedback loop of unsatisfied hunger. If we cave into this, we
+surrender our life, we give up our self."
+
+- "We don’t have much, if any, control over what happens to us, how people see and treat
+us, or what happens because of what we do, and in the big picture, none of it really
+matters all that much anyway. And so, we must define our happiness not by what we own or
+achieve, not by how others see us, not by some bigger picture of life, but by how we think
+and see our self and live our own life through what we deem virtuous and relevant"
+
+- "But of course, after a point, worrying about the future, the unknown, and the potential
+for things to go wrong is nothing but a useless handicap"
+
 - "Once one has done everything that is rationally and realistically preventative, one
 should work to revert their attention back to the present, leaving all additional concern
 about the future for the future."
@@ -229,152 +423,4 @@ comprehend, the surreal will take over. Action slows to a dreamlike glide, frame
 the motion of a hand, a sentence spoken, fills an eternity. Little things – a cricket on a
 stem, the veined branches on a leaf- are magnified, brought from the background in
 achingly clear focus."
-
-- "It seemed my whole life was composed of these disjointed fractions of time, hanging
-around in one public place and then another, as if I were waiting for trains that never
-came."
-
-- "But, like the Invisible Man in H. G. Wells, I discovered that my gift had its price,
-which took the form of, in my case as in his, a sort of mental darkness. It seemed that
-people failed to meet my eye, made as if to walk through me; my superstitions began to
-transform themselves into something like mania."
-
-- "drink tonight?' One likes to think there's something in it, that old platitude amor
-vincit omnia. But if I've learned one thing in my short sad life, it is that that
-particular platitude is a lie. Love doesn't conquer everything. And whoever thinks it does
-is a fool."
-
-- "I suppose that when anyone accustomed to working with the mind is faced with a
-straightforward action, there's a tendency to embellish, to make it overly clever. On
-paper there's a certain symmetry. Now that I'm faced with the prospect of executing it I
-realize how hideously complicated it is."
-
-- "I never realized, you know, how much we rely on appearances,"
-
-- "When the snow finally melted it went as quickly as it had come."
-
-- "About a Hindu saint being able to slay a thousand on the battlefield and it not being a
-sin unless he felt remorse."
-
-- "Alas, poor gentleman, He look'd not like the ruins of his youth But like the ruins of
-those ruins."
-
-- "You must know, a truly sincere heart is always lustrous!"
-
-- "Punishing one’s self for something one can no longer alter…that is nothing more than
-being made a fool of by fate! The only one who rules over myself…is myself!"
-
-- "Live neither in the entanglements of outer things, nor in inner feelings of emptiness."
-
-- "When you try to stop activity by passivity your very effort fills you with activity."
-
-- "The more you talk and think about it, the further astray you wander from the truth."
-
-- "To return to the root is to find meaning, but to pursue appearances is to miss the
-source."
-
-- "Do not search for the truth; only cease to cherish opinions."
-
-- "A person’s true nature is only revealed when he’s pushed right to the edge, am I right?
-Now that their bellies are full, and they are feeling all nice and comfy, they are acting
-like a bunch of spoiled a.s.sholes. I don’t like guys like Kang Seok, but that
-b.a.s.t.a.r.d’s opinions aren’t half wrong." "…." "You continue being nice to them,
-they’ll eventually end up thinking that it’s their birthright or something. Well, in any
-case…. Don’t ever trust those two stinking b*tches, okay?"
-
-- "He told himself, 'you find yourself in a such a favorable position, so much better than
-compared to other people, yet is this all you can do?"
-
-- "When he was still addicted to gambling, he was constantly on edge. The victim mentality
-took center stage in his heart and caused him to choke up over nothing important; often,
-he’d get defensive and angry even if he was in the wrong."
-
-- "Therefore whatever you desire for men to do to you, you shall also do to them; for this
-is the law and the prophets." "Is that…. the Golden Rule?"
-
-- "Hiya~. And I heard that when a girl bears a grudge, even snow will fall in the middle
-of a Summer"
-
-- "There will be other expeditions in the future. I pray that you don’t bet everything on
-this one."
-
-- "Money and fame? Of course, they sounded nice. However, none of them compared to his own
-self-worth he had regained after such a struggle."
-
-- "Goodwill with goodwill, and malice with malice… I’ve learned a lot during this
-expedition." "I agree. After all, humans aren't the only race who possess intelligence."
-
-- "There is no right or wrong in matters of survival. In this world, whether you are a
-righteous man or of a wicked persuasion, you have to gather under one banner and pool your
-resources to survive. That is the case, even now."
-
-- "However, didn’t Gula say it? The future was not that easy to change. That he’d have to
-go through unimaginable trials and tribulations. That he needed to exceed his own limits"
-
-- "Wait. Even if you don't do anything, there will be people who curse you. The more
-famous you get, the more hate you'll receive. Some people will even resent you. That's not
-the end of it. There will be a ton of people who are going to try to use you, even if you
-didn't do anything wrong."
-
-- "Just look at celebrities. Sure, some of them might deserve the hate they receive, but
-there are a lot more who don't. Do you know why haters leave mean comments or attack them
-on their social media? It's simple. Because they're unhappy, because they want attention,
-because they're bored, because they don't like the way someone looks, because they just
-want to argue, because they're jealous. There are countless reasons."
-
-- "What heals a wounded heart isn't time or medicine. It's sincerity"
-
-- "Humans all have a limit to their vessel. The same goes for ghosts."
-
-- "I think life is like the four seasons. When spring pa.s.ses, summer comes. When summer
-leaves, autumn comes knocking. And when autumn departs, winter enters."
-
-- "The moment the youth realized that he wasn't special, the only thing he could do was
-put in painstaking, bloodcurdling effort."
-
-- "You're right. It is hard. After all, you have to unite people who aren't like you and
-people who aren't like each other."
-
-- "They might think I'm just being c.o.c.ky." "Only if you introduce yourself arrogantly.
-Depending on your att.i.tude or the situation, things might have gone in a different
-direction."
-
-- "Words have different weights depending on who says them. The words of a famous,
-authoritative person are different than the words of a nameless brat." Kazuki muttered
-endlessly. "And fame is the strongest card in your possession. What's wrong about using
-something you've built up fair and square"
-
-- "You need to know your value a bit more,"
-
-- "You should find a style that suits your nature. You know, wear the clothes that fit
-you."
-
-- "He who wishes to wear the crown, bear its weight."
-
-- "The bigger your goals are, the bigger burden you must face."
-
-- "A leader is not someone who is placed in that position by someone else. A leader is
-someone who wishes to become a leader himself."
-
-- "People tend to get hasty when they aren't able to finish everything in time."
-
-- "In front of profit, justification changes depending on the situation and power at hand"
-
-- "One could never predict everything in life, and life was bound to be full of ups and
-downs, but now that he had experienced this irony of fate, he couldn’t help but feel
-bewildered. On the other hand, he felt a bit creeped out. Ian told him about this. That an
-action he considered insignificant might cause huge waves."
-
-- "Rather than struggling to overcome this emotion, he accepted it fully to get used to
-it"
-
-- "You lose a war when you get scared."
-
-- "Life isn’t a game you can see the ending of after clicking on one or two choices, is
-it?"
-
-- "Because you’re so uncomfortable with getting anything from my parents that they’re too
-careful with doing anything for you"
-
-- "Enduring an injustice makes you a person, but enduring a loss makes you a pushover"
 

@@ -1,4 +1,117 @@
-<!-- Page 21 of 53  ·  quotes 2001–2100 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 21 of 54  ·  quotes 2001–2100 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Give a man a fish and you feed him for a day. Teach a man to fish and you feed
+him for a lifetime so that he many never discover how much he loves steak"
+
+- "It’s not the writing part that’s hard. What’s hard is sitting down to write.
+What keeps us from sitting down is Resistance."
+
+- "You think Resistance isn’t real? Resistance will bury you."
+
+- "The danger is greatest when the finish line is in sight. At this point,
+Resistance knows we’re about to beat it. It hits the panic button. It marshals
+one last assault and slams us with everything it’s got."
+
+- "The paradox seems to be, as Socrates demonstrated long ago, that the truly
+free individual is free only to the extent of his own self-mastery. While those
+who will not govern themselves are condemned to find masters to govern over
+them."
+
+- "The counterfeit innovator is wildly self-confident. The real one is scared to
+death."
+
+- "So if you’re paralyzed with fear, it’s a good sign. It shows you what you have
+to do."
+
+- "Remember, the part of us that we imagine needs healing is not the part we
+create from; that part is far deeper and stronger. The part we create from
+can’t be touched by anything our parents did, or society did. That part is
+unsullied, uncorrupted; soundproof, waterproof, and bulletproof. In fact, the
+more troubles we’ve got, the better and richer that part becomes."
+
+- "I write only when inspiration strikes," he replied. "Fortunately it strikes
+every morning at nine o’clock sharp."
+
+- "Show me a writer who’s too good to take Job X or Assignment Y and I’ll show
+you a guy I can crack like a walnut."
+
+- "He knows that any job, whether it’s a novel or a kitchen remodel, takes twice
+as long as he thinks and costs twice as much. He accepts that. He recognizes it
+as reality."
+
+- "Clear your mind young padawan, There is no emotion, there is peace. There is
+no ignorance, there is knowledge. There is no passion, there is serenity. There
+is no chaos, there is harmony. There is no death, there is the Force".
+
+- "There you are; human nature in action, wrongdoers, blaming everybody but
+themselves. We are all like that."
+
+- "When dealing with people, let us remember we are not dealing with creatures of
+logic. We are dealing with creatures of emotion, creatures bristling with
+prejudices and motivated by pride and vanity."
+
+- "God himself, sir, does not propose to judge man until the end of his days. Why
+should you and I?"
+
+- "If there is any one secret of success," said Henry Ford, "it lies in the
+ability to get the other person's  point of view and see things from that
+person's  angle as well as from your own."
+
+- "The universe is largely left up to chance, and the control you think you have…
+much of it is a delusion."
+
+- "Those who work in a playful, relaxed manner tend to work efficiently and
+creatively. Those who work nonstop, driven only by stress, work without joy."
+
+- "A good family trip can prevent divorce. What makes music beautiful is the
+distance between one note and another. What makes speech eloquent is the
+appropriate pause between words. From time to time we should take a breath and
+notice the silence between sounds."
+
+- "The tycoons of social media have to stop pretending that they’re friendly nerd
+gods building a better world and admit they’re just tobacco farmers in T-shirts
+selling an addictive product to children. Because, let’s face it, checking your
+
+- "likes" is the new smoking."
+
+- "Some may not believe it,but I spent hours perfecting whatever I did."
+
+- "People have to grow through skillful frustrations, otherwise they have no
+incentive to develop their own means and ways of coping with the world."
+
+- "Had not this water just now illustrated to me the principle of gung fu? I
+struck it but it did not suffer hurt. Again, I struck it with all my might—yet
+it was not wounded! I then tried to grasp a handful of it but this proved
+impossible. This water, the softest substance in the world, which could be
+contained in the smallest jar, only seemed weak. In reality, it could penetrate
+the hardest substances in the world. That was it! I wanted to be like the
+nature of water."
+
+- "Well, the water was not to be deterred. It was going to find a path, or even
+multiple paths. It would move along until it met with an obstacle, and then, if
+it needed to, it would change course and keep on flowing. It used "no way" as
+its way. In other words, it used every possible way. And it ran along without
+limitation."
+
+- "Perfection as we typically think about it should be treated more as a way to
+focus our attention rather than a final accomplishment that we attain"
+
+- "Like flowing water, life is perpetual movement"
+
+- "Water doesn’t have this problem. A wave doesn’t have to remember how to land
+on the shore. A river doesn’t have to consider how to carve a canyon into a
+mountain. A lake doesn’t have to practice giving life to the fish and the
+plants. In its simple way of just being, water can be our guide along our path
+to our natural selves. And one day, if we self-actualize, we can attain (and
+reclaim) this"
+
+- "The world is always fair to those who win"
+
+- "Work hard, try your best and enjoy the good fortune if it comes your way. But
+dont depend on it. And dont think if it doesnt, you are somehow less worthy or
+to blame "
+
+- "Life can only be understood backwards; but it must be lived forwards."
+
 - "You never know what worse luck your bad luck has saved you from."
 
 - "None of us are immune from life’s tragic moments. Like the small rubber boat
@@ -227,6 +340,7 @@ you have to do is to find the path most suited to you. At most, you can take
 another’s comprehensions as a slight reference, but do not let it direct your
 path. Comprehend that which you’d like, and only then will the path you tread
 be the most suited for yourself." Qin Wentian smiled as he continued,
+
 - "Cultivation has to follow one’s heart. If your heart isn’t even sure of the
 path you want, how can your cultivation be smooth? This is my understanding, so
 listen well. I won’t explain in detail my comprehensions to you, imposing onto
@@ -271,6 +385,7 @@ Aren't you afraid of them? I am. They move past you and they wear hats and they
 carry bundles. But that's  not the substance of them. The substance of them is
 hatred for any man who loves his work. That's  the only kind they fear. I don't
 know why. You're opening yourself up, Roark, for each and every one of them"
+
 - "No! I don't want to speak of that! But I'm going to. I want you to hear. I
 want you to know what's  in store for you. There will be days when you'll look
 at your hands and you'll want to take something and smash every bone in them,
@@ -348,171 +463,4 @@ the losers must turn to ash"
 
 - "The God of Wisdom's  enemy is wisdom itself, and the oasis of knowledge is a
 mirage in the desert of ignorance."
-
-- "The war has already begun. It is just a continuation of past battles.The gods
-goad us on with the promise of their seven treasures. Rewards for the worthy.
-The doorway to divinity.Yet buried in the depths of this world lies smoldering
-remains, a warning to those that dare trespass."That throne in the sky is not
-reserved for you"But mortal arrogation never stops.None will escape the
-flames.See for yourself."
-
-- "The world is full of lost ballads just waiting to be rediscovered"
-
-- "The wind permeates all, cleansing both mind and body"
-
-- "All things are impermanent, and to exist is to suffer. We yakshas have no need
-of sympathy or tears."
-
-- " Life is a precious thing, yes... But when I think of the burden that the
-Conqueror of Demons must bear... *sigh* death seems to me to have been the easy
-way out. A selfish indulgence, even."
-
-- "Rex Lapis once said: "Ones who break their contracts shall suffer the Wrath of
-the Rock."
-
-- "The story continues that some among her people realized at last that this
-gentle, kind, but weak god could never protect anyone in wartime. The Archon
-War was cruel in the extreme. Instead of consigning her to the agony of defeat,
-they thought, perhaps it would be better to give her a quick release."
-
-- "Faith in a god who has already passed will do you no good."
-
-- "Kun Jun: Then again, the memories of ore can shift with the passage of time
-and the changing of the environment. Is there a pattern to it? Hmm, difficult
-to say... I feel that ore memories tend to be from the recent past. So there's
-never any ancient memories? Rocks endure, but as eons pass their memories are
-erased. Those memories that survive are rooted in powerful emotion or thought."
-
-- "The memories of rocks do not last long. Those memories that survive are
-rooted in powerful emotion. But as time passes, so these memories fade into
-obscurity. Erosion is the world's  greatest destroyer of memories. Eragon:
-Erosion...? Kun Jun: Erosion ground Azhdaha's  consciousness into oblivion.
-Slowly, he forgot the face of his old friend, and his memories of defending
-Liyue Harbor disintegrated. Kun Jun: Azhdaha, now incomplete, became
-irascible... aggressive."
-
-- "A heart of stone is a heart nonetheless"
-
-- "Zhongli : People abandon and surrender the things they love to pursue the
-right path. Perhaps this is the erosion imposed on me by the natural order of
-this world. Zhongli: But I was a god of mankind. My identity may change, but my
-eyes will bear witness to the history of humanity."
-
-- "You make a pinkie promise, you keep it all your life. You break a pinkie
-promise, I throw you on the ice. The cold will kill the pinkie that once
-betrayed your friend, the frost will freeze your tongue off so you never lie
-again."
-
-- " Childe: Anyway, childhood dreams are all too easily shattered. Even if you
-just leave them be, they all fall to pieces all by themselves. Childe: So
-someone has to protect them, right? Childe: If you make a promise, you keep it,
-if you make a mistake, you apologize... Childe: And if you give someone a
-dream, you defend it to the end... Childe: That is what family is all
-about, isn't it?"
-
-- " Albedo: I'm willing to pour all my energy into research, and yet specimens
-are finite. As the unknown transitions into the realm of scientific
-understanding, the feeling of enlightenment is lost. Albedo: All these things
-that start out as objects of fascination end up possessing the prosaic
-mundanity of a Sunsettia or a Sweet Flower. They cease to be noteworthy.
-Paimon: Oh... So that's  why you wanted to paint those hilichurls? Because you
-got to see something new and interesting in the differences between them?
-Albedo: Precisely. To quote my exact words from earlier, these creatures are,
-for the most part, "quite boring... not worth closer inspection." There is
-precious little about them that serves to pique my curiosity now."
-
-- " Albedo: *sigh* It would seem that that's  as far as we go. A transient bloom
-of incomparable beauty... Life's  proudest achievement. Pamon: Paimon thought,
-with all our efforts, unght have bloomed forever. And it  didn't even have any
-fruit... Albedo: Life is a manifold tapestry of free entities, its value
-shouldn't derive from how long it stays with us. Even a momentary burst is
-precious. Albedo: A short life can be well-lived. A life lived efficiently,
-lived to perfection, is"
-
-- " Venti: Warriors wear their battle scars with pride, and shields are no
-different. Venti: Surely, an intact shield is one that has shied away from the
-battlefield. Is not the broken and splintered shield the one that has fought in
-countless wars and lived to tell the tale? Venti: Though the soldier's  body be
-tired and torn, still they fight till the very end, till they have no blood
-left to bleed. Such magnificent strength of will... is that not the true
-meaning of honor?"
-
-- "You’re not an artist unless you want to quit atleast once"
-
-- "According to Su Li's  words, this was a very stupid sword style, so only the
-stupidest of people could learn it. This sword style was also the most natural,
-because there was simply no way it could be used to face one's  enemies. It
-could only be used for defense.  It was called the Stupid Sword because to
-learn this sword, there was no other method but practice through repetition, to
-practice until the seas dried up and stones rotted away, to practice until the
-stars turned and the Big Dipper moved, to practice for as long as the heavens
-existed and the earth persisted, such that it should be impossible for someone
-to ever confirm that they had learned it.  When Chen Changsheng heard these
-words, he had completely put the idea of learning this sword out of his mind.
-Only when Su Li said that this Stupid Sword could be considered the world's
-most powerful defensive sword style did he change his mind. Once the sword had
-left Mount Li, Su Li's  attainments on the path of the sword had become even
-more exceptional, and his experience was broad and deep. His judgment would
-naturally not be wrong.  But when Chen Changsheng began to properly learn this
-Stupid Sword, he began to regret his decision.  Because not even Su Li had
-successfully learned this sword. In all of Mount Li, even in all of the
-continent, there was not one person that had successfully learned this sword.
-Not even along the course of the interminable river of history could one find a
-person that had learned this sword. To describe it another way, this sword
-style existed only in books, existed only in some imaginary path of the sword.
-It had never appeared in reality.  Su Li had said that the reason he had never
-been able to learn this sword was that he was just too much of a genius. His
-sword was free and unburdened, unwilling to accept such constraints. But there
-was truly a possibility that Chen Changsheng could learn this sword. This was
-because…in certain aspects, Chen Changsheng really was very stupid."
-
-- "Your biggest supporter is a stranger. Your biggest hater is someone you know."
-
-- "Somewhere in another universe, someone is writing the life you lived, are
-living, have yet to live, or will never live."
-
-- "Each of these lives is the right one, every path is the right path, everything
-could have been anything else, and it would have just as much meaning."
-
-- "If our ancestors hadn’t had this flaming urge for a feeling of importance,
-civilization would have been impossible. Without it, we should have been just
-about like animals"
-
-- "I was here. I explored. I saw this. Remember me."
-
-- " You only get a diversity of problems solved if you have a diversity of people
-solving them"
-
-- "Once upon a time, I, Zhuangzi, dreamt was a butterfly, fluttering hither and
-thither, to all intents and purposes a butterfly. I was conscious only of my
-happiness as a butterfly, unaware that I was Zhuangzi. Soon awakened and there
-was, veritably myself again. Now do not know whether was then a man dreaming
-was a butterfly, or whether am now a butterfly, dreaming am a man. Between a
-man anda butterfly there is necessarily a distinction. The transition is called
-the transformation of material thing."
-
-- "But he did say that many people who go insane find in insanity a feeling of
-importance that they were unable to achieve in the world of reality."
-
-- "Once I did bad and that I heard ever/Twice I did good, but that I heard
-never."
-
-- "We are born from human boxes and live in big box houses and are buried in
-boxes when we die. Why are you crying?"
-
-- "Thousands of salespeople are pounding the pavements today, tired, discouraged
-and underpaid. Why? Because they are always thinking only of what they want.
-They don’t realize that neither you nor I want to buy anything. If we did, we
-would go out and buy it. But both of us are eternally interested in solving our
-problems. And if salespeople can show us how their services or merchandise will
-help us solve our problems, they won’t need to sell us. We’ll buy. And
-customers like to feel that they are buying—not being sold."
-
-- "Self-expression is the dominant necessity of human nature."
-
-- "First, arouse in the other person an eager want. He who can do this has the
-whole world with him. He who cannot walks a lonely way."
-
-- "All of us, be we workers in a factory, clerks in an office or even a king upon
-his throne—all of us like people who admire us."
 

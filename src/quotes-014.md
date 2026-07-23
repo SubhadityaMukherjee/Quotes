@@ -1,4 +1,74 @@
-<!-- Page 14 of 53  ·  quotes 1301–1400 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 14 of 54  ·  quotes 1301–1400 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "If that monster is your darkness, then I have a reason to fight it, no?"
+
+- "The art of hunting is aiming for the moment when the target is busy hunting
+its prey!"
+
+- "It's  pointless to mope over the validity of someone else's  success. If
+you're unhappy about the results, keep moving yourself forward until you are
+satisfied."
+
+- "Prosperous cities tend to attract all sorts of nasty people."
+
+- "The countless dragons that rained down were less significant threats than the
+humans in the sky."
+
+- "An apology is a promise to do things differently next time, and to keep the
+promise."
+
+- "Order is the barrier that holds back the flood of death. We must all of us on
+this train of life remain in our allotted station. We must each of us occupy
+our preordained particular position. Would you wear a shoe on your head? Of
+course you wouldn't wear a shoe on your head. A shoe doesn't belong on your
+head. A shoe belongs on your foot. A hat belongs on your head."
+
+- "My friend, you suffer from the misplaced optimism of the doomed."
+
+- "Wilford: Curtis, everyone has their preordained position, and everyone is in
+their place except you.
+
+Curtis: That's  what people in the best place say to the people in the worst
+place."
+
+- "You've seen what people so without leadership. They devour one another."
+
+- "I believe it is easier for people to survive on this train if they have some
+level of insanity. As Gilliam well understood, you need to maintain a proper
+balance of anxiety and fear and chaos and horror in order to keep life going.
+And if we don't have that, we need to invent it."
+
+- "Assume everyone will betray you and you will never be disappointed."
+
+- "Perhaps it's  impossible to wear an identity without becoming what you pretend
+to be."
+
+- "In the moment when I truly understand my enemy, understand him well enough to
+defeat him, then in that very moment I also love him. I think it’s impossible
+to really understand somebody, what they want, what they believe, and not love
+them the way they love themselves. And then, in that very moment when I love
+them.... I destroy them."
+
+- "I think that most of us, anyway, read these stories that we know are not
+
+- "true" because we're hungry for another kind of truth: the mythic truth about
+human nature in general, the particular truth about those life-communities that
+define our own identity, and the most specific truth of all: our own
+self-story. Fiction, because it is not about someone who lived in the real
+world, always has the possibility of being about oneself."
+
+- "Because never in my entire childhood did I feel like a child. I felt like a
+person all along―the same person that I am today."
+
+- "Sometimes lies were more dependable than the truth."
+
+- "Early to bed and early to rise," Mazer intoned, "makes a man stupid and blind
+in the eyes."
+
+- "There are times when the world is rearranging itself, and at times like that,
+the right words can change the world."
+
+- "So the whole war is because we can't talk to each other."
+
 - "Human beings are free except when humanity needs them. Maybe humanity needs
 you. To do something. Maybe humanity needs me—to find out what you're good for.
 We might both do despicable things, Ender, but if humankind survives, then we
@@ -451,100 +521,4 @@ to overcome their embarrassment. I like those kind of idiots"
 - "Planets are just places for people to stand on. Planets are just rocks. It
 takes people to make it a world. You can have as many "Earths" as you want. I
 only care about what's  inside."
-
-- "No matter how colossal a power you obtain, no matter how gigantic an army you
-bring with you, I ain't scared. While you've abandoned a hundred, I've
-connected with a thousand. While you've destroyed a thousand, I've been helped
-by ten thousand. So what's  an army of a few thousand? We have protected
-everything as just three people."
-
-- "I choose my own battlefields. Not by my blood, but by my heart! I stand on the
-battlefield to protect what's  important to me. And if anyone stands in my way,
-I don't care if it's  one of my kind, my brother or anyone else… I'll crush
-them all!"
-
-- "It's  as if you are stuck in some predetermined program, following some
-predetermined script. If you really want to live in reality, then fight against
-it. Break through destiny with your own hands, and build your own reality!"
-
-- "There is no need for any proof. There is no need to create any. We just have
-to live every second to the fullest, and the traces of the path we lived will
-burn into the ground. That will serve as proof of our existence."
-
-- "No matter how beautiful a person may be, they will still age and ultimately -
-die. But even so, even if appearances change, don't you believe that we have,
-in us, things that don't change? Even as our bodies crumble, even as the months
-and years take their toll... don't you believe that we all have something that
-time can't spoil? Even if you cover us with wrinkles, we won't lose to you.
-That's  because we know what beauty truly is."
-
-- "People need to live their life with a clear conscience. When you want to walk
-on a straight path, somehow you get yourself stained with mud. However, as long
-as we never give up, one day the mud on you will dry up and fall off"
-
-- "Even if you can't move anymore, or your back gets bent out of shape, it
-doesn't matter! What matters is what's  inside! Not what someone looks like,
-dammit!"
-
-- "What is right? What is wrong? In this mixed up world, deciding what is right
-and wrong is not easy. You can't just go by somebody else's  rules. If you let
-yourself be controlled like that, you'll just become a puppet that can't make
-decisions on it's  own. You have to live by your rules."
-
-- "No matter how hard you blow, you can never extinguish our fire. As long as a
-single flare remains, the others can be relit."
-
-- "It hasn't withered. I won't let it wither. We might just be little branches,
-but if the branches break off, the tree really will wither. That's  why I won't
-break off. Even if winter comes and the leaves fall off, even if the wind comes
-and all the other little branches break off... Even if I am the last branch
-left, I won't break off. I'm sure we'll be together till the end."
-
-- "Trying to shoulder the burden all by yourself? Don't be a stranger. Weep and
-ask for help. Lean on me with your runny nose. Cry when you feel like crying.
-Laugh when you feel like laughing. When you're tearing up with an ugly face,
-I'll give you a good cry with an uglier face. When you're laughing so hard your
-stomach hurts, I'll laugh in a louder voice. That's  how it should be. It's far
-better to get dirty while living true to yourself, than to throw away yourself
-and die a clean death."
-
-- "The country? the skies? You can have them. I'm busy just protecting what's
-right in front of me. I don't know what'll happen to me in the future, but if
-something has fallen at my feet, then the least I can do is pick it up."
-
-- "The zipper is a window to society."
-
-- "The best way to live a full life is to be a child, no matter your age."
-
-- "It may be tough now, but the worst is surely yet to come. Keep that in mind,
-and you'll be fine."
-
-- "That's  a good attitude. You should hate me more, curse me more, and detest
-me! Then you should take the power of that hatred and use it to survive in this
-rotten world"
-
-- "If Only Life Was as Beautiful as It Seemed at First Sight"
-
-- "There is no light for this who do not know the darkness. Live on and endure
-the shadows and brightness shall come your way."
-
-- "The more one tries to look away, the more one gets pre occupied. Once your
-heart is preoccupied, your sword will not be true. Then you will die. Dont be
-preoccupied with a single spot. See everything in its entirety effortlessly."
-
-- "Be aware of yourself. And accept yourself as you are. Thats where your
-training should begin."
-
-- "Our lives are not our own. From womb to tomb, we are bound to others. Past and
-present. And by each crime and every kindness, we birth our future."
-
-- "Belief, like fear or love, is a force to be understood as we understand the
-Theory of Relativity and Principles of Uncertainty: phenomenon that determine
-the course of our lives. Yesterday, my life was headed in one direction. Today,
-it is headed in another. Yesterday I believed that I would never have done what
-I did today. These forces that often remake time and space, that can shape and
-alter who we imagine ourselves to be, begin long before we are born and
-continue after we perish. Our lives and our choices, like quantum trajectories,
-are understood moment to moment. At each point of intersection, each encounter
-suggests a new potential direction."
 

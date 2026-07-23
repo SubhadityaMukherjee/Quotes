@@ -1,4 +1,136 @@
-<!-- Page 24 of 53  ·  quotes 2301–2400 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 24 of 54  ·  quotes 2301–2400 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "The classic approach has the paradoxical effect of training us to feel bad
+about all the things that make us feel good. It basically seeks to teach us
+self-discipline through shaming us—by making us hate ourselves for simply being
+who we are. And the idea is that once we are saddled with a sufficient amount
+of shame about all the things that give us pleasure, we’ll be so self-loathing
+and terrified of our own desires that we’ll just fall in line and do what we’re
+told."
+
+- "It was a simple principle: just as one can only realize the strength of wine
+after one gets drunk, one can only know the value of life after one has died."
+
+- "And don't use zhenqi to control your emotions. If human emotions aren't given
+the proper outlet, even if your powers of zhenqi control are at their peak,
+you'll become a murderous monster."
+
+- "Why do you wish to see this world?" Wu Zhu seemed to be pondering something,
+
+- "the place you are standing right now, isn’t it part of this world?"
+
+- "Since you only live once, the only way to make the most out of this
+unrepeatable game is to go around seeing different sights and meeting different
+people."
+
+- "Flowers fall once they appear, stones stand still a thousand years. But both
+must go just as they came, and floating clouds are just the same…"
+
+- "A bright moon on a wide river, a clear breeze among the hills."
+
+- "While this world may appear peaceful, if you don’t steel yourself, you will
+always be at a disadvantage."
+
+- "he had always been somewhat chauvinistic, feeling that when it came to matters
+between men and women, it was always women who got the worst of it, and men who
+took advantage."
+
+- "Man's  dearest possession is life. It is given to him but once, and he must
+live it so as to feel no torturing regrets for wasted years, never know the
+burning shame of a mean and petty past; to live that, dying, he might say: I
+did everything I wished to, and even if I was unsuccessful, at least I tried’."
+
+- "You once said that people have to be brave enough to seek happiness."
+
+- "one can’t be sincere without simple living, one can’t have high aspirations
+without a peaceful state of mind"
+
+- "There were too many matters in this world that men's  stupid brains had made
+complicated."
+
+- "Su Ming vaguely remembered one of the scrolls saying that once the prey went
+through a long period of time switching between the state of anxiety and
+relaxation, its fatigue and suffering would increase exponentially. That sort
+of torture was enough to destroy one’s soul."
+
+- "But we are members of the Berserker tribe. We cannot fear death, much less
+give up because the road ahead is too hard to walk." "I know what your dreams
+are. You want to leave this place and travel to see the world. I fully support
+you!"
+
+- "Su Ming, you must remember. There will always be people who are stronger and
+more powerful than you. You must never be arrogant…"
+
+- "He was certain of his words just like any young man who still believed in a
+bright future…"
+
+- "Either he would stay away from something, or he would finish what he had
+started."
+
+- "When you are fighting against someone, do not let your focus waver. Do not
+hesitate. If it is possible to kill your enemy with one strike within the
+shortest amount of time, do not wait till the last moment to do so."
+
+- "The oppression of the heavens is invisible. We can only endure it and while we
+endure it, we must learn to live with it happily… If we do not, are we to fight
+against heaven?’"
+
+- "Qi will only move when the mind moves. If the mind does not move, then Qi will
+also remain still!"
+
+- "To him, there was no one who could be his opponent. The one that he wanted to
+compete against was himself!"
+
+- "A person would experience great things and shortcomings in his life. He would
+also experience days of glory and days where he would stumble and fall. These
+were all things that Su Ming did not understand. The only thing he understood
+was that he had to do this."
+
+- "La Su, you are not alone in the sky. Do not be sad. Do not cry. Mama and papa
+will look at you from where we are… Every year, every day… we will look at
+you…" "I will not cry. I will not be sad. I will not be lonely. I know that you
+are there, watching me… I am happy…"
+
+- "It seemed like there was no sign of life within those ruins, and they would
+eventually turn into a remnant of the passage of time. Perhaps the few
+remaining trees and plants would continue growing there and slowly turn the
+place into a part of the forest, making it difficult for people to come looking
+for their memories and the beautiful moments that had happened during their
+time here."
+
+- "Chances are hidden within danger…"
+
+- "Instead, it would be better to emphasize the benefits of the concoction
+towards himself and subtly reveal some of his own thoughts that would make the
+other party wonder."
+
+- "The more he wanted to obtain something, the more he would have to sacrifice.
+Only he could determine whether the sacrifice was equivalent to the reward and
+whether it was worth it, not anyone else."
+
+- "The mind is restless, Krishna, impetuous, self-willed, hard to train: to
+master the mind seems as difficult as to master the mighty winds."
+
+- "Keep strong, if possible. In any case, keep cool. Have unlimited patience.
+Never corner an opponent, and always assist him to save face. Put yourself in
+his shoes—so as to see things through his eyes. Avoid self-righteousness like
+the devil—nothing is so self-blinding."
+
+- "Ask yourself at every moment, Is this necessary?’"
+
+- "Before we can make deep changes in our lives, we have to look into our diet,
+our way of consuming. We have to live in such a way that we stop consuming the
+things that poison us and intoxicate us. Then we will have the strength to
+allow the best in us to arise, and we will no longer be victims of anger, of
+frustration."
+
+- "To become empty is to become one with the divine—this is the Way."
+
+- "Childlikeness’ has to be restored with long years of training in the art of
+self-forgetfulness. When this is attained, man thinks yet he does not think."
+
+- "Chop wood, carry water. Chop wood, carry water. Chop wood, carry water. Don’t
+overanalyze. Do the work."
+
 - "Tao is in the emptiness. Emptiness is the fast of the mind."
 
 - "What’s essential is invisible to the eye."
@@ -167,6 +299,7 @@ probably the way it should be."
 How could I? I was blinded by my trust in the American promise: if I got the
 right kind of job, then success and happiness would surely follow.  This
 promise, however, is mostly false. It’s what the philosopher Plato called a
+
 - "noble lie", a myth that justifies the fundamental arrangement of society.
 Plato taught that if people didn’t believe the lie, then society would fall
 into chaos. And one particular noble lie gets us to believe in the value of
@@ -334,196 +467,4 @@ distinguished ants among the crowd would, out of enigmatic reasons, decide to
 strip their gaze from the rotten leaves and just for once, gaze up at the
 crystal blue sky…and then, the world was never the same to them. The fear comes
 from seeing."
-
-- "A veil was lifted off in front of my eyes when I understood that the modern
-society has replaced religious devotion with devotion to the material and this
-means that people identify with their job now that they can't identify with a
-common religion or background."
-
-- "The ancient greeks would probably think of you as a slave if you talked about
-work so much. Free men pursued the arts. Anyone at my job who only talks about
-work, I put them in the same box."
-
-- "Intentionally or not, when you say words like "how pitiful," you're alienating
-yourself from the other person and their experience. It dismisses and
-trivializes their pain."
-
-- "The world's first Mora is probably just an ordinary coin created by Rex Lapis.
-As for its fate? The same as all Mora, I suspect - it was simply spent
-somewhere."
-
-- "For how could a god who had never once resisted - even till the end-nurse
-hatred for her people in her heart?"
-
-- "Instead of explaining yourself to me, you should face your true self."
-
-- "The body and the mind are one. If something worries your mind, your body can
-help you find a solution."
-
-- "Besides, they're just kids. They should be allowed to believe it if it makes
-them happy. That's more important to them than questioning what's real and what
-isn't."
-
-- "Yoimiya: No matter where your journey takes you, and no matter what hardships
-might lie ahead, I hope you'll always be able to look back fondly on the
-fireworks you saw tonight. I believe that as time goes by, this firework will
-only grow brighter and more beautiful in your heart."
-
-- "Yoimiya: Fireworks that disappear in a flash of light are probably the
-furthest thing away from the eternity that our Shogun desires. Yoimiya: But
-people's feelings don't just disappear, and it's those feelings that give
-fireworks their purpose. If nobody wanted to watch fireworks, then they
-wouldn't exist. Eragon: That's another kind of eternity. Yoimiya: Also,
-consider You have to the Naganoharas, because so many people are emotionally
-invested in the existence of fireworks. Yoimiya: If we didn't exist, their
-wishes would go unfulfilled, wouldn't they?"
-
-- "Ei: I am me. There is only one of me, but I can exist in many different forms.
-It's not important what form I exist in. Ei: The Shogun, for example, is one of
-my forms of existence. The question of whether or not she is me is not
-determined by any of her components. Paimon: In that case, this picture is one
-of your forms of existence, too. Ei: Hmm. So even I, who seeks Eternity, am
-constantly changing my form of existence... Ei: Then, how can I ask Inazuma and
-everyone who lives here to remain unchanging?"
-
-- "To put it nicely, even deities indulge in wishful thinking. To put it more
-bluntly, there are things that even The Seven can't do when faced with
-something even more powerful than themselves."
-
-- "Because she is a god. It's not that gods don't need the company of others,
-just that the idea of a god having company seems indulgent to her."
-
-- "Sometimes like uh you get so creative that you don't know how to construct
-creatively the words in order to express your thought you know you just know
-how to create it you don't know how to verbalize your creative ideas like kanye
-west for instance his interviews people didn't know what the hell he was
-talking about when he was talking about his uh his clothing line right and then
-he created a billion dollar clothing line and i was like okay well maybe we
-can't we do we should listen to kanye west maybe it's like a bit of a genie for
-motivation-wise kanye is actually a really good example because this is
-actually a really big deal to me i feel like i have really good ideas and i can
-see what's happening in my head and then i go to a professional or i go to a
-loved one this is this is where it really hurts me is when i go to somebody
-that i love and i say i got this crazy idea let me tell you about and then i
-tell them what's happening scene for scene and then after that they go yeah
-it's pretty cool and i'm like you don't understand like what what i just said
-like that could be a full-on feature film or a tv show and they're like yeah
-it's cool it's cool and i'm like oh that hurts it's cool like that hurts me and
-then i'm thinking is it that wasn't a good idea that wasn't a good idea and
-then i'm like i don't do it anymore you gotta know the right people to share
-with you you you really do you're a little careful you you really your energy i
-think that's the biggest point that i can save for motivation for me is because
-some people are low in their life and they don't want anybody to be above them
-they want you to suffer with them and sit where they are in life and that's not
-everybody but there are people that want you know they're doing it they don't
-know they're doing it yeah they'd still love you too but they don't want you to
-be better than them and subconsciously some people will bring you down that way
-and some people are just like yeah it's cool because they can't see what's in
-your head but for me i can see what's in my head this is this is what happened
-personally with me and one of my students they were trying to explain to me
-what they were their story was about i'm like yeah that's cool and i don't know
-if i didn't motivate them or not but and i just couldn't really imagine what
-they were talking about it was just words all right they're just going
-blah blah blah blah blah and i'm like yeah yeah yeah keep on talking
-and then they showed me what they were working on a week later and i'm
-like this is incredible i didn't know that this is what you were
-talking about these were your words last week this is like this hit me
-in my heart and i wish that you could have explained it that way but
-you can't explain it you have to show it through your art and put music
-in it don't lose motivation whenever somebody says yeah that's a cool
-idea or whatever because they don't know what's in your flipping head
-that's the biggest thing that i would say i would walk away from the
-main thing to walk away from is that everybody has their own type of
-motivation and we've all shared our types of motivation and if you
-don't like it you can probably just shut up"
-
-- "Beware of destination addiction.... until you give up the idea that happiness
-is somewhere else, it will never be where you are."
-
-- "The thought was this: that all my life had been murk and depths, but I was not
-a part of that dark water. I was a creature within it."
-
-- "No wonder I have been so slow, I thought. All this while, I have been a weaver
-without wool, a ship without the sea. Yet now look where I sail."
-
-- "Gods hate all toil, it is their nature."
-
-- "Each spell was a mountain to be climbed anew. All I could carry with me from
-last time was the knowledge that it could be done."
-
-- "Zeus so angry." "Tell me," he said, "who gives better offerings, a miserable
-man or a happy one?" "A happy one, of course." "Wrong," he said. "A happy man
-is too occupied with his life. He thinks he is beholden to no one. But make him
-shiver, kill his wife, cripple his child, then you will hear from him. He will
-starve his family for a month to buy you a pure-white yearling calf. If he can
-afford it, he will buy you a hundred."
-
-- "You can teach a viper to eat from your hands, but you cannot take away how
-much it likes to bite."
-
-- "I watched her dance, arms curving like wings, her strong young legs in love
-with their own motion. This was how mortals found fame, I thought. Through
-practice and diligence, tending their skills like gardens until they glowed
-beneath the sun. But gods are born of ichor and nectar, their excellences
-already bursting from their fingertips. So they find their fame by proving what
-they can mar: destroying cities, starting wars, breeding plagues and monsters.
-All that smoke and savor rising so delicately from our altars. It leaves only
-ash behind."
-
-- "But in a solitary life, there are rare moments when another soul dips near
-yours, as stars once a year brush the earth. Such a constellation was he to
-me."
-
-- "A golden cage is still a cage."
-
-- "Every moment mortals died, by shipwreck and sword, by wild beasts and wild
-men, by illness, neglect, and age. It was their fate, as Prometheus had told
-me, the story that they all shared. No matter how vivid they were in life, no
-matter how brilliant, no matter the wonders they made, they came to dust and
-smoke."
-
-- "Even the best iron grows brittle with too much beating."
-
-- "The fear of missing out goes into full effect. How can we say no; the offer is
-right here for the taking. We might never have gone after it, but now it is so
-easy to get it we consider it. But if we just say yes because it is an easy
-reward, we run the risk of having to later say no to a more meaningful one."
-
-- "This feeling is normal; studies have found that we tend to value things we
-already own more highly than they are worth, and thus find them more difficult
-to get rid of."
-
-- "Resistance is not a peripheral opponent. Resistance arises from within. It is
-self-generated and self-perpetuated. Resistance is the enemy within."
-
-- "It is one thing to study war and another to live the warrior’s life."
-
-- "My friend Tony Keppelman snapped me out of it by asking if I was gonna quit.
-Hell, no! "Then be happy. You’re where you wanted to be, aren’t you? So you’re
-taking a few blows. That’s the price for being in the arena and not on the
-sidelines. Stop complaining and be grateful." That was when I realized I had
-become a pro. I had not yet had a success. But I had had a real failure."
-
-- "The professional, though he accepts money, does his work out of love. He has
-to love it. Otherwise he wouldn’t devote his life to it of his own free will."
-
-- "The professional has learned, however, that too much love can be a bad thing.
-Too much love can make him choke. The seeming detachment of the professional,
-the cold-blooded character to his demeanor, is a compensating device to keep
-him from loving the game so much that he freezes in action."
-
-- "The sign of the amateur is overglorification of and preoccupation with the
-mystery."
-
-- "The professional shuts up. She doesn’t talk about it. She does her work."
-
-- "The professional dedicates himself to mastering technique not because he
-believes technique is a substitute for inspiration but because he wants to be
-in possession of the full arsenal of skills when inspiration does come. The
-professional is sly. He knows that by toiling beside the front door of
-technique, he leaves room for genius to enter by the back."
-
-- "Boys," said Kulgan, shaking his head. "You hold a festival, give them a badge
-of craft, and suddenly they expect to be men. But they're still boys, and no
-matter how hard they try, they still act like boys, not men."
 

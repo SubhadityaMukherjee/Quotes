@@ -1,4 +1,152 @@
-<!-- Page 35 of 53  ·  quotes 3401–3500 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 35 of 54  ·  quotes 3401–3500 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "It seemed my whole life was composed of these disjointed fractions of time, hanging
+around in one public place and then another, as if I were waiting for trains that never
+came."
+
+- "But, like the Invisible Man in H. G. Wells, I discovered that my gift had its price,
+which took the form of, in my case as in his, a sort of mental darkness. It seemed that
+people failed to meet my eye, made as if to walk through me; my superstitions began to
+transform themselves into something like mania."
+
+- "drink tonight?' One likes to think there's something in it, that old platitude amor
+vincit omnia. But if I've learned one thing in my short sad life, it is that that
+particular platitude is a lie. Love doesn't conquer everything. And whoever thinks it does
+is a fool."
+
+- "I suppose that when anyone accustomed to working with the mind is faced with a
+straightforward action, there's a tendency to embellish, to make it overly clever. On
+paper there's a certain symmetry. Now that I'm faced with the prospect of executing it I
+realize how hideously complicated it is."
+
+- "I never realized, you know, how much we rely on appearances,"
+
+- "When the snow finally melted it went as quickly as it had come."
+
+- "About a Hindu saint being able to slay a thousand on the battlefield and it not being a
+sin unless he felt remorse."
+
+- "Alas, poor gentleman, He look'd not like the ruins of his youth But like the ruins of
+those ruins."
+
+- "You must know, a truly sincere heart is always lustrous!"
+
+- "Punishing one’s self for something one can no longer alter…that is nothing more than
+being made a fool of by fate! The only one who rules over myself…is myself!"
+
+- "Live neither in the entanglements of outer things, nor in inner feelings of emptiness."
+
+- "When you try to stop activity by passivity your very effort fills you with activity."
+
+- "The more you talk and think about it, the further astray you wander from the truth."
+
+- "To return to the root is to find meaning, but to pursue appearances is to miss the
+source."
+
+- "Do not search for the truth; only cease to cherish opinions."
+
+- "A person’s true nature is only revealed when he’s pushed right to the edge, am I right?
+Now that their bellies are full, and they are feeling all nice and comfy, they are acting
+like a bunch of spoiled a.s.sholes. I don’t like guys like Kang Seok, but that
+b.a.s.t.a.r.d’s opinions aren’t half wrong." "…." "You continue being nice to them,
+they’ll eventually end up thinking that it’s their birthright or something. Well, in any
+case…. Don’t ever trust those two stinking b*tches, okay?"
+
+- "He told himself, 'you find yourself in a such a favorable position, so much better than
+compared to other people, yet is this all you can do?"
+
+- "When he was still addicted to gambling, he was constantly on edge. The victim mentality
+took center stage in his heart and caused him to choke up over nothing important; often,
+he’d get defensive and angry even if he was in the wrong."
+
+- "Therefore whatever you desire for men to do to you, you shall also do to them; for this
+is the law and the prophets." "Is that…. the Golden Rule?"
+
+- "Hiya~. And I heard that when a girl bears a grudge, even snow will fall in the middle
+of a Summer"
+
+- "There will be other expeditions in the future. I pray that you don’t bet everything on
+this one."
+
+- "Money and fame? Of course, they sounded nice. However, none of them compared to his own
+self-worth he had regained after such a struggle."
+
+- "Goodwill with goodwill, and malice with malice… I’ve learned a lot during this
+expedition." "I agree. After all, humans aren't the only race who possess intelligence."
+
+- "There is no right or wrong in matters of survival. In this world, whether you are a
+righteous man or of a wicked persuasion, you have to gather under one banner and pool your
+resources to survive. That is the case, even now."
+
+- "However, didn’t Gula say it? The future was not that easy to change. That he’d have to
+go through unimaginable trials and tribulations. That he needed to exceed his own limits"
+
+- "Wait. Even if you don't do anything, there will be people who curse you. The more
+famous you get, the more hate you'll receive. Some people will even resent you. That's not
+the end of it. There will be a ton of people who are going to try to use you, even if you
+didn't do anything wrong."
+
+- "Just look at celebrities. Sure, some of them might deserve the hate they receive, but
+there are a lot more who don't. Do you know why haters leave mean comments or attack them
+on their social media? It's simple. Because they're unhappy, because they want attention,
+because they're bored, because they don't like the way someone looks, because they just
+want to argue, because they're jealous. There are countless reasons."
+
+- "What heals a wounded heart isn't time or medicine. It's sincerity"
+
+- "Humans all have a limit to their vessel. The same goes for ghosts."
+
+- "I think life is like the four seasons. When spring pa.s.ses, summer comes. When summer
+leaves, autumn comes knocking. And when autumn departs, winter enters."
+
+- "The moment the youth realized that he wasn't special, the only thing he could do was
+put in painstaking, bloodcurdling effort."
+
+- "You're right. It is hard. After all, you have to unite people who aren't like you and
+people who aren't like each other."
+
+- "They might think I'm just being c.o.c.ky." "Only if you introduce yourself arrogantly.
+Depending on your att.i.tude or the situation, things might have gone in a different
+direction."
+
+- "Words have different weights depending on who says them. The words of a famous,
+authoritative person are different than the words of a nameless brat." Kazuki muttered
+endlessly. "And fame is the strongest card in your possession. What's wrong about using
+something you've built up fair and square"
+
+- "You need to know your value a bit more,"
+
+- "You should find a style that suits your nature. You know, wear the clothes that fit
+you."
+
+- "He who wishes to wear the crown, bear its weight."
+
+- "The bigger your goals are, the bigger burden you must face."
+
+- "A leader is not someone who is placed in that position by someone else. A leader is
+someone who wishes to become a leader himself."
+
+- "People tend to get hasty when they aren't able to finish everything in time."
+
+- "In front of profit, justification changes depending on the situation and power at hand"
+
+- "One could never predict everything in life, and life was bound to be full of ups and
+downs, but now that he had experienced this irony of fate, he couldn’t help but feel
+bewildered. On the other hand, he felt a bit creeped out. Ian told him about this. That an
+action he considered insignificant might cause huge waves."
+
+- "Rather than struggling to overcome this emotion, he accepted it fully to get used to
+it"
+
+- "You lose a war when you get scared."
+
+- "Life isn’t a game you can see the ending of after clicking on one or two choices, is
+it?"
+
+- "Because you’re so uncomfortable with getting anything from my parents that they’re too
+careful with doing anything for you"
+
+- "Enduring an injustice makes you a person, but enduring a loss makes you a pushover"
+
 - "A world where one only pursues their own freedom and success, throwing aside all morals
 and responsibilities. A world poisoned by self-indulgence."
 
@@ -183,208 +331,4 @@ flowers and the stars? You should have more respect for human progress. We made 
 through great pain and struggle."
 
 - "Attention is the beginning of devotion"
-
-- "Sometimes the things you hate are the things you need"
-
-- "THE WISDOM OF LIFE CONSISTS IN THE ELIMINATION OF NONESSENTIALS."
-
-- "In this example is the basic value proposition of Essentialism: only once you give
-yourself permission to stop trying to do it all, to stop saying yes to everyone, can you
-make your highest contribution towards the things that really matter."
-
-- "It took courage, as it always does, to eliminate the nonessential."
-
-- "the pursuit of success can be a catalyst for failure."
-
-- "It is not just the number of choices that has increased exponentially, it is also the
-strength and number of outside influences on our decisions that has increased."
-
-- "Instead of reacting to the social pressures pulling you to go in a million directions,
-you will learn a way to reduce, simplify, and focus on what is absolutely essential by
-eliminating everything else."
-
-- "One paradox of Essentialism is that Essentialists actually explore more options than
-their Nonessentialist counterparts."
-
-- "There is tremendous freedom in learning that we can eliminate the nonessentials, that
-we are no longer controlled by other people's agendas, and that we get to choose."
-
-- "That's when I realized that in sacrificing my power to choose I had made a choice—a bad
-one."
-
-- "My first act of free will shall be to believe in free will."
-
-- "Ironically, in a Nonessentialist culture these things—space, listening, playing,
-sleeping, and selecting—can be seen as trivial distractions. At best they are considered
-nice to have. At worst they are derided as evidence of weakness and wastefulness"
-
-- "If somebody can't make the meeting because of too much going on, that tells me either
-we're doing something inefficiently or we need to hire more people."
-
-- "We have sold ourselves into a fast-food model of education, and it's impoverishing our
-spirit and our energies as much as fast food is depleting our physical bodies.…
-Imagination is the source of every form of human achievement. And it's the one thing that
-I believe we are systematically jeopardizing in the way we educate our children and
-ourselves."2 In this he is correct. This idea that play is trivial stays with us as we
-reach adulthood and only becomes more ingrained as we enter the workplace. Sadly, not only
-do far too few companies and organizations foster play; many unintentionally undermine it.
-True, some companies and executives give lip service to the value of play in sparking
-creativity, yet most still fail to create the kind of playful culture that sparks true
-exploration. None of this should surprise us. Modern corporations were born out of the
-Industrial Revolution, when their entire reason for being was to achieve efficiency in the
-mass production of goods. Furthermore, these early managers looked to the military—a
-rather less-than-playful entity—for their inspiration (indeed, the language of the
-military is still strong in corporations today; we still often talk of employees being on
-the front lines, and the word company itself is a term for a military unit). While the
-industrial era is long behind us, those mores, structures, and systems continue to pervade
-most modern organizations. Play, which I would define as anything we do simply for the joy
-of doing rather than as a means to an end—whether"
-
-- "Pushing oneself to the limit is easy! The real challenge for the person who thrives on
-challenges is not to work hard."
-
-- "If the answer isn't a definite yes then it should be a no."
-
-- "It's natural not to want to let go of what we wasted on a bad choice, but when we
-don't, we doom ourselves to keep wasting even more."
-
-- "In other words, a good film editor makes it hard not to see what's important because
-she eliminates everything but the elements that absolutely need to be there."
-
-- "It's true that doing less can be harder, both in art and in life."
-
-- "Remember, forcing these people to solve their own problems is equally beneficial for
-you and for them."
-
-- "The only thing we can expect (with any great certainty) is the unexpected. Therefore,
-we can either wait for the moment and react to it or we can prepare. We can create a
-buffer."
-
-- "Being good with a hammer, the Nonessentialist thinks everything is a nail. Thus he
-applies more and more pressure, but this ends up only adding more friction and
-frustration. Indeed, in some situations the harder you push on someone the harder he or
-she will push back."
-
-- "When we don't know what we're really trying to achieve, all change is arbitrary."
-
-- "It is the process Pixar uses on their movies. Instead of starting with a script, they
-start with storyboards—or what have been described as the comic book version of a movie.
-They try ideas out and see what works. They do this in small cycles hundreds of times.
-Then they put out a movie to small groups of people to give them advance feedback."
-
-- "We don't actually finish our films, we release them."
-
-- "ROUTINE, IN AN INTELLIGENT MAN, IS A SIGN OF AMBITION."
-
-- "If one's life is simple, contentment has to come. Simplicity is extremely important for
-happiness."
-
-- "When you reach my age, Amara, people show themselves to you very clearly. They write
-their intentions and beliefs through their actions, their lies."
-
-- "There are some people who will never understand what loyalty means. They could tell you
-what it was, of course, but they will never know. They will never see it from the inside.
-They couldn't imagine a world where something like that was real."
-
-- "There's two kinds of bad men in the world. I mean, there's all kinds of ways for a man
-to go bad, but when you get right down to it, there's only about two kinds of men who will
-hurt others with forethought. Premeditation. Men that don't figure there's anyone else
-alive who matters but them. And men who figure that there's something that matters more
-than anyone's life. Even their own." He shook his head. "First one is common enough.
-Petty, small. They're everywhere. People who just don't give a scorched crow about anyone
-else. Mostly, the bad they do doesn't amount to much. "The second kind is like your
-patriserus. People who hold something dear above their own lives, above anyone else's.
-They'll fight to protect it and kill to protect it, and the whole time they'll be thinking
-to themselves that it has to be done. That it's the right thing to do." Bernard glanced up
-at her and said, "Dangerous those. Very dangerous."
-
-- "If the beginning of wisdom is in realizing that one knows nothing, then the beginning
-of understanding is in realizing that all things exist in accord with a single truth:
-large things are made of smaller things. Drops of ink are shaped into letters, letters
-form words, words form sentences, and sentences combine to express thought. So it is with
-the growth of plants that spring from seeds, as well as with walls built of many stones.
-So it is with mankind, as the customs and traditions of our progenitors blend together to
-form the foundation for our own cities, history, and way of life. Be they dead stone,
-living flesh, or rolling sea; be they idle times or events of world-shattering proportion,
-market days, or desperate battles, to this law, all things hold: Large things are made
-from small things. Significance is cumulative—but not always obvious."
-
-- "If you've been unable to change a bad situation, even after many attempts, you should
-change how you look at the situation"
-
-- "Awareness is inherently pure, like the open sky. Stress, irritation, and anger can
-temporarily cloud the sky, but they can never pollute it."
-
-- "The martial path was lonely. It was a source of great happiness if one found a
-confidant."
-
-- "The Azure Yang Lord's uninhibited life was filled with ups and down. Having felt both
-extreme happiness and sadness, he knew how difficult it was to earn happiness. If he could
-make this moment last forever, that would be a blissful matter… However, be it the Azure
-Yang Lord or the ancient Great Empress, they knew that these days were not going to last."
-
-- "Warriors had to suffer hardship and experience numerous life and death encounters. If
-they were not careful, they would lose their lives. They had to restrain their desires and
-endure lonely decades of reclusive training. Wasn't all this for them to lead a free life
-and do as they pleased when their power succeeded on reaching unprecedented heights!?
-Everything in the world depended on one's preference. To do as the heart pleased!"
-
-"The ways of the world are full of vicissitudes, and in it, there is the grief at
-separation and joy in union, the suffering of life and death. No matter how thick a
-history book is, it would not be able to record everything down. However, it is such
-infinite matters of the past that can pass by with a finger snap. In one's old age, while
-looking back at the past, only then would you feel like everything was ephemeral."
-
-- "The further he walked, the tinier he felt."
-
-- "Against the vast cosmos, the lives of people were like ants. It was like how bacteria
-did not know what it meant for the first and last day of the month, or how mole crickets
-did not know the seasons. What was a mortal's life to the Universe? Yi Yun did not want to
-remain like a speck of dust in the Universe."
-
-- "In a warrior's world, we may have the power to cause great destruction, have long
-lifespans, and are able to lead extravagant lives, but the pressure is intense. Be it
-life-and-death trials or breakthroughs that require great risks, or the sense of urgency
-of being killed by someone else at any moment in time, it forces us to continuously forge
-ahead." "The accumulation of all these pressure naturally need an opportunity for it to be
-released."
-
-- "Time is like a flowing river. Everything and anything can be washed away by that
-river."
-
-- "Everyone had their own time, but time treated everyone equally."
-
-- "Were destruction and finality the end? Matter in the Universe could not remain eternal.
-They would eventually proceed towards destruction, including the Universe. But what
-happened after destruction? Could it be that all that was left was eternal 'nothingness'?
-Everything in the world underwent birth and death. A drop of water could evaporate and
-become part of a cloud before condensing into new drops of rain. Plants would wither, but
-the fruits that they bore could give rise to seeds. Mortals would die of age, but babies
-would grow up into adults. Stars could be destroyed, but new stars would eventually be
-born… Everything in the world underwent a cycle, so it definitely included the Universe.
-The destruction of the Universe was the beginnings of a new Universe. It was just that the
-cycle was immensely long that it was beyond the imagination of mere mortals. New Universe…
-Yi Yun suddenly seemed to realize something. What were the beginnings of the Universe? Dao
-begets One, One begets Two… Before Yin-Yang and Space-time was Chaos! Rebirth after
-destruction was Chaos and Major Destruction respectively. They were both two Great Dao of
-Supremacy! Why were there two Great Dao of Supremacy? They might be like Yin-Yang,
-Space-time, Water-Fire, just two sides of the Universe. The two could supplement each
-other and not a single one was dispensable."
-
-- "Chaos in the world leads to the suffering of all life, but it is something some people
-are willing to see. Heroes are born in difficult times."
-
-- "Humans were warlike, to begin with. It was common among humans to fight unceasingly for
-their interests. Furthermore, there were some perverse people who wanted revenge on the
-world. Such people were even more dangerous. There was no limit to what they would do. Yi
-Yun knew that there was evil deeply rooted in human nature. However, he was not a person
-who would bemoan the state of the universe and mankind, much less the kind who would
-question life after seeing the ugly nature of humans and eventually decide to destroy the
-entire world in a crazy fit. He was only Yi Yun, an ordinary person that pursued the
-martial path, wanting his life to escape the cycle of samsara."
-
-- "He who understands the times is a wise man."
-
-- "Life, from lifeforms as large as towering trees to bugs as small as ants, the reason
-for all they do is for the continuation of their bloodline."
 

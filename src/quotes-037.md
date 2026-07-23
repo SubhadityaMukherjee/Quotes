@@ -1,4 +1,177 @@
-<!-- Page 37 of 53  ·  quotes 3601–3700 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 37 of 54  ·  quotes 3601–3700 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "But the power to shake mountains does little good if the knife is already buried in
+one's throat"
+
+- "Courage." Tavi sighed. "As near as I can figure it, all courage gets you is more of a
+beating than if you'd run away."
+
+- "Sometimes," Bernard rumbled, "the only smart thing to do is nothing. Sometimes you just
+have to be still and see how events begin to unfold before you move. Be patient."
+
+- "Don't struggle to heal your wounds. Just pour time into your heart and wait"
+
+- "Having critics means what you're doing is getting people's attention"
+
+- "To be happy, it's not necessary to expend great effort so we get somewhere else.
+Instead, relax into the present moment while finding humor in your life. With humor, life
+becomes light and leisurely. And laughter always brings people to experience openness and
+joy"
+
+- "Humor opens closed hearts."
+
+- "as frequently as you can as a family. Although we see our family every day, we don't
+really get to be with"
+
+- "Although we see our family every day, we don't really get to be with one another. A
+change in environment can do wonders and can bring families closer. A good family trip can
+prevent divorce. What makes music beautiful is the distance between one note and another.
+What makes speech eloquent is the appropriate pause between words. From time to time we
+should take a breath and notice the silence between sounds. When you have to make an
+important decision,"
+
+- "The world will keep turning even without you. Let go of the idea that your way is the
+only way, that you are the only one who can make it happen"
+
+- "Therefore, much like a mirror reflects what is before it without judgment or
+identification with the image, simply reflect the negative emotion—let's say it's
+anger—and watch dispassionately. You will see the anger slowly changing shape, either
+revealing a deeper layer of emotion or disappearing on its own. If another layer of
+emotion is revealing itself, attend to it the way you did with your anger."
+
+- "pure attention without judgment is not only the highest form of human intelligence, but
+also the expression of love"
+
+- "No person can be found Who has been, is, or will be Only criticized Or only praised."
+
+- "When someone criticizes another, you might think he deserves it. But if you look more
+closely, you'll see that the critic is complaining because he did not get his way."
+
+- "As we resist, we are in constant motion trying to adjust, and yet we still remain
+unhappy about what is"
+
+- "When you cannot control even your own mind, what makes you think you can control
+others?"
+
+- "Whether it is an object, a thought, or a feeling, if it has emerged out of emptiness,
+it will soon change its form and eventually retreat back to emptiness. Seekers in search
+of the eternal Truth must look beyond its impermanent nature and become aware of "that"
+which knows impermanence"
+
+- "Spirituality must be practiced not just in solitude but also among people. Open up to
+people around you and feel connected. This is the true challenge of spiritual practice."
+
+- "Feelings are often born from a matrix of conditions beyond your control. Just like you
+can't control the weather, or your boss's mood, you can't control the feelings in your
+body. They are just passing through, like clouds in the sky. They, too, dissipate on their
+own. But if you take them too seriously and start internalizing them as part of your
+identity, then you will resuscitate them every time you think about the past. Remember
+that you are neither your feelings nor the story your mind tells about you to make sense
+of them. You are the vast silence that knows of their emergence and their disappearance"
+
+- "Of all the words that pour out of our mouths every day, how many are really ours, and
+how many are borrowed from others?"
+
+- "Everything in this universe is evanescent. Because it is evanescent, it is also
+precious. Spend this precious moment wisely and beautifully. The mind cannot have two
+thoughts at once. See if you can think two thoughts at exactly the same time. Well? Is it
+possible? We can be consumed by anger for a long time without realizing we have been
+angry. Similarly, we are easily lost in thought without knowing we have been thinking.
+Even when we are awake we are no different from a sleepwalker. We do things without the
+awareness of doing them. Just because our eyes are open does not mean we are awake. Being
+awake means that"
+
+- "When I gaze upon water, I become water. When I look at a flower, I become the flower.
+The flower riding on the water, yippee!"
+
+- "A long time ago, there was only one mind, which became bored by being alone for so
+long. So it decided to split into two. But since the two knew they were originally one,
+playing together was not much fun— as if playing both sides of a chess game. So the two
+minds agreed to forget where they came from; they pretended not to know each other. As
+time passed, they also forgot about their agreement. They forgot they were actually one
+and the same. This is the condition of our existence. We forget that we are originally
+from one mind."
+
+- "Life is like theater. You are assigned a role. If you don't like the role, keep in mind
+that you have the power to re-create the role you want"
+
+- "something I should have known all along. When we're first given a job, especially one
+we've been working toward for a long time, it's easy to become overly enthusiastic, as we
+are eager to prove ourselves. But in our excitement, we make the mistake of equating our
+own eagerness with effectiveness"
+
+- "When we're first given a job, especially one we've been working toward for a long time,
+it's easy to become overly enthusiastic, as we are eager to prove ourselves. But in our
+excitement, we make the mistake of equating our own eagerness with effectiveness. Getting
+the job done well is more important than one's feelings of doing a good job. It takes
+wisdom to discern that these two are not always related. In some cases, one's zealous
+efforts can get in the way of achieving the desired outcome, especially if one is unable
+to see the needs of the others working toward it together"
+
+- "The world notices your efforts more quickly than you think"
+
+- "It is important that you work hard, but don't be enamored of the feeling of working
+hard. If you are drunk on that feeling, then you care less about the actual work than
+about how you appear to others to be working hard."
+
+- "A person does not live the way he says he would. He lives the way he has been living"
+
+- "A vow to help others can summon immense energy from within."
+
+- "When you are making a decision, try to assess how many people it will benefit. If it
+satisfies only your ego and unnecessarily hurts many, then it is the wrong decision"
+
+- "Isn't it better to be happy together than to be right alone?"
+
+- "One lesson of maturity is that we should not take our thoughts too seriously, and must
+learn to curb our ego and see the bigger picture."
+
+- "Criticism without a solution is merely an inflation of the critic's ego."
+
+- "When you ask a question and there is no response, then that is the answer."
+
+- "Don't try to make it perfect. Instead, make it interesting!"
+
+- "After mastering eighteen levels of kung fu, you can hurt someone with the flick of a
+finger. But if you go on to master all thirty-six levels, you choose to retreat when the
+weak foolishly come to fight"
+
+- "From this experience I realized that the art of maintaining a good relationship can be
+compared to sitting by a fireplace. If we sit too close for too long, we become hot and
+possibly burned. If we sit too far away, we cannot feel the warmth. Similarly, no matter
+how well we get along with someone, if we stick too close without building in some
+personal space, we soon feel trapped and burned out; it is easy to take the relationship
+for granted and feel resentful about not having enough privacy and independence. On the
+other hand, if we put in too little effort to stay in touch with friends and family, we
+can't feel the warmth of their love. Striking a balance is key"
+
+- "cup was full. Perplexed, Maeng demanded to know what he was doing. "You seem to know
+that too much tea will ruin the floor," the master answered, "but how do you not know that
+too much knowledge will ruin one's character?"
+
+- "If you lower your head, you won't bump into trouble."
+
+- "Do not expect others to follow your way. When things always go your way, it is easy to
+become arrogant."
+
+- "The end of a sushi roll, with the filling sticking out, is often tastier than a piece
+sliced neatly from the middle. Someone slick and well-put-together can come across as cold
+and alienating, while an average guy without pretense is more genuine and attractive"
+
+- "People say hurtful things because they themselves have been hurt."
+
+- "When you criticize someone, see if you are doing so out of envy. Your criticism reveals
+more about yourself than you realize. Even if you are correct, people still may find you
+unappealing. If you wish to communicate effectively with others, better to describe what
+you are feeling rather than go on the offensive. For instance, say, "I am very sad to hear
+that," not, "Why do you always make me sad?"
+
+- "You want people to hear you rather than have to defend themselves from you"
+
+- "When blinded by anger, we make choices we later regret. Leaving the room before the
+bridge is burned is a sign of maturity"
+
+- "The best revenge is love"
+
 - "Paper wrapped around incense smells of incense, and string binding fish smells of
 fish."
 
@@ -227,235 +400,4 @@ but because the gift of sainthood makes it possible for them to admire everybody
 - "If you begin to believe what others say about you, they will begin to control you. Not
 everything that appears in your mind is true. Do not let someone else's opinion rule your
 life."
-
-- "If children do not receive enough attention, psychological problems often emerge."
-
-- "If I like myself, it is easy for me to like people around me. But if I am unhappy with
-myself, it is easy to feel unhappy with those around me. May you become your own biggest
-fan!"
-
-- "The absurd is essentially a divorce. It lies in neither of the elements compared; it is
-born of their confrontation."
-
-- "neither the human nor the universe are necessarily absurd on their own, but rather,
-their relationship is absurd. As humans, we exist with an innate desire for meaning,
-reason, and order, but yet, we simultaneously exist in a universe that appears to lack all
-of the above. So far as we can tell, the universe is completely indifferent. Thus, what we
-want and expect from the universe is fundamentally in contradiction with what we get. In
-this conflict, the absurdity of the human experience is found."
-
-- "Unlike anything else in the known universe, we are able to consciously observe,
-consider, reason, and act. As a result of our unique abilities, we ask ourselves why. We
-desperately try to find the answer. We get increasingly clever in our attempts, yet every
-time, just like the rock in The Myth of Sisyphus, at some point, we return to the bottom
-of the hill, leaving us to start anew."
-
-- "The struggle itself towards the heights is enough to fill a man's heart."
-
-- "Everyone is experiencing the same dissonance of being, living their own story through
-the nauseating rollercoaster of ups and downs to nowhere. It is both banal and almost
-hollow to say that we should be compassionate and kind to others because of this. Every
-first-grade child knows this in fewer words. The notion of togetherness and compassion is
-sold to us in soda and fast-food commercials as well as nearly every Disney movie. It is
-so commodified, clichéd, and obvious that it's hard to even take seriously the idea of
-needing to consider it further. Life isn't a soda commercial nor a Disney movie, and it
-isn't anywhere near as clean as a first-grade child could likely even imagine. There is a
-world filled with malevolence and anger and greed and impatience and all the rest. But for
-this very reason—because compassion is so trite and yet still seemingly so hard and
-absent—it is perhaps all the more essential and rational to give it serious focus and
-effort."
-
-- "There is but one thing that seems to have any positive effect against such absurdity: a
-sort of compassion for the whole. We must try to remember that everyone is in it, and
-everyone is flailing against it for the same reasons as everyone else. Thus, within limits
-perhaps, everyone deserves such consideration and compassion."
-
-- "Man can do what he wills but he cannot will what he wills."
-
-- "We see the world not as it is, but as we are,"
-
-- "In all cases, for the most part, knowing what the real color of things are
-(metaphorically speaking) is perhaps minimally relevant to living and thriving as an
-individual and as a species. Perhaps what matters more is that we can agree and disagree
-on subjective things sufficiently well enough, cordially enough, and often enough. And it
-seems as though that in order to do so, if such a feat is possible, the prerequisite is a
-willingness to embrace often being wrong."
-
-- "We so often take personally what the world does without us in mind."
-
-- "Those who are often angered reveal themselves to be a strange sort of optimist, still
-in denial of the tragedies of this life and the death of their youthful innocence—the
-belief that life can be what it can't."
-
-- "A theory in psychology known as appraisal theory, initially developed by psychologist
-Magda Arnold, suggests that our emotional responses are in large part created by our
-conscious evaluations of events—how we view, interpret, and label stimuli rather than the
-stimuli themselves. In other words, in between our primary experience of an event and our
-emotional experience of an event, there is a filtering process that occurs through and is
-based on our cognitive faculties. In this space, how we think based on our experiences,
-perceptions, views, and values determines what we feel."
-
-- "For the stoics, events in the world are objective and neutral, and our qualitative
-emotional experiences are merely a product of the narratives we tell ourselves. "It
-doesn't hurt me unless I interpret it's happening as harmful to me. I can choose not to,"
-wrote Marcus Aurelius."
-
-- "Rather, if we realize that the world has not singled us out, that most people are good
-people trying their best, that ignorance is far more often behind the curtain and not
-malice, that our emotions are not the result of being made victims by others but by us not
-taking ownership of them ourselves, that life is inherently difficult and suffering is
-fundamental to everyone, we can perhaps more accurately evaluate if what we are angered by
-is worthy of being angry about, and how."
-
-- "Knowing how to know and be yourself versus actually knowing and being it is like
-knowing the mechanics of how to surf on paper and then going out into the ocean and
-encountering an actual wave."
-
-- "Of course, it feels very nice to be liked. In certain cases, it is essential. Our
-wellbeing depends to some degree on the quality of our social relations, which require us
-to be sufficiently liked by at least some people some amount of the time."
-
-- "In infancy and early childhood, we are inadvertently conditioned by our parents,
-teachers, and other people we encounter to feel like we are the center of all attention,
-the most important thing in the world and beyond. Everything we do is relevant,
-consequential, or impressive. When we walk for the first time, it's the most important
-thing that could have happened in the world that day. If we draw on the wall, it's the
-worst thing. But of course, the world did not care about either of those things that day
-at all. As we age and are further socialized into the world, we slowly but surely realize
-that the world mostly has never and will never care about what just about anyone does,
-including us. We are not really at the center of anything at all, not even our own minds.
-We are not important in any grand sense. No one really cares."
-
-- "In his famous twentieth-century play, No Exit, Jean-Paul Sartre wrote, "You remember
-all we were told about the torture-chambers, the fire and brimstone, the "burning marl."
-Old wives' tales! There's no need for red-hot pokers. Hell is other people!"
-
-- "Even on the highest throne in the world, we are still sitting on our ass,"
-
-- "I am not who you think I am; I am not who I think I am; I am who I think you think I
-am,"
-
-- "I have sometimes thought that, in order to be a good minister, it was necessary to
-leave the ministry,"
-
-- "No man," he wrote, "can antedate his experience or guess what faculty or feeling a new
-object shall unlock, any more than he can draw today the face of a person whom he shall
-see tomorrow for the first time." In other words, no one can know what life will be like
-tomorrow nor what such life may cause one to think or feel. However, one must move with it
-and live according to the present now."
-
-- "Arguably, great artists and writers aren't popular because they say something no one
-has thought of or experienced before, but because they say something that most of us have
-but weren't sure we were right in doing so. Emerson"
-
-- "Perhaps so long as one authentically stands in their own position of confusion and
-limitation, they have still remained in accordance with their own relative truth and
-greatness, and the notion of self-reliance holds steady."
-
-- "One's shadow does not disappear by looking away from it. In the same way that one
-cannot literally evade the shadow of their body by outrunning it, there is no move or
-evasive tactic that separates the individual from their psychological shadow. The danger,
-rather, is in the attempt to do so—the ignorance and denial of it. Jung wrote: Good does
-not"
-
-- "One must know of a problem to be able to fix it, and it is an act of healing to admit
-that one is sick."
-
-- "man is a worm and food for worms. This is the paradox: he is out of nature and
-hopelessly in it; he is dual, up in the stars and yet housed in a heart-pumping,
-breath-gasping body that once belonged to a fish and still carries the gill-marks to prove
-it."
-
-- "What does it mean to be a self-conscious animal? The idea is ludicrous, if it is not
-monstrous. It means to know that one is food for worms. This is the terror: to have
-emerged from nothing, to have a name, consciousness of self, deep inner feelings, an
-excruciating inner yearning for life and self-expression and with all this yet to die. It
-seems like a hoax."
-
-- "One must be careful to not make the singularness of their shot at existence a pressure
-to get it all right—to do all the right things and think all the right thoughts and feel
-all the right feelings."
-
-- "The point is quite the opposite; you will mostly do a lot of the wrong things, think a
-lot of the wrong thoughts, and feel a lot of the wrong feelings. But precisely because
-this is your one shot at life, this must be ok. You are driving blind through the most
-impossibly complex, strange maze that you know ends in a head-on collision with a wall.
-What use is getting more upset or guilty about feeling upset or guilty in an existence
-that set you up? Of course, this is far easier said than done, but perhaps in true, deep
-contemplations of one's mortality, at least on occasion, this reminder can sometimes serve
-more as a sedative and not merely a stimulant."
-
-- "It is strange and rather terrifying to consider that we can be something for now and
-nothing forever—but perhaps it is only because of the fact that we are nothing forever
-that we can be something for now."
-
-- "We might never know what nothing is until we know nothing at all. And even then, we
-might not. We are all free to imagine nothing however we like. Because if nothingness is
-in fact the source and destiny that connects us all, then perhaps, through nothing,
-anything is possible."
-
-- "If we are to be fully human and fully alive and aware, it seems that we must be willing
-to suffer for our pleasures."
-
-- "the more one tries to remove or escape the negative experience of life, the more
-negative it becomes. Rather, the more one faces it willingly and intentionally, the
-stronger and more equipped one becomes—the more meaningful and positive the pain and
-hardship can be made to feel ."
-
-- "However, beyond this area of exceptional misery, there still exists a realm of
-suffering and unhappiness entrenched in human life that appears to be unshakeable, even
-when one's circumstances are relatively good. This realm can draw the healthy, decent,
-prosperous person to self-hatred and self-sabotage, to addiction and suicide. It is the
-realm of misery in the background of any and every moment that should be enjoyed simply
-and happily but isn't. It is the mental pain that is specific to no one but applicable to
-everyone."
-
-- "The person who depends on their ability to accomplish away the struggle, sadness, and
-uncertainty of life, could accomplish the whole world just to be met with a disappointment
-so intense that it would destroy whatever is left of them. Perhaps, then, our quality of
-life is not found in the heights of our happiness or pleasures but in how we choose to
-consider and look at what surrounds these extremes, how we attempt to create a life of
-personal intention, meaning, and decency, and justify the inevitable lows rather than
-always trying to escape them."
-
-- "In every exhalation, there is a breath to come so long as we keep breathing. In every
-moment of hardship, pain, confusion, or weakness, there is a story taking place filled
-with the potential for triumph and vitality worthy of tears bursting with wonder and
-fondness for life, so long as we keep moving. So long as there is life in us, there is the
-rare and exclusively human opportunity to take this chaotic, thrashing existence, this
-strange nothingness, and make it something. There is the chance to connect and love and
-help, to feel and think and live, to experience the cosmic everything. And at some point,
-perhaps that is enough."
-
-- "When you get the shit kicked out of you long enough . . . you will have a tendency to
-say what you really mean," said"
-
-- "Too many writers write for the wrong reasons. They want to get famous or they want to
-get rich or they want to get laid by the girls with the bluebells in their hair . . . When
-everything works best, it's not because you chose writing, but because writing chose you.
-It's when you're mad with it. When it's stuffed in your ears, nostrils, under your finger
-nails. It's when there's no hope but that."
-
-- "There are degrees of madness, and the madder you are the more obvious it will be to
-other people. Most of my life I have hidden my madness within myself but it is there,"
-
-- "Men are so necessarily mad, that not to be mad would amount to another form of
-madness,"
-
-- "Like a wild elephant, the untamed mind can inflict enormous damage on ourselves and
-those around us."
-
-- "One traditional Tibetan doctor whom I know once commented on people living in the West,
-"From the perspective of Tibetan medicine, you are all suffering from nervous disorders.
-But given how ill you are, you are coping remarkably well!"
-
-- "Physicians don't heal abrasions, and surgeons don't mend bone fractures. Instead, they
-do whatever they can to allow the body to heal itself—by keeping the wound clean, setting
-the broken bone, and so on."
-
-- "The reason we don't devote more time to balancing our minds is that we are betting our
-lives that we can find the happiness we seek by chasing fleeting pleasures. Psychologists
-have called this the hedonic treadmill, and the first step to escaping from this
-exhausting grind is to seek a vision of genuine happiness that draws on our own, largely
-untapped inner resources."
 

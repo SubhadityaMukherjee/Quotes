@@ -1,4 +1,66 @@
-<!-- Page 7 of 53  ·  quotes 601–700 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 7 of 54  ·  quotes 601–700 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Form is empty. But it is full of everything else in the cosmos."
+
+- "The future is a blank sheet of paper. Only my will can leave footprints on
+it."
+
+- "This mind is my mind. It should be up to me to employ it- it should not go out
+following others."
+
+- "My destiny lies in my own hands, and I will never let others control my fate."
+
+- "First, you must be able to understand… what the Dao is! "The Dao?" Meng Hao
+gaped. Why is there life? Why is there death?" The ancient voiced echoed back
+and forth endlessly. Why is there reincarnation? It's like a circle, with the
+head and the tail connected, but what exactly does that mean, and is
+reincarnation the only explanation? Why are there cultivators? Why are there
+cultivation Realms? Why is there Daoist magic? Why are there divine abilities?
+How does light shine? How does darkness descend? Metal. Wood. Water. Fire.
+Earth. What are the differences between these elements? Fire is fire, and yet,
+why are there different types of heat? What is heat? What is cold? What does it
+mean when something that can only survive in the ice can be burned to death by
+a single drop of water?" The ancient voice spoke with increasing speed, causing
+Meng Hao's mind to tremble. Questions piled up in his mind. Each one seemed
+possible to answer directly, but if he actually had to answer them, he would be
+left speechless. "What is the Dao?" That was the final question uttered by the
+ancient voice, and it left Meng Hao's mind rumbling. The Essence is the Dao,
+the basis of everything that defies Heaven!" A bright light shone in the
+middle-aged man's eyes, and he suddenly seemed very serious. All such unknowns
+are Essence. Only when you seek out the Essence, can you comprehend Heaven and
+Earth, understand all living things, and control everything! When you
+understand all transformations of Heaven and Earth, when you have defied the
+Heavens, when you have sealed the Earth, then what could possibly be difficult
+to you?!"
+
+- "So long as there were benefits, forgetting favors to violate justice and not
+recognizing one's family were no less common than drinking water."
+
+- "A cultivator's talents and physique aren t enough; one also needs a strong Dao
+willpower, and a will strong enough to follow the road to the end. One day, he
+would be the last one smiling, and he would be the one to stand at the highest
+peak, looking down on humanity."
+
+- "The most important thing… was to have an unshakable Dao willpower; a willpower
+that thirsts for knowledge! A willpower that understands that the truth of all
+rivers flow into the same sea! A willpower that was diligent and assiduous!
+This was the most important thing! For insufficient talents, hard work would
+suffice as long as the mind was willing; for insufficient talents, others take
+one day to awaken, and you take one hundred days to awaken. There would always
+be a fruitful harvest. With a Dao willpower that could accept that all rivers
+lead into the sea, one could see the entirety of the eight directions and not
+be blinded by their own shortsightedness!"
+
+- "Though I come from the mortal dust, my heart still soars towards the heavens.
+It was like the grass upon the desolate battlefield… It had to struggle to
+emerge from the dirt and grow up. It fought for every ray of sunshine, every
+drop of rain, because it wanted to grow higher and higher. It might be very
+low-key and unremarkable…but not even the most exalted major powers of the
+Three Realms could stop the will and the heart of the grass. The heart was
+infinite and unlimited; even a beggar could have the heart and ambitions of an
+emperor. The power of the heart was invisible and formless…but it was
+incomparably marvelous. Even mortals who had sufficiently powerful hearts and
+wills could create miracles. They would become heroes!"
+
 - "When looking for a partner, one should look for everlasting feelings, for
 gentle feelings, for straightforward feelings, for feelings that makes them
 willing to commit. This factor will forever remain more valuable than money. To
@@ -65,6 +127,7 @@ person out there, is waiting for us to fill it with something."
 
 - "Was I able to live inside someone's heart? Was I able to live inside your
 heart? Do you think you'll remember me at least a little? You d better not hit
+
 - "reset!" Don t forget me, okay? That's a promise, okay? I m glad it's you,
 after all. Will I reach you? I hope I can reach you."
 
@@ -167,6 +230,7 @@ humans, the only thing we do is compare ourselves to others, in any and all
 matters. We compare who has the highest cultivation base, who is richer, who
 has the better status, who has the higher position, who has the most power, who
 has the best family background, who is the smartest, or who is the strongest.
+
 - "The weak with the weak and the strong with the strong, all people are
 constantly comparing themselves to each other. Because of these comparisons,
 people covet what they do not have, and what they do have, they are even more
@@ -410,6 +474,7 @@ His voice seemed to contain a bizarre power that caused it to spread out in all
 directions, causing every audience member, regardless of the level of their
 cultivation base, to slip into a strange, trance-like state. "Simply put, it is
 very similar to how I once described to someone the different Realms of life.
+
 - "In the past, various people have asked me what the Dao is…. My responses have
 varied depending on the occasion, the circumstances, and the level of my
 cultivation base. In fact, every single time, I gave a different answer. I m
@@ -478,51 +543,4 @@ journey, your scars deserve to be treasured too."
 stay the same forever? Even if wounded. Even if in conflict with other people.
 Even so this feeling fading away is impossible. No longer fearing being
 selfish. No longer fearing repercussions. That is liking someone."
-
-- "A man has but one life, grass but one spring, so if death comes then so be
-it!"
-
-- "The heart is the limit."
-
-- "In both worlds, when many people discover that they lack the ability to
-accomplish their dreams, they will feel lost, disappointed, disjointed, and
-inferior. Many of them will resort to immersing themselves in great pain,
-imagining success, going into isolation or hoping to go back to the past. It is
-not wrong for a person to walk on a single path. Suffering may be brought to
-those around this person but eventually, this person may succeed. However, the
-people who have the determination to immediately choose a new way deserve even
-more respect. Life is interesting because picking another road of life requires
-more determination and bravery than continually walking on the same path."
-
-- "To think about the past bring out the pain and cry that penetrates the heart
-and mind. but it must be endured. He has yet to succeed but has already drank
-the poison. He endured it all. No words can be written to express my thought"
-
-- "The end of religion is the beginning of spirituality. At the end of
-spirituality is reality. The end of reality is the real bliss."
-
-- "Today we find so many sects and creeds, each worshipping its own god or
-goddess in its own particular way. Evidently the goal
-
-before their eye is not even liberation but in most cases deliverance from some
-particular form of misery or some material gain."
-
-- "The time you feel alone is the time you most need to be by yourself."
-
-- "Earth teach me to forget myself as melted snow forgets its life. Earth teach
-me resignation as the leaves which die in the fall. Earth teach me courage as
-the tree which stands all alone. Earth teach me regeneration as the seed which
-rises in the spring."
-
-- "Our Lord has written the promise of resurrection. Not in books alone but in
-every leaf in springtime."
-
-- "The world is a cruel place. So go out there and make it a little less so."
-
-- "It's incredibly pretentious how man can think it has power over every other
-living being. It's possible that no species can be controlled at all. And like
-that. You have to respect every form of life. Man protects other species for
-fear of loss. He protects the environment thinking that's how he ll survive.
-And he's just being selfish. But not that there's anything wrong with that.
-It's actually necessary. We can t Belittle any species at all."
 

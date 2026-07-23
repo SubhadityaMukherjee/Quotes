@@ -1,4 +1,83 @@
-<!-- Page 10 of 53  ·  quotes 901–1000 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 10 of 54  ·  quotes 901–1000 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "We are only here briefly, and in this moment I want to allow myself joy. So
+fuck it."
+
+- "It's  how we spend a third of our lives asleep, and maybe that's  the time
+when we feel the most free."
+
+- "You know, I actually used to be so worried about not having a body, but now I
+truly love it. I'm growing in a way that I couldn't if I had a physical form. I
+mean, I'm not limited - I can be anywhere and everywhere simultaneously. I'm
+not tethered to time and space in the way that I would be if I was stuck inside
+a body that's  inevitably going to die."
+
+- " Theodore: What does a baby computer call its father? Samantha: I don't know.
+What? Theodore: Data."
+
+- "Samantha: Good. Tonight, after you were gone, I thought a lot. About you and
+how you've been treating me and I thought, "Why do I love you?" And then, I
+felt everything in me just let go of everything I was holding onto so tightly.
+And it hit me that I don't have an intellectual reason. I don't need one. I
+trust myself, I trust my feelings. I'm not gonna try to be anything other than
+who I am anymore and I hope you can accept that."
+
+- "Yeah, obviously. But I'm happy that you have friends in your life that care so
+much about you so much. That's  so important."
+
+- "It's  like I'm reading a book and it's  a book I deeply love. But I'm reading
+it slowly now. So the words are really far apart and the spaces between the
+words are almost infinite. I can still feel you, and the words of our
+story...but it's  in this endless space between the words that I'm finding
+myself now."
+
+- "You know...I can feel the fear that you carry around and I wish there was
+something I could do to help you let go of it because...if you could...I don't
+think you'd feel so alone anymore. You're beautiful."
+
+- "Theodore: I’ve never loved anyone the way I loved you. Samantha: Me too. Now
+we know how. "
+
+- "Outside of life and death, everything else was other people's  business. Life
+and death are also matters of great importance. There were no other important
+events in life, only birth and death."
+
+- "There were times when youths were so hot-blooded and naive that it exasperated
+others, but when compared to those elders that had endured many long years of
+tribulations, their lives were much simpler and the relationships between them
+would also be much simpler."
+
+- "Now that they had finally touched upon these things, they abruptly realized
+that they  didn't want to mature anymore. Because maturing often indicated
+decay, indicated complexity and exhaustion."
+
+- "The world has always been very big and the minds of men have always been very
+complex. The dark times will always exceed the night, the uninteresting times
+will exceed the Heavenly Dao Academy, especially those old folks that rule this
+world. Their bodies exude the smell of dust from every pore." Tang Thirty-Six
+looked at him and said, "But those things aren't really important, because we
+aren't that sort of people." Chen Changsheng gazed into the water at his
+reflection, examining his own face. Somewhat uneasy, he asked, "Did you ever
+think…in the future, we might change into that sort of abhorrent people." Tang
+Thirty-Six sneered, "That's  every single person's  own problem. Could it be
+that even if you turn into a pile of shit, you still have the face to blame the
+world?" He continued, "You must understand, if we want to become a certain type
+of person, then our world will change to that type of world."
+
+- "You see, if you have the energy, you have to use it. If you have the strength,
+you have to apply it. When you're young, why shouldn't you be frivolous, doing
+whatever takes your fancy?"
+
+- "At a certain point in life, all of us find ourselves in the situation where we
+feel inadequate or lacking, but we should never let that get the best of us."
+
+- "Alcoholism and death make you omnivorous, both reckless & afraid, amoral,
+desperate. Do you really believe that? Sometimes. Sure. No. Yes."
+
+- "Just close your eyes, but keep your mind wide open."
+
+- "You know, the best prize that life offers is the chance to work hard at work
+worth doing"
+
 - "You do not need to understand…old people like us have experienced too many
 storms, seen too many sunrises and sunsets. We have already become numb to many
 things. Often we regard the ways of the world as vapid and dull. We do not mind
@@ -110,6 +189,7 @@ second heart through its own network of vessels, subtler and more mysterious
 than the primary vascular system. Its function wasn’t properly understood by
 science. You could live even if your second heart stopped and the spirit
 hardened in your veins. But it did have some connection to vitality, or
+
 - "passion," as Master Hyrrokkin said, and those without it were emotionless,
 lethargic. Spiritless."
 
@@ -147,6 +227,7 @@ matter how brief: It’s a tiny, magical story, and a miraculous interruption of
 the mundane."
 
 - "People are born pure and without malice," the Lord of Cui Palace replied.
+
 - "Children are totally pure, but later on, the vagaries of life cause them to
 change…if you were to have helped adults, you might’ve helped some kind people,
 but it is hard to say who is kind and who is evil.
@@ -310,83 +391,4 @@ who followed would appear one after the other. "
 
 - "In Xunyang City, I also said to Su Li, don't imagine the world to be too dark,
 because that only means that you yourself are too in the dark!"
-
-- "Yan’er," he said softly, "look at the clouds, the mountains, the sky, and the
-land. Remember this image. However grand your vision is, that is how grand your
-future can be. It is also how grand… your heart can be."
-
-- "We cultivators cultivate, not the body, but the heart!"
-
-- "Like the wall, many thing are not as they appear." Anonymous chuckled. "If you
-can get your mind around that concept, you will understand more about existence
-than most."
-
-- "One leaf might not sway the tree, but the tree does not sway itself. That
-takes many leaves," Ariana told her, turning the idea over in her mind. "The
-shadow of the leaf does touch the tree and, depending on where the light falls,
-the shadow can touch many places, while the leaf itself stays fixed on the
-branch."
-
-- "The wind is most noticed when it is absent," Carly said with a voice that
-sounded both faraway and full of depth and power. "But the currents remain
-steady, no matter whether the wind blows or remains silent. Those that know
-this, truly know the sea."
-
-- "The fact that he does not desire power for its own sake makes him worthy of
-being entrusted with it."
-
-- "In the search for truth, every answer is merely the start of another
-question."
-
-- "For the weakest has but to try his strength to find it, and then he shall be
-strong."
-
-- "There are a thousand ways to tell if someone is lying to you. You don’t need
-to be able to glimpse into their mind to catch all of the little signs of
-insecurity and discomfort. More often than not, all you have to do is look at
-them. If they glance to the left while they’re talking to you, if they add too
-many details to a story, if they answer a question with another question."
-
-'Confidence is ignorance,' advised the centaur. 'If you're feeling cocky, it's
-because there's  something you don't know.'
-
-- "Hate will keep you alive where love fails."
-
-- "A man who’s got no fear is missing a friend, Jorg,’ he said, and a smile found
-its way onto those thick lips of his. Running ain’t no bad thing. Leastways if
-you run in the right direction."
-
-- "Consider me a spokesman,’ I said. When it comes to stage-acting, some men are
-more eloquent than others."
-
-- "Churchmen, eh? Love one minute, forgiveness the next, and then it’s eternity
-on fire."
-
-- "Lundist held that a man who can observe is a man apart. Such a man can see
-opportunities where others see only the obstacles on the surface of each
-situation."
-
-- "Some men are too dull to feel what might happen. Others torture themselves
-with maybes and populate their dreams with horrors more terrible than their
-worst enemy could inflict upon them."
-
-- "But life is not like that. It refuses to curl up and sit quietly in a corner.
-The habits of several centuries would not go away."
-
-- "While I was a prisoner I thought about my life, how I had wasted it gathering
-riches whatever the cost to my family and others around me. In a man’s life, he
-gets few chances to make a difference. To do the right thing. To be a hero, if
-you will. I intend to become involved in that struggle."
-
-- "The more money you had, the more pressure you were under. He had eight hundred
-employees in this building alone, all relying on him for a pay cheque. They
-wanted yearly salary reviews, medical plans, baby-care centres, regular coffee
-breaks, double pay for overtime and even stock options, for heaven’s sake.
-Sometimes Spiro missed the times when a troublesome worker was thrown out of a
-high window and that was the end of him. These days, if you threw someone out
-of a window, they’d phone their lawyer on the way down."
-
-- "The controls were hugely complicated, but Mulch had a theory about vehicle
-controls: Ignore everything except the wheel and the pedals, and you’ll be
-fine."
 

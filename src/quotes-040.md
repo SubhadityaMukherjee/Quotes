@@ -1,4 +1,218 @@
-<!-- Page 40 of 53  ·  quotes 3901–4000 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 40 of 54  ·  quotes 3901–4000 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "This simple gesture, and the story of the beans, made me realize how broken my mental
+mechanisms were for thinking about anything beyond the transactional exchange."
+
+- "Time can have many rhythms, and rhythms can take on many meanings."
+
+- "Tempo and intensity surround us at every level: we know that a birthday tomorrow can
+feel like an eternity to a little child whilst a birthday one year ago can seem like only
+yesterday to an old person. The dormant period of winter is followed by a burst of growth
+in spring….'Our' social time as it emerges from common usage is inseparable from the
+rhythms of the earth. Complexity reigns supreme."
+
+- "Saying it meant that you could take time and give time, but also that you could plant
+time and grow more of it and that there were different varieties of time. It meant that
+all your time grew out of someone else's time, maybe out of something someone planted long
+ago. It meant that time was not the currency of a zero-sum game and that, sometimes, the
+best way for me to get more time would be to give it to you, and the best way for you to
+get some would be to give it back to me. If time were not a commodity, then time, our
+time, would not be as scarce as it seemed just a moment ago. Together, we could have all
+the time in the world."
+
+- "In "Why Time Management Is Ruining Our Lives," Oliver Burkeman observes that keeping a
+detailed log of your time use, in an effort to save time or spend it more wisely,
+ironically "heightens your awareness of the minutes ticking by, then lost forever."
+Whether on the level of minutes or of life stages and benchmarks, the more you stare at
+time, the more cruelly it seems to slip through your fingers."
+
+- "the product offered by a capitalist version of wellness is "the means to remake oneself
+into an ever more perfect self-correcting machine capable of setting goals and moving
+toward them with smooth determination."
+
+- "How long does it take, or should it take, for a body to move through the world, the
+forty-plus-hour work week, the demands of caregiving for ailing parents, the daily commute
+of the body with its changing needs over the life span—a pregnant body, an aging one, a
+body in recovery after a bad injury?" Hendren asks. "Is the clock of industrial time built
+for bodies at all?"
+
+- "It's actually okay to be on a spectrum of reality. It means that there are times when
+it's juicier, there are times when it's drier, there's times when I'm gonna be tired,
+there's times when I'm going to have a lot of energy. It's actually part of being alive.
+It is being alive."
+
+- "Too worn out to grasp, and forced to sit back, the tired and resigned person finds that
+something else floods in: the world, in all its detail, its constantly acting and
+infinitely dispersed agents, and its minute-by-minute changes."
+
+- "deep tiredness loosens the strictures of identity. Things flicker, twinkle, and vibrate
+at the edges."
+
+- "Maybe "the point" isn't to live more, in the literal sense of a longer or more
+productive life, but rather, to be more alive in any given moment—a movement outward and
+across, rather than shooting forward on a narrow, lonely track."
+
+- "Disability highlights something that is true for all of us: No matter how independent
+and fit we may feel, we are not simply alive but, rather, kept alive—against odds that
+some people are nonetheless privileged enough to ignore."
+
+- "People do not spring up from the soil like mushrooms," she writes. "People need to be
+cared for and nurtured throughout their lives by other people."
+
+- "For me, death is when I can no longer engage with the world around me; when I can no
+longer take anything in and, therefore, can no longer connect."
+
+- "what's the use of building your body if you can't build your mind?"
+
+- "It is, therefore, a severe and grave misinterpretation of man to deal with him as if he
+were a closed system."
+
+- "A lack of "direct access" to the mental states of those selves makes us less prone to
+see them as having evolving inner lives."
+
+- "No matter how optimized, healthy, and productive I am, I simply will not become more or
+better forever, which means there are things I will never do and never be. Just like this
+book, which could have been anything when I started it, my life will take some paths and
+not others—and then it will end, the thread pulled out of the ball, with no witch to
+indulge me by taking it back. Realizing that I cannot be everything is in one sense
+incredibly freeing: It means I am not responsible for being everything. Yet the fact that
+life ends, for anyone who enjoys being alive and in the world, is also inherently
+sorrowful."
+
+- "I feel alive if I'm not alone in the air, but embraced by it. I feel alive when
+someone's eyes light up, and mine do too. I feel alive if I can look at a deer and see it
+looking back at me; if, when geese speak, it sounds like language; if, when I walk on the
+ground, I feel it pushing back against me."
+
+- "No one is responsible for an emergence; no one can glory in it, since it always occurs
+in the interstice."
+
+- "But when I understand that this glass is already broken, every minute with it is
+precious."
+
+- "With nothing but distance between you and your destination, it may as well have already
+taken place. It's as though you had an amazing set of binoculars that let you see
+something far away in such detail that you didn't actually need to go there. Let's just
+get it over with, says the heartbroken subject, unable to enjoy her already-broken cup."
+
+- "You're turning time into space, he would say. You're imagining empty blocks of time
+stretching out in front of you, mentally crossing that distance toward the thing you think
+has already happened, instead of admitting the creative aspect of time that is ever
+evolving and shifting, each second heaving the world—and you—through the crust of the
+present and into the future."
+
+- "Could it be that the opposite of looking assuredly through binoculars at a flat space
+would be the perspective you get when rounding a mountain trail—one where, even though you
+know where you are, things look different at every turn?"
+
+- "Though my episodic memory goes back only so far, my existence is explained by older
+things: my mother's immigration, a war whose exigencies threw my grandparents together,
+and the fish swimming off the coast of Estancia, on the eastern tip of Iloilo. The people
+who fished there have something to do with me, just as I continue to have something to do
+with them."
+
+- "Kinship moves in cycles, the land moves in seasonal cycles, the sky moves in stellar
+cycles, and time is so bound up in those things that it is not even a separate concept
+from space. We experience time in a very different way from people immersed in flat
+schedules and story-less surfaces. In our spheres of existence, time does not go in a
+straight line, and it is as tangible as the ground we stand on."
+
+- "Compared to chronos, kairos sounds like the domain of those wayfarers who knew that
+time is inseparable from space and that every place-moment demands close attention, lest
+you miss your opportunity. It's not that you can't plan, but that the time in the plan
+doesn't appear flat, dead, inert. Instead, in the "meantime," you wait with your ear to
+the ground for patterns of vibration that will never repeat themselves. Faced with
+flatness, you look for an opening. When it comes, you take it, and you don't look back."
+
+- "You can make the same mistake in the opposite direction, forgetting that the future
+will contain many such moments of doubt—or even neglecting to notice when you're in one."
+
+- "The past would crush you with tradition, and the future would crush you with
+determinism. Hence the importance and fragility of the "gap" (another term for "non-time")
+in the toc: true title of Arendt's preface, "The Gap between Past and Future." To live in
+the gap between past and future is quite simply the human condition, even if culturally
+dominant and politically convenient views of time, history, and the future obscure it from
+us. Looking mournfully to the future in which something new can never happen, we can't see
+ourselves standing in the gap, the only place where anything new is capable of happening.
+It makes me wonder if one meaning of "having time" is to halve time—to make a cut in
+chronos and hold the past and the future apart as much as hope will allow.[*5] — EVERY
+PIECE OF writing is a time capsule. It assembles fragments of its own world and sends them
+onward to a reader who exists in a different one, not just in space but also in time. Even
+writing privately in a journal presupposes a future self who will be reading it—and a
+future at all. In the case of this book, I cannot know what has happened between the time
+I am writing this and the time in which you are encountering it. But I can tell you that I
+am living in a moment of doubt. Perhaps you are, too. That evening when I saw the
+indistinguishable figure, I had been headed to the place where the road ends, a designated
+"natural area" called Raab's Lagoon. There, after the pavement turns to grass, you pass
+under alder and fir trees and come to a bench dedicated to a man who died in 2016. If you
+keep going, the pathway juts out into the water, part of an artificial barrier between the
+waters of Quartermaster Harbor and the smaller lagoon. Across a small breach through which
+the harbor water flows, the barrier continues on until it hits the other side of the
+lagoon. The first time I visited, the water in the breach didn't seem to be moving in any
+particular direction. It was high tide, though I didn't know that at the time; having just
+arrived, I thought the area always looked like that. Over the course of a few weeks, I
+inevitably became familiar with the tides, because Quartermaster Harbor was right outside
+the door of my room. When the tide was high, you could hear the water plopping and the
+plastic canoe docks banging against the wooden posts, something I started to call "the
+song of the dock." When the tide was lower, white-winged scoters, migratory diving ducks
+with a surreal flourish of a white feather under their eyes, would appear in loose flocks
+and dive for the mussels at the bottom. When the tide was all the way out, the mussel
+shells were maximally revealed, and both people"
+
+- "The mind always wants to categorize and compare,"
+
+- "A belief may be comforting. Only through your own experience, however, does it become
+liberating."
+
+- "So the single most vital step on your journey toward enlightenment is this: learn to
+disidentify from your mind. Every time you create a gap in the stream of mind, the light
+of your consciousness grows stronger."
+
+- "Emotion arises at the place where mind and body meet."
+
+- "If you really want to know your mind, the body will always give you a truthful
+reflection, so look at the emotion or rather feel it in your body. If there is an apparent
+conflict between them, the thought will be the lie, the emotion will be the truth."
+
+- "Even when the sky is heavily overcast, the sun hasn't disappeared. It's still there on
+the other side of the clouds."
+
+- "All cravings are the mind seeking salvation or fulfillment in external things and in
+the future as a substitute for the joy of Being."
+
+- "Pain is inevitable as long as you are identified with your mind, which is to say as
+long as you are unconscious, spiritually speaking."
+
+- "The pain that you create now is always some form of nonacceptance, some form of
+unconscious resistance to what is."
+
+- "In other words, the more you are identified with your mind, the more you suffer."
+
+- "Yes, we need the mind as well as time to function in this world, but there comes a
+point where they take over our lives, and this is where dysfunction, pain, and sorrow set
+in."
+
+- "The accumulation of time in the collective and individual human mind also holds a vast
+amount of residual pain from the past."
+
+- "Always say "yes" to the present moment. What could be more futile, more insane, than to
+create inner resistance to something that already"
+
+- "What could be more futile, more insane, than to create inner resistance to something
+that already is?"
+
+- "By watching the mechanics of the mind, you step out of its resistance patterns, and you
+can then allow the present moment to be."
+
+- "Accept then act. Whatever the present moment contains, accept it as if you had chosen
+it. Always work with it, not against it. Make it your friend and ally, not your enemy.
+This will miraculously transform your whole life."
+
+- "Pain can only feed on pain. Pain cannot feed on joy. It finds it quite indigestible."
+
+- "Once the pain-body has taken you over, you want more pain. You become a victim or a
+perpetrator. You want to inflict pain, or you want to suffer pain, or both. There isn't
+really much difference between the two."
+
 - "Where there is anger, there is always pain underneath."
 
 - "your own light will quickly grow stronger. When a log that has only just started to
@@ -195,182 +409,4 @@ thousand things," as Lao Tse calls the manifested world, space becomes more and 
 So world and space arise simultaneously."
 
 - "If there were no illusion, there would be no enlightenment."
-
-- "You see time as the means to salvation, whereas in truth it is the greatest obstacle to
-salvation."
-
-- "The positive already contains within itself the as yet unmanifested negative. Both are
-in fact different aspects of the same dysfunction."
-
-- "The reason why the romantic love relationship is such an intense and universally
-sought-after experience is that it seems to offer liberation from a deep-seated state of
-fear, need, lack, and incompleteness that is part of the human condition in its unredeemed
-and unenlightened state."
-
-- "Every addiction starts with pain and ends with pain."
-
-- "To disidentify from thinking is to be the silent watcher of your thoughts and behavior,
-especially the repetitive patterns of your mind and the roles played by the ego."
-
-- "The bond that connects you with that person is the same bond that connects you with the
-person sitting next to you on a bus, or with a bird, a tree, a flower. Only the degree of
-intensity with which it is felt differs."
-
-- "when you know there is disharmony and you hold that "knowing," through your knowing a
-new factor has come in, and the disharmony cannot remain unchanged."
-
-- "You cannot transform yourself, and you certainly cannot transform your partner or
-anybody else. All you can do is create a space for transformation to happen, for grace and
-love to enter."
-
-- "Judgment is either to confuse someone's unconscious behavior with who they are or to
-project your own unconsciousness onto another person and mistake that for who they are."
-
-- "It is not easy to live with an enlightened person, or rather it is so easy that the ego
-finds it extremely threatening."
-
-- "As a general rule, the major obstacle for men tends to be the thinking mind, and the
-major obstacle for women the pain-body, although in certain individual cases the opposite
-may be true, and in others the two factors may be equal."
-
-- "if you are trapped in a nightmare you will probably be more strongly motivated to
-awaken than someone who is just caught in the ups and downs of an ordinary dream."
-
-- "A victim identity is the belief that the past is more powerful than the present, which
-is the opposite of the truth."
-
-- "In Being, male and female are one. Your form may continue to have certain needs, but
-Being has none. It is already complete and whole. If those needs are met, that is
-beautiful, but whether or not they are met makes no difference to your deep inner state.
-So it is perfectly possible for an enlightened person, if the need for the male or female
-polarity is not met, to feel a sense of lack or incompleteness on the outer level of his
-or her being, yet at the same time be totally complete, fulfilled, and at peace within.
-In"
-
-- "Acute unhappiness can be a great awakener."
-
-- "Happiness depends on conditions being perceived as positive; inner peace does not."
-
-- "For example, when a loved one has just died, or you feel your own death approaching,
-you cannot be happy. It is impossible. But you can be at peace. There may be sadness and
-tears, but provided that you have relinquished resistance, underneath the sadness you will
-feel a deep serenity, a stillness, a sacred presence. This is the emanation of Being, this
-is inner peace, the good that has no opposite."
-
-- "Accept whatever comes to you woven in the pattern of your destiny, for what could more
-aptly fit your needs?"
-
-- "You cannot have an argument with a fully conscious person."
-
-- "No one who is at one with himself can even conceive of conflict,"
-
-- "Growth is usually considered positive, but nothing can grow forever."
-
-- "The cyclical nature of the universe is closely linked with the impermanence of all
-things and situations."
-
-- "The happiness that is derived from some secondary source is never very deep."
-
-- "Have you ever seen an unhappy flower or a stressed oak tree? Have you come across a
-depressed dolphin, a frog that has a problem with self-esteem, a cat that cannot relax, or
-a bird that carries hatred and resentment? The only animals that may occasionally
-experience something akin to negativity or show signs of neurotic behavior are those that
-live in close contact with humans and so link into the human mind and its insanity."
-
-- "When you have reached a certain degree of presence, you don't need negativity anymore
-to tell you what is needed in your life situation. But as long as negativity is there, use
-it. Use it as a kind of signal that reminds you to be more present."
-
-- "Even the slightest irritation is significant and needs to be acknowledged and looked
-at; otherwise, there will be a cumulative build-up of unobserved reactions."
-
-- "As an alternative to dropping a negative reaction, you can make it disappear by
-imagining yourself becoming transparent to the external cause of the reaction."
-
-- "When you accept what is, every piece of meat every moment is the best. That is
-enlightenment."
-
-- "You don't resist change by mentally clinging to any situation. Your inner peace does
-not depend on it. You abide in Being unchanging, timeless, deathless and you are no longer
-dependent for fulfillment or happiness on the outer world of constantly fluctuating forms.
-You can enjoy them, play with them, create new forms, appreciate the beauty of it all. But
-there will be no need to attach yourself to any of it."
-
-- "Compassion is the awareness of a deep bond between yourself and all creatures."
-
-- "Surrender is a purely inner phenomenon. It does not mean that on the outer level you
-cannot take action and change the situation."
-
-- "If you find your life situation unsatisfactory or even intolerable, it is only by
-surrendering first that you can break the unconscious resistance pattern that perpetuates
-that situation."
-
-- "Surrender is perfectly compatible with taking action, initiating change or achieving
-goals. But in the surrendered state a totally different energy, a different quality, flows
-into your doing."
-
-- "Look at the lilies, how they grow; they neither toil nor spin."
-
-- "Any action you take may not bear fruit immediately. Until it does do not resist what
-is. If there is no action you can take, and you cannot remove yourself from the situation
-either, then use the situation to make you go more deeply into surrender, more deeply into
-the Now, more deeply into Being. When you enter this timeless dimension of the present,
-change often comes about in strange ways without the need for a great deal of doing on
-your part. Life becomes helpful and cooperative."
-
-- "In Taoism, there is a term called wu wei, which is usually translated as "actionless
-activity" or "sitting quietly doing nothing." In ancient China, this was regarded as one
-of the highest achievements or virtues. It is radically different from inactivity in the
-ordinary state of consciousness, or rather unconsciousness, which stems from fear,
-inertia, or indecision. The real "doing nothing" implies inner nonresistance and intense
-alertness. On the other hand, if action is required, you will no longer react from your
-conditioned mind, but you will respond to the situation out of your conscious presence. In
-that state, your mind is free of concepts, including the concept of nonviolence. So who
-can predict what you will do?"
-
-- "Withdraw time from the illness. Do not give it any past or future. Let it force you
-into intense present-moment awareness and see what happens."
-
-- "The condition that is labeled "illness" has nothing to do with who you truly are."
-
-- "If you cannot accept what is outside, then accept what is inside. If you cannot accept
-the external condition, accept the internal condition. This means: Do not resist the pain.
-Allow it to be there. Surrender to the grief, despair, fear, loneliness, or whatever form
-the suffering takes. Witness it without labeling it mentally. Embrace it. Then see how the
-miracle of surrender transmutes deep suffering into deep peace."
-
-- "Suffering does not diminish in intensity when you make it unconscious."
-
-- "The mind, conditioned as it is by the past, always seeks to re- create what it knows
-and is familiar with. Even if it is painful, at least it is familiar. The mind always
-adheres to the known. The unknown is dangerous because it has no control over it. Thats
-why the mind dislikes and ignores the present moment. Present-moment awareness creates a
-gap not only in the stream of mind but also in the past-future continuum. Nothing truly
-new and creative can come into this world except through that gap, that clear space of
-infinite possibility."
-
-- "What comes to mind when we ask "Who am I?" consists of those things we have been paying
-attention to over the years. The same goes for our impressions of other people. The
-reality that appears to us is not so much what's out there as it is those aspects of the
-world we have focused on."
-
-- "Before we can develop attentional stability, we first need to learn to relax."
-
-- "We are all aware of the way the body heals itself. Physicians don't heal abrasions, and
-surgeons don't mend bone fractures. Instead, they do whatever they can to allow the body
-to heal itself—by keeping the wound clean, setting the broken bone, and so on. These are
-so common that it's easy to lose sight of the extraordinary nature of the body's own
-healing power."
-
-- "When a stream is polluted, one may try to add antidotes to the toxins in the water,
-hoping such additives will neutralize the damage. But the more straightforward and
-sensible approach is simply to stop the flow of contamination into the stream. When this
-is done, over time the flow of the water through soil, stones, and vegetation can purify
-the stream completely."
-
-- "Genuine happiness is a symptom of a balanced, healthy mind, just as a sense of physical
-well-being is a sign of a healthy body."
-
-- "We do not exist independently from others, so our well-being cannot arise independently
-of others either."
 

@@ -1,130 +1,201 @@
-<!-- Page 53 of 53  ·  quotes 5201–5205 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 53 of 54  ·  quotes 5201–5300 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "So you have to promise me, Quentin. Let’s never get like this, with these stupid hobbies nobody cares about. Just doing pointless things all day and hating each other and waiting to die.” “Well, you drive a hard bargain,” he said. “But okay. I promise.” “I’m serious, Quentin. It’s not going to be easy. It’s going to be so much harder than you think. They don’t even know, Quentin. They think they’re happy. That’s the worst part."
+
+- "Sometimes I wonder if man was really meant to discover magic,” Fogg said expansively. “It doesn’t really make sense. It’s a little too perfect, don’t you think? If there’s a single lesson that life teaches us, it’s that wishing doesn’t make it so. Words and thoughts don’t change anything. Language and reality are kept strictly apart—reality is tough, unyielding stuff, and it doesn’t care what you think or feel or say about it. Or it shouldn’t. You deal with it, and you get on with your life. “Little children don’t know that. Magical thinking: that’s what Freud called it. Once we learn otherwise we cease to be children. The separation of word and thing is the essential fact on which our adult lives are founded. “But somewhere in the heat of magic that boundary between word and thing ruptures. It cracks, and the one flows back into the other, and the two melt together and fuse. Language gets tangled up with the world it describes. “I sometimes feel as though we’ve stumbled on a flaw in the system, don’t you? A short circuit? A category error? A strange loop? Is it possible that magic is knowledge that would be better off forsworn? Tell me this: Can a man who can cast a spell ever really grow up?"
+
+- "I think you’re magicians because you’re unhappy. A magician is strong because he feels pain. He feels the difference between what the world is and what he would make of it. Or what did you think that stuff in your chest was? A magician is strong because he hurts more than others. His wound is his strength. “Most people carry that pain around inside them their whole lives, until they kill the pain by other means, or until it kills them. But you, my friends, you found another way: a way to use the pain. To burn it as fuel, for light and warmth. You have learned to break the world that has tried to break you."
+
+- "Or you know what it is? You hate yourself so much, you’ll hurt anybody who loves you. That’s it, isn’t it? Just to get even with them for loving you. I never saw that before now."
+
+- "(“any education that neglects the experience of delight will be a dry and tasteless diet with no nourishment in it”)."
+
+- "all, as Philip says, free and democratic reading is a vital part of the Republic of Heaven, and delight always an aspect of storytelling."
+
+- "I take it that art, literature, children’s literature, do not exist in an ivory tower; I take it that we’re inextricably part of the world, the whole world; and that we have several kinds of responsibility that follow from that."
+
+- "I’m just going to say that we should all insist that we’re properly paid for what we do. We should sell our work for as much as we can decently get for it, and we shouldn’t be embarrassed about it. Some tender and sentimental people—especially young people—are rather shocked when I tell them that I write books to make money, and I want to make a lot, if I can."
+
+- "Here’s a useful piece of advice to young writers: cultivate a reputation—which need have no basis in reality—but cultivate a reputation of being very fond of money. If the people you have to deal with think that you like the folding stuff a great deal, they’ll think twice before they offer you very small amounts of it. What’s more, by expecting to get paid properly for the work we do, we’re helping our fellow writers in their subsequent dealings with schools, or festivals, or prisons, or whatever. I feel not a flicker of shame about declaring that I want as much money for my work as I can get. But, of course, what that money is buying, what it’s for, is security, and space, and peace and quiet, and time."
+
+- "We should try always to use language to illuminate, reveal and clarify rather than obscure, mislead and conceal. The language should be safe in our hands—safer than it is in those of politicians, for example; at the least, people should be able to say that we haven’t left it any poorer, or clumsier, or less precise."
+
+- "When it comes to imaginative language, to rich and inventive imagery, we have to beware. But what we have to beware of is too much caution. We must never say to ourselves: “That’s a good image—very clever; too clever for this book, though—save it up for something important."
+
+- "Stories should earn their own tears and not pilfer them from elsewhere."
+
+- "When it comes to the sheer craft of depicting things, describing them, saying what happened, the film director and playwright David Mamet said something very interesting. He said that the basic storytelling question is: “Where do I put the camera?"
+
+- "A storyteller should be invisible, as far as I’m concerned; and the best way to make sure of that is to make the story itself so interesting that the teller just…disappears."
+
+- "A culture that never encounters any others becomes first inward-looking, and then stagnant, and then rotten. We are responsible—there’s that word again—for bringing fresh streams of story into our own cultures from all over the world, and welcoming experience from every quarter, and offering our own experience in return."
+
+- "Some commentators—not very well-informed ones, but they have quite loud voices—say that children’s books shouldn’t deal with matters like sex and drugs, with violence, or homosexuality, or abortion, or child abuse. Taboos do change over time: only a couple of generations ago, it was rare to find a children’s book that confronted divorce. Against that, I’ve heard it said that children should be able to find in a children’s book anything that they might realistically encounter in life. Children do know about these things: they talk about them, they ask questions about them, they meet some of them, sometimes, at home; shouldn’t they be able to read about them in stories?"
+
+- "to be said for it, but we should remember that tragedy is uplifting too, if it shows the human spirit at its finest."
+
+- "The true aim of writing,” said Samuel Johnson, “is to enable the reader better to enjoy life, or better to endure it.” Children need both those kinds of help, just as grown-ups do."
+
+- "Easy cynicism is no more truthful than easy optimism, though it seems to be so to the young."
+
+- "The last responsibility I want to look at is one that every storyteller has to acknowledge, and it’s a responsibility that trumps every other. It’s a responsibility to the story itself. I first became conscious of this when I noticed that I’d developed the habit of hunching my shoulders to protect my work from prying eyes. There are various equivalents of the hunched shoulder and the encircling arm: if we’re working on the computer, for example, we tend to keep a lot of empty space at the foot of the piece, so that if anyone comes into the room we can immediately press that key that takes us to the end of the file, and show nothing but a blank screen. We’re protecting it. There’s something fragile there, something fugitive, which shows itself only to us, because it trusts us to maintain it in this half-resolved, half-unformed condition without exposing it to the harsh light of someone else’s scrutiny, because a stranger’s gaze would either make it flee altogether or fix it for good in a state that might not be what it wanted to become."
+
+- "no man can serve two masters."
+
+- "have to keep the story’s counsel: there are secrets between us, and it would be the grossest breach of confidence to give them away."
+
+- "To become so grand that you refuse to let your work be edited—and we can all think of a few writers who got to that point—is to be a bad servant, not a good one."
+
+- "Art, whatever kind of art it is, is like the mysterious music described in the words of the greatest writer of all, the “sounds and sweet airs, that give delight and hurt not.” To bear the responsibility of giving delight and hurting not is one of the greatest privileges a human being can have, and I ask nothing more than the chance to go on being responsible for it till the end of my days."
+
+- "The world of books is not a collection of random units of self-interest, but a living ecology. Or it used to be, and should be still. Whenever we can see something going on in any field where we can make a difference on the side of virtue, we have a responsibility to make it."
+
+- "The dao of the heavens is something everyone can prove and everyone can confirm. The heavens is not dao. Dao is formed by the will of the heavens and earth. Everyone can have this will! “Just like the fish that lives in the river. It doesn’t violate the heavens or provoke yin and yang, it lives peacefully and free! This river is the heavens, the world. The fish is all living things that exist inside the world! “However, the net pulls the fish out from the river. This net is dao, the laws of the world! No matter where you are, you won’t be able to escape dao! “This net will one day pull the fish out from the river. Once out of the river, the fish will face the laws of the world. Either it obeys and enters the reincarnation cycle or it must revolt! Break the net and revolt! “Cultivators are like the struggling fish. The more they fiercely the struggle, the more they defy dao! “This is dao! Whether it is life and death or karma, all of it is formed by the will of dao! I’m karma!"
+
+- "People have spirit, so they can comprehend dao. Beasts have souls, so they can also be enlightened. Everything in this world that has a spirit or soul can comprehend dao! “This planet has a soul and can also be enlightened!"
+
+- "For the first time, he personally felt that the passage of time was like a ruthless river that washed away all his good memories of the past..."
+
+- "For us cultivators, one hundred years, one thousand years pass in the blink of an eye. Most relatives will have passed away, and those that remain feel alienated… Once you step on the path of cultivation, you are doomed to a life of hardship. “When you’re walking down the path of cultivation, when you turn your head you can’t see where you came from, and when you look at the path ahead, it is shrouded in fog."
+
+- "Cultivation, cultivation, mortals yearn to become immortal and enter the cultivation world. Yet they don’t know how many cultivators are envious of a mortal’s bland life. “How many more died in foreign places like Sun Tai, their ashes scattering with the wind, unable to return home… However, many parents and relatives weren’t able to meet their children even at their dying moment. If one had the chose again, would they still take that step to become a cultivator…"
+
+- "The flame moved with the wind just like how the wind makes the plants move, which makes it look like the mountain is moving, but in reality…” Wang Lin pondered. “In reality, the mountain didn’t move, the flame didn’t move, what moved was the wind! The wind only blew the surface, yet the mountain seemed to move, but in reality, it was my heart that moved! My heart moved, so the mountain moved!"
+
+- "The apricot tree blooms white flowers. The daughter won’t be taken by a daoist family. Last year, Lang the Second went up the mountain, and a year later, Lang the First was a bag of bones. The cry of the daughter accompanies the dead but takes the coffin as family… The apricot tree blooms white flowers and children shouldn’t be taken by daoists. If asked about my age, I still haven’t found my dao. The dog barks, the cat scratches, scaring the daoist back home."
+
+- "We are all antennae for creative thought. Some transmissions come on strong, others are more faint. If your antenna isn’t sensitively tuned, you’re likely to lose the data in the noise. Particularly since the signals coming through are often more subtle than the content we collect through sensory awareness. They are energetic more than tactile, intuitively perceived more than consciously recorded."
+
+- "The world is the doer and we are the witness."
+
+- "Changing the instrument is not always the easiest way to change the sound of the music, but it can be the most powerful. No matter what tools you use to create, the true instrument is you."
+
+- "What we create allows us to share glimpses of an inner landscape, one that is beyond our understanding. Art is our portal to the unseen world."
+
+- "When we take notice of the cycles of the planet, and choose to live in accordance with its seasons, something remarkable happens. We become connected. We begin to see ourselves as part of a greater whole that is constantly regenerating itself. And we may then tap into this all-powerful propagating force and ride its creative wave."
+
+- "Living life as an artist is a practice. You are either engaging in the practice or you’re not."
+
+- "You know, it’s funny. When you have the flu you feel like you are going to die, but when you are dying, most of the time you feel just fine."
+
+- "The core premise of economic theory is that people choose by optimizing."
+
+- "Economists get in trouble when they make a highly specific prediction that depends explicitly on everyone being economically sophisticated."
+
+- "Just as all that appears imperishable tends toward its own destruction, those moments that at the time seem the most fleeting recreate themselves - not only in my memory (which in the final accounting loses nothing) but in the throbbing of my heart and the prickling of my hair, making themselves new just as our Commonwealth reconstitutes itself each morning in the shrill tones of its own clarions."
+
+- "Certain mystes aver that the real world has been constructed by the human mind, since our ways are governed by the artificial categories into which we place essentially undifferentiated things, things weaker than our words for them."
+
+- "We believe that we invent symbols. The truth is that they invent us; we are their creatures, shaped by their hard, defining edges. When soldiers take their oath they are given a coin, an asimi stamped with the profile of the Autarch. Their acceptance of that coin is their acceptance of the special duties and burdens of military life - they are soldiers from that moment, though they may know nothing of the management of arms. I did not know that then, but it is a profound mistake to believe that we must know of such things to be influenced by them, and in fact to believe so is to believe in the most debased and superstitious kind of magic. The would-be sorcerer alone has faith in the efficacy of pure knowledge; rational people know that things act of themselves or not at all."
+
+- "Before they come too near to being men, boys often have an almost female insight."
+
+- "I felt that it could have and should have changed everything, but it was only the episode of a few months, and when it was over and he was gone, it was only another winter passed and the"
+
+- "There are encounters that change nothing. Urth turns her aged face to the sun and he beams upon her snows; they scintillate and coruscate until each little point of ice hanging from the swelling sides of the towers seems the Claw of the Conciliator, the most precious of gems. Then everyone except the wisest believes that the snow must melt and give way to a protracted summer beyond summer. Nothing of the sort occurs. The paradise endures for a watch or two, then shadows blue as watered milk lengthen on the snow, which shifts and dances under the spur of an east wind. Night comes, and all is at it was."
+
+- "love him, so another may love him. You love him, so you may love another.""
+
+- "You love him, so another may love him. You love him, so you may love another.""
 
 - "Of the trail of ink there is no end"
+
 - "One can't found a novel theology on Nothing, and nothing is so secure a foundation as a contradiction. Look at the great successes of the past - they say their deities are the masters of all the universes, and yet that they require grandmothers to defend them, as if they were children frightened by poultry. Or that the authority that punishes no one while there exists a chance for reformation will punish everyone when there is no possibility anyone will become the better for it.""
+
 - "That's so, I'm sure. When you're brought up in the guild it seems like the center of the world. But when you're a little older - this is what I've found myself, and I know I can rely on you not to tell tales - something pops in your head, and you discover it isn't the linchpin of this universe after all, only a well-paid, unpopular business you happen to have fallen into."
+
 - "The circumstances of one’s birth are irrelevant. It is what you do with the gift of life that determines who you are."
+
 - "Everyone has a past. But for some, their past is a silent abyss filled with those who drowned in it"
+
 - She said you and I should be like a river. All of them are like streams and tributarities they made join us and add their water into us. But just because they do the river doesn’t become the tributary or lose itself. That we should be like the river that just keeps flowing
+
 - How you do anything is how you do everything.
+
 - People always say that the second year of middle school is a rebellious age. Everyone more-or-less goes through that phase, but only some people show it to the world to see, while others tuck it deep inside their hearts. This was also the difference between obvious trouble and secret trouble.
+
 - People are always like that, when they have doubts towards a certain topic in their hearts, they bring many unrelated things together to forcibly form a conclusion. Just like when suspecting someone stole their money, they will link many events onto this person’s head, and the more they look at that person the more they think they are looking at a criminal
+
 - Fate was a mystery of mysteries, but no cultivator would belittle fate and destiny. If luck was enough to defy the natural order, a small useless being could eventually become one of the most almighty figures in the world.
+
 - When Heaven sends calamities, there is hope of weathering them; when man brings them upon himself, there is no hope of escape!
+
 - The road of cultivation was like an uphill road—if you were to stop moving forward, you would fall behind.
+
 - Little friend Song Shuhang was after all a good person, and like every good person, he had the innate talent to comfort young girls. After he had comforted the heartbroken girl, he would be conveniently added to the friend zone.
+
 - "Also, let me give you an advice… do not worry about tomorrow, for tomorrow will worry about itself. Each day has enough trouble of its own."
+
 - We are not children anymore. Of course we need to be responsible for every action we make.'
+
 - She also wished she could calm down. But if willpower alone was enough to solve everything, there wouldn't be so many accidents in the world
+
 - Sometimes, people would dream about things they strongly yearned for in real life, and their wishes would be fulfilled within the dream
+
 - What's wrong with being abnormal? Sometimes, one can give their best only through unconventional means. Being a lunatic is sometimes the only way one has to survive
+
 - Clench your teeth and resist, treating the pain as sweet torture. As long as you don't die, you'll feel wonderful!
+
 - If ifs and buts were candy and nuts, we’d all have a merry Christmas…
+
 - Celestial bodies move in circle day and night without rest, over and over again. A virtuous man should follow suit, energetically and incessantly striving for self-improvement.
+
 - If one looked at things from another perspective, they could say that modern people had a certain tendency to seek death embedded in their DNA.
+
 - There are no trash skills in this world, only trash users
+
 - if there was fate between them, people would meet even if they were thousands of miles apart. And if there wasn’t fate between them, they wouldn’t meet no matter how close they were
+
 - There are many different kinds of sword intent or saber intent. Even the personality of each cultivator being different from another can bring about a new type of sword intent, and the same goes for saber intent,” Ye Si explained. “For example, sword intent. Some people comprehend it through heaven and earth, grasping a sword intent as vast as the sky; others comprehend it by meditating by the sea, grasping a sword intent as vast as the sea; others are born as soldiers, which allows them to grasp a deadly sword intent; others are born as kings, and it is then not strange for them to grasp a sword intent with a king’s resolve. The only limit is your imagination. Your sword or saber intent will be as big as your resolve. Just as there is not a single pair of same leaves in the world, there is no exact same saber or sword intent.”
+
 - It isn’t that we only say things part by part, but we choose to show respect to other people and speak politely. This is the art of language. Moreover, our scholarly faction has always advocated that good medicine tastes bitter, while good words jars on the ears. When necessary, we also speak with our hearts and minds, speaking of things that are unpleasant to the ear
+
 - Sometimes, when a person found a great opportunity to ‘seek death’, they could not help but want to try it out… For example, when people saw a small hole in a wall, they couldn’t help going up to it and taking a look; some would even get the urge to insert their fingers into the hole. This was but a simple truth. Furthermore, if one resisted that urge to seek death, although they could indeed possibly avoid it at that time, there would be a sense of regret that would emanate from their heart. After all, if one were not to seek death, they would never be able to find out what happened in the hidden plotlines that would occur when one ‘sought death’, risking to forever lose out on the fun that they might contain.
+
 - If you don’t sweat now, you will bleed in the future and lose your life
+
 - Not putting your heart and mind into sword practice makes one merely a slave of the sword. Only by putting your heart and mind into training will you become the master of the sword.
+
 - One skill to eat your fill; one skill to kill. All you need is one skill without the frills
+
 - “King Calm Sea once told me”—Fairy Meng looked at Meng Chuan and continued—”that cultivation requires one to follow one’s intuition and follow what one likes the most before forging forward. You will go further and further. When you look back after a few decades, you would’ve far surpassed your former self. I’ll share this saying with you as well. Follow your heart and proceed down what you like the most.”
+
 - “Piling up small quantities of earth daily, you can create a mountain with time. The mountain makes wind possible, which in turn brings in the rain. Channeling small streams and connecting them, you can create a lake—which in turn will bring about aquatic life. Continuously doing good deeds for people and being kind to them—no matter how small each deed may be—you’ll have cultivated the heart of a saint. Take a few steps every day and you’ll finish a journey of a thousand miles. The ocean is but an amalgamation of rivers. The mythical unicorn can’t reach heaven in one leap. An old horse that does not cease running will bring you home. If you give up, you won’t even break a piece of rotten wood. Persevering will allow one to carve gold into shape. Earthworms have no bones and claws but they can go up and down the earth. Hermit crabs—with their six legs and two pincers—can’t even make their own homes without taking over holes already made by snakes and eels.”
+
 - Once their skills reach a certain point, they can reach the Dao Seeking state. Every time they seek answers from their inner self, their heart and mind will undergo a transformation. Their souls will also undergo a transformation,” said the long-haired man. “However, it’s too difficult for people to attain the Dao through extracurricular skills. It’s too rare.
+
 - A beard well lathered is half shaved
+
 - While in life, we shared the same coverlet, and in death, we shall share the same cave.
+
 - The grief after seeing companions die, the joy from killing a demon monarch successfully, the helplessness after seeing many ordinary soldiers die in battle... The joy of marriage, the excitement of having a child, the mental anguish after being stuck at a cultivation bottleneck for a decade or two, and the relief after an epiphany that resulted in a breakthrough... All these life experiences could strengthen one’s heart and will. The heart was the material, and the will was a weapon. Only materials of sufficient quality could be used to forge a divine armament. If one always cultivated peacefully and had very few life experiences, they wouldn’t be able to strengthen their will very much
+
 - The ants will fly, just like they will fall. However, they are better at climbing, and they are good at letting their fellow ants climb upon them. They are not afraid of sacrifice and as they pile upon one another, as long as there are enough of them, they shall eventually pile up high enough to touch the sky
+
 - Eagles should not fear ants since they are simply black dots to the former. Ants should not fear eagles either because they are not even worth a bite to the eagle. The world of the ants had never seen or heard of a creature as powerful as the eagle, hence the latter remained unfathomable to the former. Nevertheless, over the span of many centuries and millennia, a few very distinguished ants among the crowd would, out of enigmatic reasons, decide to strip their gaze from the rotten leaves and just for once, gaze up at the crystal blue sky…and then, the world was never the same to them. The fear comes from seeing.
+
 - As the famous joke went, in the countrywomen’s imagination, the empress is always baking meat pies as big as an ocean and the imperial concubines peeling onions as high as a mountain
+
 - “In this last phase of my life I am just blindly following my instincts, and beginning to do some presumptuous things. Possibly… it’s the Haotian that inspires me to do so.”
+
 - In this world, and in that cultivator’s world, many people found themselves untalented and unintelligent. Unable to fulfill their dreams, they were disappointed and sad, even refusing to admit it. Many of them immersed themselves in the illusion of success and confined themselves to their inner cage where they kept struggling and hoping to return to the past.
+
 - Life is a stubborn man—it would take more courage to persuade him to give up than to convince him to hold on.
+
 - When mountains stand tall and rivers run wild, there can be countless beautiful scenes in this world. But if there isn’t the Old Brush to draw them, then they’ll all be forgotten sooner or later
+
 - “To think about the past makes me feel miserable and like crying. The pain penetrates my heart and mind. However, I could not do anything. I have yet to succeed but have already become more plaintive. However, I could not do anything. I do not know what can I write down, but feel sad… Ning can only bow.”
+
 - “Indeed, one can never underestimate the great psyche power of greedy officers when they were afraid of death.”
+
 - Revenge is an integrated project, especially when you were only playing a small role in the whole project. Also, when your targets for revenge were all those bigwigs in the empire, this project would become even more complicated than one could imagine
+
 - The rain won’t stop especially when one expects it to, and people won’t normally arrive when you’re waiting for them
+
 - The heaven and earth were a large cage trapping men. The heart is a cage for the body. Upon breaking the cage of heart, the cage of the world will be broken
+
 - Books are used to record our thoughts. Once our thoughts leave our minds and are inscribed on paper, it is no longer new, but an old object. As such, every book is an old book
+
 - Now that you are part of the Academy, remember that the Academy does not respect words nor paper. We do not place books on an altar and worship them. Books are books. They are merely tools and not gods. Only our thoughts are new. This place is called The Old Library to remind you of this.
+
 - While he had been disappointed time and time again, the best part about a dream was that it was difficult to attain but would keep reeling you in so that you’d keep trying. And on occasion, it would reveal just a little something to tempt you, seducing you, saying, “Come and catch me if you can!”
-- “I had been engaged in penance for 17 consecutive days since I tried to study cultivation in the old library. Unluckily, however, I failed to learn any words by heart, and had no choice but to see them flee. Once, I was aware and also entered into some dark and sweet dreams, but they would always disappear in the end. If these characters on the paper are illusory, why can I see them? If they are real, why can’t I memorize them? If they exist between reality and illusion, is the ink which presents them real or illusory, and is the paper which shows them real or illusory? The writings constitute an objective reality, so does the paper. However, when this paper and writing reflects the spring daylight into your eyes which might be big or small, and once it is interpreted by your brain which might be smart or dumb…I’m guessing dumb… that’s when it all becomes a fabricated reality. Spring light being reflected on paper already constitutes an interpretation, seeing it in your eyes is a reinterpretation, and your attempt to understand it is yet another reinterpretation. Interpretation often leads to misunderstanding. The more you interpret something, the more it is likely to deviate from its original form. If you are still unable to understand it by now, as a genius I am obliged to help you out with the most vulgar example I can come up with: the objective reality of something resembles a beautiful naked woman. We can only accept her existence, and she doesn’t need our interpretation. Therefore, as a completely unclothed woman, her entire being constitutes an objective reality, regardless of the size of her bosom, the shape of her ass or the appearance of her pubic hair. You cannot change her. When you look at her with desire, thinking about her beauty and wanting to have sex with her, these thoughts become layers of clothing. Each time you attempt to interpret her, you are covering her seductive body with a layer of clothing, until you are ultimately unable to fathom what she actually looked like at the very beginning, and how big her boobs were. How to resolve this problem? It’s very simple. Remember the image of her at the very instant in which she was completely naked, and forget about whether she is the saintess of the Great River Kingdom or Ye Hongyu from the West-Hill Divine Palace. Don’t think, don’t ask, don’t offer her flowers or play a melody for her, instead, simply go up there and f*ck her right there and then!”
-- Being intentionally unintentional is a form of psyche
-- Most of the time, the idea that man could conquer nature was an ideal wish that could inspire mankind to move forward at the spiritual level. Yet in specific cases, not all the things could be completed perfectly relying merely on perseverance.
-- The movement of the clouds and stars seems to be random, but is actually not. In your life, sometimes you find it ridiculous to predict destiny. But as time goes by, it will eventually be found that what is ridiculous is not the prediction, but the destiny itself
-- A saying in the world of cultivation went that cultivation was a gift from Haotian which was picked up by a lucky person. It was against the will of Heaven to force an ordinary person without any potential of cultivation to pursue it and such a power was only possessed by god, or just recorded in Classics and passed from mouth to mouth.
-- The knowledge one masters is like a circle. The more you know, the bigger the circle is. Then you will find there is more and more knowledge that you don’t know.
-- On the road of cultivation, after all the trials and tribulations, a broader and wider world now presented itself in front him in comparison with one where he used to live. Fondness, hatred and envy, these emotions on the earthy plains havd become plain to him. Being on the path of cultivation, he was confident that he could go far on the path. Those hidden towers, misty mountains and formidable enemies would eventually become the ornamental landscape to his road. Since this is so, why not calm down and carry on? There was no shortage of beauty, nor the eyes to find beauty. As long as you are level-headed, beauty would come easily.
-- Though cultivators do not deign to contend with common people, you should not indulge yourself overly in this simple life of reading books and enjoying the scenery. After all, how could one achieve his ambition if they were too unambitious?
-- It is said that ‘the fish jumped across the sea’. The sea is indeed wide, but there are always coastal restraints. It can’t contain the aspiration of my generations and the great empire. So why don’t we put our eyes on the higher and wider sky without borders?”
-- There are many things in the world that don’t depend on your ability, but whether you are willing to imagine. If you don’t even dare to imagine and are controlled by self-doubt, then you are a weak person.
-- “Wanting is the crux of the matter. You can achieve anything as long as you want it. A person’s desire, or should we say, ambition, is the most beautiful thing in the world. Being able to persevere in your choice is the right decision. I’ve told you, these trees are like swords stuck into the ground. If you can uproot these trees, they will become swords that can pierce the heavens. A person’s perseverance is also known as his ego and your ego is the sword in your hands.”
-- The Youngest Uncle once said that fate itself is a very cruel guy. If you’re chosen to assume the mission, and then before confirming that you’re qualified, it will do everything possible to break every bone in you and to strip every trace of your flesh and blood, allowing you to suffer the most extreme pain in the world so as to make your volition and temperament tough and eligible enough to be chosen by fate
-- “The most important thing about AI isn’t its technical capabilities or limitations. The most important thing is the investor story and the ensuing mania that has teed up an economical catastrophe that will harm hundreds of millions or even billions of people. AI isn’t going to wake up, become superintelligent and turn you into paperclips - but rich people with AI investor psychosis are almost certainly going to make you much, much poorer.”
-- Often most molehills are actually molehills, few are mountains
-- The more real geniuses you meet, the easier it is for you to think of yourself as a fool
-- “Cultivation is a gift Haotian has given to humans. There has always been only one road. We always insist on going so that we can know whether to go through or not. If you think it’s too long and want to go a shortcut, it may turn out to be an abyss.”
-- Nevertheless, whether humans are pursuing or researching on Talisman Taoism, they have already gone beyond the nature order, which also means that they have gone beyond what is needed to survive. Hence, the true meaning of Talisman Taoism is certainly originated from nature, but it must go higher than nature
-- A talisman that originates from nature yet is higher than nature must first go through several stages: Copying, understanding, inducing, simplifying, purifying, and lastly, charming. Talismans are actually lines and marks that humans have learned and extracted from nature talismans for numerous years
-- Qi of Heaven and Earth has no eyes nor ears, so it will never know what kind of weird thinkings you have on your mind. It will never possibly know that you wish to freeze the raindrops into millions of sharp knives, then how do you let it know what you want
-- I’ve heard from a friend in the past that the Ocean of Qi and Mountain of Snow within a human body is like an instrument. The psyche power is like the air. Only when the air is blown into the instrument, will there be beautiful melody. That’s when Qi of Heaven and Earth can listen and understand
-- No matter being succeeded or failed, they never stopped trying with all effort. Just because of their persistence and trying, the most mysterious gift of Haotian was not taken back and was narrowly not inherited to the present.
-- Cultivators never see the world through eyes
-- I know, the reader’s surname is Heaven, his given name is Earth, and he is illiterate
-- If there is shit in your heart, you will regard everything as shit. If you are obscene, you will be disturbed by just reading seven volumes of sealed books. So they won’t disturb you if you don’t regard them as erotic books in heart
-- “Do you really like reading itself, or reading all the books? Not after a long time I came up with the answer and what I really like is reading itself. Now I am already 102 years old, and perhaps will close my eyes forever some day. But I can never be sure when I will die, then so long as I continue reading, what does it matter if I can’t finish reading them? I can comfort myself that every minute and every second before I die, I have been doing my favorite things. Then I will feel happy and satisfied.”
-- “Everyone will encounter many problems. If you want to solve these problems, one must concentrate on it and use the impulsion from your craziness. But the craziness must not be as heavy as the mountains that compressed on your shoulders; instead, it should grow towards the joy which you are yearning for in the deepest of your heart.”
-- “I used to be crazy about cultivation, yet I forgot the root of this craziness is my passion in it, where there’s no fabricated hope, fabricated disappointment, nor despair. Life is like answering a set of questions, it is full of different type of craziness and passion. If you like something, then just do it. I believe in the end, one will be able to find the answer to a question.”
-- All schools obey the same law, and all the streams will finally flow into the sea. You needn’t care too much about the beginning and the ultimate phase of cultivation, yet you have to pay special attention in the middle part. But you are still a green hand in cultivation, so don’t worry too much about that.
-- “How does the rain flow after falling down? Why does it flow this way? The craftsmen building the pavilion did not know. Perhaps their ancestors only knew the answer to the first question, not the second one. But does it even matter? The first step of learning is always imitation for humans. With more imitations, they would be like the eaves where the essence of the simplest truth will be extracted, namely the undulating line.”
-- “Cultivation focuses on disposition and need people to dare to think and do. In your lifetime, if you don’t believe that you can come to an end, how can you step through those arduous risky peaks on the path of cultivation? The more outstanding a cultivator is, the more self-confident he is. And those best cultivators are bound to be self-confident to an extremely exaggerated state, probably that is narcissism like what you’ve mentioned.”
-- Cultivation pays attention to understanding the laws of Qi of Heaven and Earth, to perceiving how the Primordial Qi flows and how it becomes static.
-- If enlightenment is the perception of the laws of the Qi of Heaven and Earth, then everyone’s enlightenment should be distinctive. Only what you feel is real, and what others teach are fake. Hence, you don’t need to worry. Be slow, and you’ll finally get enlightened
-- Whoever would inevitably give rise to the emotions of anxiety and impatience, seeing that they were only one step away from the peak of the perilous mountain, was always unable to step over. Some days ago, Ning Que really acted calmly and easily. However, he was always looking forward to the coming of that day. Not until hearing those words about enlightenment from Master Huang Yang in the tower did he suddenly realize that expectations, while seeming to be quiet and with merit, were also an anxiety, and that was an obstacle to cultivation.
-- There are many strong and brave people in this world. They will come to many compromises after the first and in the end, it will become a distorted emotional state. It will turn from compromises to active cooperation. They will turn from victims to the people executing punishment. And they will not even understand why this is so.”
-- However, before becoming ashes, people always fought and argued with one another for something they believed in. If one asked "why bother," perhaps they could only lament that such is the harshness of life.
-- Understanding and empathy are so useless. You have to turn these emotions down if you want to stay alive in this dangerous world. I always consider those people as the biggest losers who, once in trouble, would feel lonely and desperate. They only could cry and hurt their own people
-- "Sometimes, I think that death is not what is truly scary. What is scary is the past that weighs down on your back. The past that you do not want people to know about. When you carry the past for too long, they begin to grow on your body and in your heart. There is no way to lighten that burden, and you can only dream of pulling them out of yourself."
-- "Nothing is permanent in this world. If you meet it with indifference and do nothing, perhaps all your troubles that followed the incident would not exist. It was a pity that you were too worried about that person and continued making mistakes and you are now at a stage where these mistakes are irreversible."
-- There were many issues that seemed heavy before a decision was made. However, once the decision was made, the weight bearing down would disappear within seconds
-- "Intelligence is important in the battle. But you shouldn’t be overly reliant on these little bits of information, as everyone living in this world has his own secret. The secret is often hidden in the deepest part of his heart and there may be no one who knows it."
-- “Dare to think. Before your dream comes true, never limit yourself beforehand. Never find any excuses for yourself, or reasons to fail, only so will we have the possibility to make the seemingly distant dream reality.”
-- I am not sure if it's how jaded we all have become that we erected these walls around us, but somehow anime, the cinematography, the colours, the music, all together is able to cut through these walls as if it's shoji screens.
-- “For example, an ordinary man likes to earn money, but if this ordinary man keeps blabbing about money in front of you, you’d be annoyed because you’re not on their level. In terms of cultivation, it’s the same for the expert as well. So, of course, he wouldn’t like us talking about it.”
-- So what if they’re ordinary? Though we only have a mere hundred years to live, it teaches us to cherish the beauty of life and to live to one’s fullest potential with joy and happiness. Your life depends on the way you choose to live it, not based on your identity
-- Life was full of uncertainties. Regardless if it was an ordinary man or a cultivator, they would face the same problem in the end. Perhaps this was what made life so precious.
-- “The so-called law of nature... Once you understand its path and use it the right way, any ordinary man can achieve impossible things.”
-- “Every being works against one another. There’s nothing that’s the strongest nor the weakest. As I said, once we understand the reasoning behind things and can see through the materialistic composition of things, many problems can be solved.”
-- I think sword cultivation has nothing to do with natural talent. A thousand people can hold the sword and have a thousand ways of understanding swords. Ordinary people can hold the sword and point it at an Immortal, too, while Immortals can hold the sword but flee at the last moment. Swordsmanship comes from the heart. Why limit it to just talent?
-- “Water and fire seemingly don’t get along with each other, but at the same time, they do. Fire can melt ice to form water. Water can turn into oxygen and gases that help fire ignite. The two exist together, inseparable. As the saying goes, lone Yin doesn’t last long, lone Yang doesn’t grow.”
-- “Buddhists shouldn’t forget their pure intention. Buddhism shouldn’t be a place to hide sins and wrongdoings. Remember, Buddhism’s all about cause and effect. Naturally, one shouldn’t neglect others’ cause and effect, nor should one force something on another being.”
-- ‘Let the world be the heart of the livelihood of the people; for the sacred teaching and peace for all future generations.’
-- Remember young wolf, never hesitate- in life and in gaming
-- The code must be determined by the individual
-- The bonds that bind us are so deeply amusing
-- Exalted or not, man is still man
-- may the harvest be plentiful wherever your path may lead
-- Hesitation is defeat
-- “I’m not suffering at all. In fact, I’m living in bliss! In life, sweetness comes after bitterness. Wealth follows poverty. You advise others to let go, but you have no idea that these are the excitements in life. Everyone lives by these eight sufferings, and everyone feels these sufferings. It’s only when we understand these eight sufferings that we’re able to hold it up and let it go, following the natural cycle!
-- I guess all this to say, life is unpredictable. We build this outline of what we'd like our life to look like, with the things we think we want. But in the end it might not be what we want. Don't give up, dig your feet in, these moments are your defining moments. Things will knock you down, resilience is getting back up each time. And in life, the most important lesson Ive ever learned is resilience and grit will get you further than anything else.
-- ”If you find yourself wanting something month after month, year after year, yet nothing happens and you never come any closer to it, then maybe what you actually want is a fantasy, an idealization, a false promise. Maybe what you want isn’t what you want, you just enjoy wanting.
-- The world had become ever so strange. Throughout history, the world had witnessed many major mishaps taking place to reshape societies and to reshape the norms of civilization. Strangeness had become a word intrinsic to all facets of life. Nothing was unexplainable. Nothing was meant to be understood.
-- Some said love was a river that drowned the tender reed. What had passed was in the past, and what good would it do to not let it stay in that way?
-- "We cannot just simply deny and reject all theories from the past. Although some of them seemed obscure, mystified and abstruse, some remained relatively truthful and trustworthy,"
-- Love is love. It was meant to be a true affection of the purest and the most chaste sort. It was an abstract, yet true construct that should not be mingled or contaminated with marks and titles.
-- “But I guess, the world seldom functions according to the likings of either you or me. Sometimes, choice has to be made to contradict ourselves; but what else are we left with?”
-- "The most merciful thing in the world, I think, is the inability of the human mind to correlate all its contents. We live on a placid island of ignorance in the midst of black seas of infinity, and it was not meant that we should voyage far. The sciences, each straining in its own direction, have hitherto harmed us little; but some day the piecing together of dissociated knowledge will open up such terrifying vistas of reality, and of our frightful position therein, that we shall either go mad from the revelation or flee from the light into the peace and safety of a /new dark/ age."
-- “You can either laugh or cry. And you need to deal with the situation anyway. So you might as well laugh”
-- "In the phrase ['to find oneself"] lurks the idea that the self is a pre-existing entity, a self like a Platonic idea existing in a mystic realm beyond time and change. No, rather an object like a nugget of gold in the placer pan, the Easter egg under the bush at an Easter-egg hunt, a four-leaf clover to promise miraculous luck. Here is the essence of passivity, one's quintessential luck. And the essence of absurdity, too, for the self is never to be found, but must be created, not the happy accident of passivity, but the product of a thousand actions, large and small, conscious or unconscious, performed not 'away from it all,' but in the face of 'it all,' for better or for worse, in work and leisure rather than in free time.”
-- Nostalgia is one of the most potent human emotions. You don't feel it often, but when you do feel it, it hits.
-- What defines personal matter, and what defines a family? What, indeed, is a clan? If a clan does not even care to offer a sanctuary to its members even when they needed it the most, then why even protect and hold onto a clan? If there was an outsider who dared to harm a single member from our family, the action we should take as a clan is, of course, to fight the enemies with all of our might and if need be, our lives.
-- “It takes a month to learn how to wield a stick, a year to wield a blade, and a lifetime to wield a spear. But a treasure sword would not even be mastered in a lifetime.”
-- Only a beauty who had the ability is a beauty. If a guy has no abilities, then he is just a person that bring harm to others
-- Love and hate both are powers that had the ability to make people do unfathomable things. Weaknesses are like a double-edged blade. If they can be fatal to a person, they can also help a person improve
-- Liquor is the sword that pierces your intestines, lust is the blade that scrapes your bones.
-- With someone caring for him, worrying about him, thinking about him, wishing blessings to him from a distant home, this feeling… was truly good.
-- An intelligent method must be used to deal with a fool. On the other hand, using a foolish method to deal with an intelligent person could sometimes also be effective.
-- Diviners often miss the fun right in front of them because they foresee tomorrow's suffering. But have you ever thought about this? That so-called suffering of tomorrow... might just be the poisonous fruit sown by you being terrified today?
+

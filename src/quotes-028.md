@@ -1,4 +1,159 @@
-<!-- Page 28 of 53  ·  quotes 2701–2800 of 5205  ·  add new quotes to ../inbox.md, not here -->
+<!-- Page 28 of 54  ·  quotes 2701–2800 of 5377  ·  add new quotes to ../inbox.md, not here -->
+- "Life is a long journey, and that's why I must travel far and wide."
+
+- "Ambition is our power in its rawest form. We cannot live without it."
+
+- "Old things often carry around some form of regret."
+
+- "But that's okay. Partings produce reunions, if not at home then in a distant
+land."
+
+- "When the heart is clear, the world is too. And when the heart is unladen, the
+same is true."
+
+- "Only when you witness my whole story does it become truly consigned to
+history."
+
+- "What really matters in life is not how strict we are with ourselves, but the
+connections we make along the way. There's no future for those who linger on
+the past."
+
+- "I often travel during storms Which means my eyes are often blinded by the rain
+Many times, I couldn't even see what was right in front of me One day, I
+finally reached the top of the mountain I looked out with the clouds beneath my
+feet And only the gentle breeze murmuring in my ears The highest mountain is a
+clear and enlightened heart Here, there is no self, no hatred, no regrets, and
+no desires Let's embark on a journey, for I am the breeze We will meet again,
+no matter how far along the road Life has just begun, and maybe the whole world
+can be my home"
+
+- "I wander like the autumn leaves that float to the mountains and seas afar."
+
+- "If an astrologist thinks that their arts can solve all problems, they will be
+forsaken by the starry ether.  Mona: Their divinations will lose the power to
+guide, and will not be able to pierce the fog of the unknown before them.
+Principles are principles."
+
+- "Haste is indeed a normal part of life, yes... but as we often put it, even a
+raging river must sometimes flow peacefully through a serene stream."
+
+- "The forest will remember. No good thing will ever fade away, and all
+suffering will come to nourish something beautiful..."
+
+- "The battlefield is a treacherous place. Every opportunity you take, you put
+everything on the line for. If you fear sacrifice and failure, you can never
+be victorious."
+
+- "Ningguang: Breakfast sets the tone for the rest of the day. You can't
+compromise on it.  Ningguang: If you wake up to the same monotonous meal each
+day, you will start to feel fatigued even before you start working."
+
+- "Times flies and the good years slip away easily."
+
+- "Sorry, sorry! It's just that good conversation can be as fleeting as
+fireworks, sometimes, you know? So when I'm in the mood and I've got a lot to
+say, I just have to get it all out there in one go and leave no regrets!"
+
+- "Yeah, no matter how close you and your friends are, there's always going to
+be some distance after being separated for a long time. But as soon as the
+fireworks lit up the sky, it'd instantly take us right back to our childhood,
+and we'd be chatting away like in the old days."
+
+- "Raiden Shogun: My form is a symbol of supreme majesty, in which has been
+vested power over all the realm. It is the cohesive embodiment of all that
+constitutes the "Raiden Shogun." Raiden Shogun: It inherits Ei's pain — the
+pain of inevitable loss that comes as she moves forward. So too does it inherit
+her determination to reach eternity.  Raiden Shogun: Every action undertaken is
+for the sake of resisting erosion.  Raiden Shogun: Determination, courage,
+love, hatred... All of these will be degraded and distorted by the
+incessant flow of time.  Raiden Shogun: Only rules shall remain
+constant for eternity."
+
+- "Change will come to Inazuma, and with it, new possibilities. This will take
+time, but eventually, the future will bring healing to the scars of the past."
+
+- "The people's sacrifice has always caused me immense pain, but in dwelling on
+the tragedy, I overlooked their splendor... The grief blinded me to how
+brightly they shone in their final moments."
+
+- "Jean: Don't worry about it too much. The more flustered you become, the less
+likely you are to find it.  Jean: Pay attention to what you see in your
+peripheral vision, and you might just stumble upon what you're looking for."
+
+- "Stop cooping yourself up in your cabin. Get some of that sea breeze, it'll do
+you some good."
+
+- "When people see the object of their dreams, how many are really able to
+control their desire and follow the contract...?"
+
+- "Drifting seeds are destined to flourish on nice soil... same for Nara! One
+day, the wind in Nara's hearts will stop, halting their steps."
+
+- "Don't worry, no memories will be lost! The forest will remember, just like the
+rivers emptying into the sea, before being turned into the rain splashing down
+unto the earth."
+
+- "The adepti leave the human world, find somewhere to go be a hermit, and then
+they research and invent all these amazing things..."
+
+- "Yep! Work hard, play hard, and rest even harder. The two of you may need even
+more rest than you'd expect!"
+
+- "Eternity stretches things out over a long time. But each moment within it
+becomes all the more fragile."
+
+- "A glutton, this Paimon is. A bite on the mushroom today, another bite
+tomorrow, and a hundred days later, there shall be no Paimon left in Paimon,
+but only mushrooms."
+
+- "A helping hand must see things to the end."
+
+- "May no regrets linger in the night bygone. May all shadows fade ere the dawn
+to come."
+
+- "Xamaran: ...Ignorance might be a blessing, and knowledge might bring forth
+calamity...  Xamaran: ...Only that which graced with the ambrosia of knowledge
+can flourish into the strong...  Xamaran: ...Only that which has been tested
+with the desolation of wandering can brave the wilderness..."
+
+- "Faith doesn't ask for anything in return though, does it?"
+
+- "Dainsleif: It's just my opinion, but a word of advice: Always be on your guard
+when around gods.  Dainsleif: You shouldn't place too much trust in them. But
+at the same time, don't go too far in the opposite direction... Don't go trying
+to overthrow them, or hunt them down."
+
+- "The ocean is good company... I hope we can all find some peace and happiness
+while we're here."
+
+- "Reply: "Instant gratification has no place in the aesthetics of a wicked
+dragon! First comes expectation, and then comes patience! Once a dragon's
+yearning for golden dreams has reached its peak..." Reply: "...Ah, then would
+the taste of those dreams not be splendid beyond compare?"
+
+- " Venti: It is people's shared will that brings them onto the same page. And
+surely, it is the wind of freedom that brought us together.  Venti: It comes
+from the end of the journey, the edge of the world, the depths of our heart. It
+is ceaseless."
+
+- "Who was it that stroked your bloodied, determined visage By stream flowing
+small By boulder standing large" Venti: "Who was it that embraced your weary
+yet noble soul In dreams deep In skies soaring" Venti: "Dear friend I am
+leading you by the hand Into the night where lanterns shine bright" Venti: To
+tell you a tale of freedom and dreams The tale of where this festival begins"
+
+- "Those who live by the sword know to listen to the voice of their blade.
+...Hehe, she's nagging me to get on with it again."
+
+- "Warriors make friends best when their swords clash, rather than when they talk
+around a table."
+
+- "Truly fascinating. The harder they try to silence the situation, the greater
+the chaos that erupts..."
+
+- "Pale flame, lay waste to this frozen shell and witness my suffering. In fires
+of sin and retribution, your soul will be incinerated!"
+
 - "In the world of researchers, there's nothing more painful than writing a
 paper. If there is, it'll be getting stuck writing a paper."
 
@@ -175,6 +330,7 @@ much, its like a date and she just wont show up."
 have changed the world. There’s some truth to that. But there are many many
 others, quietly, doing their best in their capacity to make the world a better
 place, asking very little in return. So at this holiday season, I’d like to say
+
 - thank you. When building a machine learning model, we can rely on a few
 strong features, but an ensemble of weak learners can be more performant and
 robust, but each one of them don’t necessarily get the credits they deserve."
@@ -245,131 +401,4 @@ you’ll welcome the familiar comforts of a city on the way back."
 - "When you get an invitation to do something in the future, ask yourself: would
 you accept this if it was scheduled for tomorrow? Not too many promises will
 pass that immediacy filter."
-
-- "Art is in what you leave out."
-
-- "Rule of 7 in research. You can find out anything if you are willing to go
-seven levels. If the first source you ask doesn’t know, ask them who you should
-ask next, and so on down the line. If you are willing to go to the 7th source,
-you’ll almost always get your answer."
-
-- "Most really amazing or great things are done by people doing them for the
-first time."
-
-- "The universe is conspiring behind your back to make you a success. This will
-be much easier to do if you embrace this pronoia."
-
-- "It’s not an apology if it comes with an excuse. It is not a compliment if it
-comes with a request"
-
-- "Only imperfect beings can make art because art begins in what is broken."
-
-- "If someone is trying to convince you it’s not a pyramid scheme, it’s a pyramid
-scheme."
-
-- "The reward for good work is more work."
-
-- "The foundation of maturity: Just because it’s not your fault doesn’t mean it’s
-not your responsibility."
-
-- "You are only as young as the last time you changed your mind."
-
-- "The worst evils in history have always been committed by those who truly
-believed they were combating evil. Beware of combating evil."
-
-- "Don’t loan money to a friend unless you are ready to make it a gift"
-
-- "If you can’t tell what you desperately need, it’s probably sleep."
-
-- "When playing Monopoly, spend all you have to buy, barter, or trade for the
-Orange properties. Don’t bother with Utilities."
-
-- "If you borrow something, try to return it in better shape than you received
-it. Clean it, sharpen it, fill it up"
-
-- "To quiet a crowd or a drunk, just whisper."
-
-- "You are given the gift of life in order to discover what your gift in life is.
-You will complete your mission when you figure out what your mission is. This
-is not a paradox. This is the way."
-
-- "Don’t treat people as bad as they are. Treat them as good as you are."
-
-- "We are not bodies that temporarily have souls. We are souls that temporarily
-have bodies."
-
-- "If your goal does not have a schedule, it is a dream."
-
-- "The greatest breakthroughs are missed because they look like hard work."
-
-- "People can’t remember more than 3 points from a speech."
-
-- "Many backward steps are made by standing still."
-
-- "You don’t marry a person, you marry a family."
-
-- "When making something, always get a few extras — extra material, extra parts,
-extra space, extra finishes. The extras serve as backups for mistakes, reduce
-stress, and fill your inventory for the future. They are the cheapest
-insurance."
-
-- "To combat an adversary, become their friend."
-
-- "Take one simple thing — almost anything — but take it extremely seriously, as
-if it was the only thing in the world, or maybe the entire world is in it — and
-by taking it seriously you’ll light up the sky."
-
-- "Advice like these are not laws. They are like hats. If one doesn’t fit, try
-another."
-
-- "Painting is complete as a distraction. I know of nothing which, without
-exhausting the body, more entirely absorbs the mind."
-
-- "This beginning with Audacity, or being thrown into the middle of it, is
-already a very great part of the art of painting."
-
-- "Painting a picture is like trying to fight a battle."
-
-- "Painting is the same kind of problem as unfolding a long, sustained
-interlocked argument... It is a proposition commanded by a single unity of
-conception."
-
-- "Go out into the sunlight and be happy with what you see."
-
-- "We cannot aspire to masterpieces. We may content ourselves with a joy ride in
-a paint-box. And for this Audacity is the only ticket."
-
-- "The profoundest eternal questions are met only with a boundless and eternal
-silence."
-
-- "These things happen, honey. I'll tell you what I do. I have a little cry, then
-I pick myself up, dust myself off and keep going. The show must go on!"
-
-- "When you try to be nice to everyone, you're not being nice to anyone"
-
-- "Zhongli was corroded by time. Pain and suffering he saw and maybe even did
-gave him wisdom.  Cloud Retainer was most likely hardy and stubborn, but she
-too became corroded over time, becoming more like stone, not revealing how she
-feels to anyone.  Madame Ping always tried to see the beauty in things and
-loved her ways. But over time she realized everything is beautiful in its own
-right. Her wisdom is that she learned to cherish every moment."
-
-- "We think of human life as like a lantern that's lit one minute and
-extinguished the next."
-
-- "In the perpetual meantime of a sheltered eternity, most are content to live
-and not to dream. But in the hidden corners where the Gods' gaze does not fall,
-there are those who dream of dreaming. Some say a few are chosen and the rest
-are dregs, but I say we humans have our humanity. We will defy this world with
-a power from beyond."
-
-- "Though flowers bloom yet always fade, but people go yet return another day. I
-just knew that you'd be back to see me before long, hehe."
-
-- "Truth be told, the older you get, the more time you have on your hands, and
-the more you start contemplating the past... I do wonder how my old friends
-back in the mountains are getting on.."
-
-- "For us desert people, this is an inescapable fate. We come from the soil and
-return to the sand. It is a simple matter of being born and dying."
 
