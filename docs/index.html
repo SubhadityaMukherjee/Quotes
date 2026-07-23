@@ -53,6 +53,19 @@
     </div>
   </footer>
 
+  <button id="random-btn" class="fab" type="button" title="Show a random quote"
+          aria-label="Show a random quote" hidden>⚄</button>
+  <button id="top-btn" class="fab" type="button" title="Back to top"
+          aria-label="Back to top" hidden>↑</button>
+
+  <div id="random-modal" class="modal" role="dialog" aria-modal="true" aria-label="Random quote" hidden>
+    <div class="modal-card">
+      <button id="random-close" class="modal-close" type="button" aria-label="Close">×</button>
+      <blockquote id="random-text" class="random-quote"></blockquote>
+      <button id="random-again" class="random-again" type="button">Show another ↻</button>
+    </div>
+  </div>
+
   <script src="data/quotes.js"></script>
   <script src="app.js"></script>
 </body>

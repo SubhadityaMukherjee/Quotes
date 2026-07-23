@@ -109,10 +109,46 @@
     });
   }
 
+  /* Scroll-to-top + random quote ----------------------------------------- */
+  function initFloating() {
+    var topBtn = $("top-btn");
+    var randBtn = $("random-btn");
+    var modal = $("random-modal");
+    var randText = $("random-text");
+    if (!ALL.length) return;
+
+    randBtn.hidden = false;
+
+    window.addEventListener("scroll", function () {
+      if (window.scrollY > 420) topBtn.classList.add("show");
+      else topBtn.classList.remove("show");
+    }, { passive: true });
+    topBtn.hidden = false;
+    topBtn.addEventListener("click", function () {
+      window.scrollTo({ top: 0, behavior: "smooth" });
+    });
+
+    function showRandom() {
+      randText.textContent = ALL[Math.floor(Math.random() * ALL.length)];
+      modal.hidden = false;
+      $("random-again").focus();
+    }
+    function closeModal() { modal.hidden = true; randBtn.focus(); }
+
+    randBtn.addEventListener("click", showRandom);
+    $("random-again").addEventListener("click", showRandom);
+    $("random-close").addEventListener("click", closeModal);
+    modal.addEventListener("click", function (e) { if (e.target === modal) closeModal(); });
+    document.addEventListener("keydown", function (e) {
+      if (e.key === "Escape" && !modal.hidden) closeModal();
+    });
+  }
+
   /* Wire up --------------------------------------------------------------- */
   function init() {
     $("search").placeholder = "Search " + fmt(ALL.length) + " quotes…";
     initTheme();
+    initFloating();
 
     var debounce;
     $("search").addEventListener("input", function (e) {
