@@ -197,9 +197,6 @@ amount of residual pain from the past."
 - "Always say "yes" to the present moment. What could be more futile, more insane, than to
 create inner resistance to something that already"
 
-- "What could be more futile, more insane, than to create inner resistance to something
-that already is?"
-
 - "By watching the mechanics of the mind, you step out of its resistance patterns, and you
 can then allow the present moment to be."
 

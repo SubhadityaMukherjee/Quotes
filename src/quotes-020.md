@@ -120,14 +120,6 @@ has to love being miserable. He has to take pride in being more miserable than
 any soldier or swabbie or jet jockey. Because this is war, baby. And war is
 hell."
 
-- "My friend Tony K e p p e l m a n's n a p p e d me out of it by asking if I was
-gonna quit. Hell, no! "Then be happy. You're where you wanted to be, aren't
-you? So you're taking a few blows. That ''s the price for being in the arena
-and not on the sidelines. Stop complaining and be grateful."
-
-- "He knows that any job, whether it's  a novel or a kitchen remodel, takes twice
-as long as he thinks and costs twice as much. He accepts that."
-
 - "The Bhagavad-Gita tells us we have a right only to our labor, not to the
 fruits of our labor. All the warrior can give is his life; all the athlete can
 do is leave everything on the field. The professional loves her work. She is
@@ -293,14 +285,6 @@ to step onto the peak of martial arts! For one whose road of martial arts is
 too smooth, for one who isn’t forced to take detours, for one who sings
 nothing but hymns of victory, it is instead easy to fall into a bottleneck,
 making one forever unable to step onto the peak of martial arts."
-
-- "The path of the martial artist is like a flame. Practicing the martial arts
-will only cause pain. The dangers are countless and the road is filled with
-obstacles. Everyone who walks down it will eventually turn to ash, but the true
-martial artist will be reborn from these ashes. Even if I am only a small and
-weak moth, I will walk into the flames without hesitation. I will fight my
-destiny for a one in a million chance that I will experience my own samsara and
-be reborn as a flaming phoenix. And even now, I am no longer a moth…"
 
 - "A worm that lives amongst the dead leaves and fallen branches will never
 understand the beauty and greatness of this world! And a worm was a creature

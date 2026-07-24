@@ -235,8 +235,6 @@ to sleep, but my brain is like "I HAVENT HAD A RUN AROUND TODAY WE MUST STAY UP"
 
 - "The absurd does not liberate; it binds."
 
-- "The wisdom of life consists in the elimination of nonessentials."
-
 - "The way of the Essentialist means living by design, not by default."
 
 - "the more choices we are forced to make, the more the quality of our decisions

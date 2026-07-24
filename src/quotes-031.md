@@ -323,10 +323,6 @@ safe and where they can thrive."
 - "You must make her hell-bent on being with you. Remember, the easier something
 is to get, the less precious it will be in the end"
 
-- "I just—' The thing with mental turmoil is that so many things that make you
-feel better in the short term make you feel worse in the long term. You
-distract yourself,"
-
 - "The thing with mental turmoil is that so many things that make you feel better
 in the short term make you feel worse in the long term. You distract yourself,
 when what you really need is to know yourself."

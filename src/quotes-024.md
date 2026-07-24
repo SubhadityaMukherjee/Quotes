@@ -170,11 +170,6 @@ blood was never once beautiful. It was just red."
 
 - "What is truth but a survivors story"
 
-- "Lonliness if often the byproduct of a gifted mind"
-
-- "We cant change what fate has in store for us, but we dont have to face it
-alone"
-
 - "I've been up to my neck in work lately, and before I knew it, it was my
 birthday again. It was only then that I also realized that it's  been a long
 time since we last met up.  How have things been lately? You're always so busy

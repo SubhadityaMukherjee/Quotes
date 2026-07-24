@@ -184,9 +184,6 @@ rainwater blessing the ground."
 - "A foolish man complains of a hole in his pocket, I wise man uses it to scratch
 his balls."
 
-- "For how could a god, who never once resisted, even till the end, nurse hatred
-for her people in her heart?"
-
 - "Sorry to also have you shoulder the grievances of the world, since you could
 endure my bitter cold, you must have desire to burn?"
 

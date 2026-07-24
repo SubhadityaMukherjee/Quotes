@@ -123,9 +123,6 @@ should abandon them in order to seek some deeper truth."
 or life path, the only possibility left is to lower our expectations to the point where
 they're easier to achieve, which could mean living in a train car, or a camper van."
 
-- "We like to think that we can do without, rough it to prove that we're not so soft or
-bound to the past."
-
 - "If we don't establish our identities with the volume of things we consume, then we feel
 more attuned to the way we consume them and the careful decisions we make between one
 thing and another. It's a species of the narcissism of small differences. We take pride in

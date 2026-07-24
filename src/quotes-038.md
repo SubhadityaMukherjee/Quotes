@@ -403,8 +403,6 @@ buyer, or employer, hires a worker to create surplus value; this excess is what 
 productivity under capitalism. From an employer's point of view, purchased time could
 always yield more money."
 
-- "The only reward for working faster is more work."
-
 - "In this way, Taylorism rendered labor more abstract and fungible, hastening a process
 that has often been referred to as "de-skilling." Among other things, this deepened the
 divide between how different kinds of time are valued. As Braverman puts it, "Every step

@@ -303,9 +303,6 @@ and accept. Because the way you perceive someone is their true identity."
 began to look forward to seeing him. For the first time since I arrived here, I
 was happy."
 
-- "Life isn’t just doing things for yourself. It’s possible to live in such a way
-that other people’s happiness, makes you happy too."
-
 - "Sometimes the things that matter the most are right in front of you."
 
 - "I cried alone every single night. It felt like every day that passed here

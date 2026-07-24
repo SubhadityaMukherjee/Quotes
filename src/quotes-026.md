@@ -390,9 +390,6 @@ brilliant."
 - "Shower your child with attention, and make her feel secure in your love.  This
 way she won’t grow up starved for other people’s acknowledgment."
 
-- "Special moments are not separate from our everyday lives.  When you make use
-of something special, it makes the moment special."
-
 - "Are you looking to move onwards and upwards or run away? Look before you leap,
 you don't want to appear the fool do you?"
 
@@ -408,8 +405,6 @@ Only you can."
 they are, and what they’ve done, and they forgive themselves. You can’t move
 forward unless you forgive yourself. A lot of people don’t know that. So they
 live in guilt and shame for so long."
-
-- "Nature does not hurry yet everything is accomplished"
 
 - "O archon seeker, do you now understand? She and her wisdom have long been
 found by you. Along your journey we were in every flower and blade of grass,

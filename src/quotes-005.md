@@ -233,10 +233,6 @@ not be shaken. Even if that person becomes the enemy of the world, then I will
 also be willing to be by his side and fight against the world together with
 him."
 
-- "Life could not repeat itself like the rising and setting of the Sun. If one
-did not grab every moment, one would waste their talent and potential. It would
-be a great regret"
-
 - "Return kindness with kindness and return animosity with animosity. If there
 was a trickle of kindness, return it with a gushing spring of kindness. If the
 hatred was carved deep within the bones, then return the favor a hundred times

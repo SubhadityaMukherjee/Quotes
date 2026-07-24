@@ -296,9 +296,6 @@ in."
 enduring. We can witness it change through the seasons."
 
 - "We don't have to understand nature to appreciate it. This is true of all things. Simply
-be aware of moments when your breath"
-
-- "We don't have to understand nature to appreciate it. This is true of all things. Simply
 be aware of moments when your breath gets taken away by something of great beauty."
 
 - "Nature transcends our tendencies to label and classify, to reduce and limit."

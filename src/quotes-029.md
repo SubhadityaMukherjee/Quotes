@@ -20,8 +20,6 @@ comes with a request"
 - "If someone is trying to convince you it’s not a pyramid scheme, it’s a pyramid
 scheme."
 
-- "The reward for good work is more work."
-
 - "The foundation of maturity: Just because it’s not your fault doesn’t mean it’s
 not your responsibility."
 

@@ -190,12 +190,6 @@ are the Tarnished will have the last words, at the end of a long journey."
 - "Not putting your heart and mind into sword practice makes one merely a slave of the
 sword"
 
-- "King Calm Sea once told me"—Fairy Meng looked at Meng Chuan and continued—"that
-cultivation requires one to follow one's intuition and follow what one likes the most
-before forging forward. You will go further and further. When you look back after a few
-decades, you would've far surpassed your former self. I'll share this saying with you as
-well. Follow your heart and proceed down what you like the most."
-
 - "Okay, stop getting downcast. If you can't figure things out at the moment, stop mulling
 over it and think about it again when your head is clearer. Like the old people say, even
 if the sky collapses, there's nothing to be afraid of. If worst comes to worst, may it
@@ -284,9 +278,6 @@ disaster and has grown into a major catastrophe. Cutting down this catastrophe s
 originally be a good thing, but in this chaotic set up, once I cut down the evil of
 disaster, it’ll cause a chain reaction, and it won’t be a blessing but a calamity!’
 
-- "You should enjoy the little detours to the fullest. Because that's where you'll find
-the things more important than what you want."
-
 - "A true peerless master will not care whether a sect is strong or weak. The apex does
 not care whether one comes from peasantry or royalty!"
 
@@ -366,9 +357,6 @@ leave when the cold, snowy wind comes, they couldn’t help but be taken by the 
 - "The dust was just like heaven-defying cultivators that desired to reach the heavens but
 were put down by the rain. Just like cultivators, how many specks of dust could actually
 ascend to the heavens…
-
-- "Falling leaves will all eventually return to the roots of the tree. They were like
-children who would leave when tired but would always return to their love ones.
 
 - " Those who seek dao understand in the morning and are dead by dusk, regrettable…
 

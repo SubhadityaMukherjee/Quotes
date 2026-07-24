@@ -216,10 +216,6 @@ certainly did not require sitting on the side with an incessant stream of
 consoling words. When they still did not calm down and did not feel like
 talking, anything you did was just making more trouble."
 
-- "If you find yourself stuck in a ditch or forsaken by the world, don t panic.
-Take two steps forward and maybe you'll find yourself stronger than ever
-before."
-
 - "Some people would be strangers forever, whereas others would seem like old
 friends from the onset. Although they were strangers that had not exchanged
 many words and hadn t even exchanged names, they could entrust their lives and
@@ -516,8 +512,6 @@ because it’s the last thing we have that ties us to the person we miss. We
 don’t want to let them go because it feels like we’ll have nothing left. But
 it’s dangerous, Ethan. The never letting go. Because until you let go, you
 can’t begin to remember."
-
-- "To hear one must be silent"
 
 - "And the truth is that as a man's  real power grows and his knowledge widens,
 ever the way he can follow grows narrower: until at last he chooses nothing,

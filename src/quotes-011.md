@@ -231,9 +231,6 @@ things and yet not disturb them!"
 - "Never trust anything that can think for itself, if you can’t see where it
 keeps its brain."
 
-- "Always use the proper name for things. Fear of a name increases fear of the
-thing itself."
-
 - "It does not do to dwell on dreams and forget to live."
 
 - "Strange how nearsighted being invisible can make you."

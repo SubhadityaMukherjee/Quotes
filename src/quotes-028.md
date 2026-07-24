@@ -170,9 +170,6 @@ they won't become bad.  Arana: Otherwise, little Nara would be afraid. If
 always afraid, they would believe in the power of "fear," and grow up to be
 scary bad Nara."
 
-- "The forest will remember. No good thing ever fades away. All pains will become
-the nourishment of something beautiful..."
-
 - "Press forward and sing, even if the path is filled with flame..."
 
 - "There are those who no longer dream and thus can no longer see us, those who

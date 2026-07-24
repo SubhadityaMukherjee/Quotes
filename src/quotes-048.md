@@ -3,9 +3,6 @@
 their suspicions of their ministers; their suspicions made them ill and therefore led to
 their death"
 
-- "The waves in the back always push the ones in the front in the Yangtze river, so of
-course each generation has to be stronger than the next"
-
 - "The hardest part is not learning how to use the tools but know what to do with them"
 
 - "The universe will never give you peace in something you were not meant to settle in"
@@ -248,10 +245,6 @@ can get that hindsight."
 clouds, they yearn for something more profound,,yet try we may and try we might, a deeper
 truth waits in plain sight, though we hang our hopes in skies abound, many joys lie on the
 ground."
-
-- "Humans have nothing but unknowns. Even if they act like they know everything, that's
-surely a lie. That's why there's no way but to spend your whole life learning it. There's
-plenty of wisdom you won't find in a book, and I agree with your opinion, Lyle."
 
 - "Humans, you know. Someone who wasn't standing out up to now, when you leave work to
 them, you see they can suddenly accomplish it? Yeah, that happens. Up to that point, they

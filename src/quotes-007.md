@@ -115,10 +115,6 @@ Love is its own law."
 
 - "Until the tiger learns to write, stories will always glorify the hunter."
 
-- "Dare to think. Before your dream comes true, never limit yourself beforehand.
-Never find any excuses for yourself, or reasons to fail, only so will we have
-the possibility to make the seemingly distant dream reality."
-
 - "He realized that there are many ways of life, or many ways of living life.
 Perhaps there are meaningless ways, but nevertheless interesting ways."
 

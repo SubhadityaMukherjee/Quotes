@@ -127,9 +127,6 @@ we can probably automate it using AI either now or in the near future"
 
 - "Life is unfair. You make the best of what life deals you"
 
-- " Every path is the right path. Everything could've been anything else.﻿
-And it would have just as much meaning."
-
 - "Choices ... We cannot go back. That’s why it’s hard to choose. You have to
 make the right choice. As long as you don’t choose, everything remains
 possible."
@@ -163,33 +160,6 @@ not much different from a child or a madman in that respect. It takes a very
 clear head and a very strong will to operate once you are in that place. And
 you will find out very quickly whether or not you have that clarity and that
 strength."
-
-- "Sometimes I wonder if man was really meant to discover magic," Fogg said
-expansively. "It doesn’t really make sense. It’s a little too perfect, don’t
-you think? If there’s a single lesson that life teaches us, it’s that wishing
-doesn’t make it so. Words and thoughts don’t change anything. Language and
-reality are kept strictly apart—reality is tough, unyielding stuff, and it
-doesn’t care what you think or feel or say about it. Or it shouldn’t. You deal
-with it, and you get on with your life. Little children don’t know that.
-Magical thinking: that’s what Freud called it. Once we learn otherwise we cease
-to be children. The separation of word and thing is the essential fact on which
-our adult lives are founded. But somewhere in the heat of magic that boundary
-between word and thing ruptures. It cracks, and the one flows back into the
-other, and the two melt together and fuse. Language gets tangled up with the
-world it describes. I sometimes feel as though we’ve stumbled on a flaw in the
-system, don’t you? A short circuit? A category error? A strange loop? Is it
-possible that magic is knowledge that would be better off forsworn? Tell me
-this: Can a man who can cast a spell ever really grow up?"
-
-- "I think you’re magicians because you’re unhappy. A magician is strong because
-he feels pain. He feels the difference between what the world is and what he
-would make of it. Or what did you think that stuff in your chest was? A
-magician is strong because he hurts more than others. His wound is his
-strength. Most people carry that pain around inside them their whole lives,
-until they kill the pain by other means, or until it kills them. But you, my
-friends, you found another way: a way to use the pain. To burn it as fuel, for
-light and warmth. You have learned to break the world that has tried to break
-you."
 
 - "How can you seek eternal life by means of a temporal body?"
 

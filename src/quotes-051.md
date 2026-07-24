@@ -10,19 +10,6 @@ ecology. Or it used to be, and should be still. Whenever we can see something go
 any field where we can make a difference on the side of virtue, we have a responsibility
 to make it."
 
-- "The dao of the heavens is something everyone can prove and everyone can confirm. The
-heavens is not dao. Dao is formed by the will of the heavens and earth. Everyone can have
-this will! "Just like the fish that lives in the river. It doesn’t violate the heavens or
-provoke yin and yang, it lives peacefully and free! This river is the heavens, the world.
-The fish is all living things that exist inside the world! "However, the net pulls the
-fish out from the river. This net is dao, the laws of the world! No matter where you are,
-you won’t be able to escape dao! "This net will one day pull the fish out from the river.
-Once out of the river, the fish will face the laws of the world. Either it obeys and
-enters the reincarnation cycle or it must revolt! Break the net and revolt! "Cultivators
-are like the struggling fish. The more they fiercely the struggle, the more they defy dao!
-"This is dao! Whether it is life and death or karma, all of it is formed by the will of
-dao! I’m karma!"
-
 - "People have spirit, so they can comprehend dao. Beasts have souls, so they can also be
 enlightened. Everything in this world that has a spirit or soul can comprehend dao! "This
 planet has a soul and can also be enlightened!"
@@ -87,10 +74,6 @@ in the final accounting loses nothing) but in the throbbing of my heart and the 
 of my hair, making themselves new just as our Commonwealth reconstitutes itself each
 morning in the shrill tones of its own clarions."
 
-- "Certain mystes aver that the real world has been constructed by the human mind, since
-our ways are governed by the artificial categories into which we place essentially
-undifferentiated things, things weaker than our words for them."
-
 - "We believe that we invent symbols. The truth is that they invent us; we are their
 creatures, shaped by their hard, defining edges. When soldiers take their oath they are
 given a coin, an asimi stamped with the profile of the Autarch. Their acceptance of that
@@ -116,16 +99,7 @@ give way to a protracted summer beyond summer. Nothing of the sort occurs. The p
 endures for a watch or two, then shadows blue as watered milk lengthen on the snow, which
 shifts and dances under the spur of an east wind. Night comes, and all is at it was."
 
-- "You love him, so another may love him. You love him, so you may love another."
-
 - "Of the trail of ink there is no end,"
-
-- "One can't found a novel theology on Nothing, and nothing is so secure a foundation as a
-contradiction. Look at the great successes of the past - they say their deities are the
-masters of all the universes, and yet that they require grandmothers to defend them, as if
-they were children frightened by poultry. Or that the authority that punishes no one while
-there exists a chance for reformation will punish everyone when there is no possibility
-anyone will become the better for it."
 
 - "That's so, I'm sure. When you're brought up in the guild it seems like the center of
 the world. But when you're a little older - this is what I've found myself, and I know I

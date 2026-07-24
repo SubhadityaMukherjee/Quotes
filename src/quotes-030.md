@@ -267,13 +267,6 @@ integrity,"
 limited options, which might make us feel better about not being able to change
 our circumstances as a whole."
 
-- "When workers are separated from the products of their labor and compensated by
-an hourly wage, they can't find satisfaction in their jobs or the remainder of
-family life. Thus they turn to acquiring capital as the only form of
-self-fulfillment. We work only to accumulate stuff and in turn the accumulated
-stuff dominates us, further distancing us from non-commodified things like
-relationships, joy, and community."
-
 - "Labor "is therefore not the satisfaction of a need, but only a means for
 satisfying needs external to it,"
 

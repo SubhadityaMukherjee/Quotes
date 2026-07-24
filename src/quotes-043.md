@@ -39,8 +39,6 @@ There's nothing at all to figure out."
 
 - "Holding your work hostage to meaning is a limitation."
 
-- "is far more powerful than our plans"
-
 - "Art is far more powerful than our plans for it."
 
 - "Art is above and beyond judgment. It either speaks to you or it doesn't. The artist's

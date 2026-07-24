@@ -312,8 +312,6 @@ completely engineered by the Blood Moon. It was a result of the natural
 instincts between two intelligent lifeforms, wishing to vent the corrupt nature
 in their hearts."
 
-- "Life must be understood backward. But it must be lived forward."
-
 - "Maybe it’s just in his nature. Since the start of history, all those that were
 successful would choose not to suppress their heart. They dared to love, and
 dared to hate, and by yielding to their emotions, their dao-hearts became clear
@@ -365,12 +363,6 @@ your genius for inventing the Internet—"
 
 - "You’re not so different from me, demigod. Even when I’m out of the water, the
 water is within me. It is my life source."
-
-- "Oh, Hades if I know. But remember, boy, that a kind act can sometimes be as
-powerful as a sword. As a mortal, I was never a great fighter or athlete or
-poet. I only made wine. The people in my village laughed at me. They said I
-would never amount to anything. Look at me now. Sometimes small things can
-become very large indeed."
 
 - "Men hate passion, any great passion. Henry Cameron made a mistake: he loved
 his work. That was why he fought. That was why he lost."

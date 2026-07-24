@@ -321,8 +321,6 @@ mercy coming from pigs and cows you slaughter?"
 matter the pain, I will keep living. So when I die, I'll feel I did the best I
 could."
 
-- "If you want to get to know someone, find out what makes them angry."
-
 - "You should enjoy the little detours. To the fullest. Because that's  where
 you'll find the things more important than what you want."
 

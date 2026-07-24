@@ -179,10 +179,6 @@ not the world's  woe, yet its face wrinkles when winds blow"
 remember as you dream in your heart. This is what we call thought, and it is
 also spirit."
 
-- "Whatever you brag about the most is what you lack the most. Whatever it is
-that you want others to know you own the most of is what you want to possess
-most of."
-
 - "Death is not terrifying. The thing that is terrifying is the moment before
 death."
 
@@ -393,32 +389,6 @@ belongs to the Immortals, and the world inside the mirror belongs to the
 Berserkers. But in truth, there is a mirror inside the mirror. If two mirrors
 were positioned opposite each other properly, then the endless darkness would
 then be the mirror inside the mirror!"
-
-- "When you see the mountain, it is a mountain is the first stage. The first
-stage is in the beginning stages of a human's  life. It is pure and they have
-only just begun to know the world. Everything is new, and whatever they see, it
-is the truth. If anyone tells that person something is a mountain, they will
-believe that it is a mountain. When you see the mountain, it is not a mountain
-is the second stage. As you grow up, you will experience more things, and you
-will discover that there are problems in the world. The more problems you
-encounter in the world, the more complicated the world will seem. Many of the
-truths that you know will be turned upside down. The bad people will rule the
-world, and the good will find it hard to survive. People will start to get
-cynical and not believe in things so easily. At that time, people will start
-criticizing the present by saying how good the past is. Then, mountains and
-rivers will not simply be mountains and rivers anymore, because your view of
-things has changed. You start questioning your beliefs, and you start wondering
-whether the things you see are really what they seem. When you see the
-mountain, it is still a mountain is the third stage. Since staying in the
-second stage bears too much suffering, they will start climbing up this
-metaphorical mountain, which means to train their minds and hearts. At this
-stage, they will concentrate on doing what they want to do and not compare
-themselves to others, and since the mind is calm and not bothered by the things
-in the world anymore, people will find that there is no need for them to adjust
-their point of view to suit other people's . At that time, they will feel free
-to perceive whatever they want in whichever way they want, hence you have: When
-you see the mountain, it is still a mountain, and when you see the river, it is
-still a river."
 
 - "You yourself have to change first, or nothing will change for you!"
 

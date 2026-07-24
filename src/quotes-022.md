@@ -141,9 +141,6 @@ was a butterfly, or whether am now a butterfly, dreaming am a man. Between a
 man anda butterfly there is necessarily a distinction. The transition is called
 the transformation of material thing."
 
-- "But he did say that many people who go insane find in insanity a feeling of
-importance that they were unable to achieve in the world of reality."
-
 - "Once I did bad and that I heard ever/Twice I did good, but that I heard
 never."
 
@@ -233,10 +230,6 @@ yourself."
 
 - "In the end, creativity isn’t just the things we choose to put in, it’s the
 things we choose to leave out."
-
-- "only once you give yourself permission to stop trying to do it all, to stop
-saying yes to everyone, can you make your highest contribution towards the
-things that really matter."
 
 - "Weniger aber besser. The English translation is: Less but better."
 

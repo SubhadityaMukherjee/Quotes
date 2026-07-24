@@ -231,8 +231,6 @@ patient’s past."
 - "why they are only attracted to people who hurt them. Fear and aversion, in
 some perverse way, can be transformed into pleasure."
 
-- "You observe a lot by watching."
-
 - "Medications, drugs, and alcohol can also temporarily dull or obliterate
 unbearable sensations and feelings. But the body continues to keep the score."
 
@@ -395,8 +393,6 @@ not fooled by the world like everyone else. You don't get along with most
 people, because they just don't look at things the way you do. You think you're
 dumb, because you're smart enough to know you don't know everything. Your
 problem is you're too smart. And that's not a problem at all."
-
-- "The only reward for hard work is more work."
 
 - "People generally fail to understand that complexity does not arise from
 complexity. Rather, it arises from simplicity, the simplicity of the tools"

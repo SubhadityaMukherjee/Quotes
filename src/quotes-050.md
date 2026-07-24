@@ -155,13 +155,6 @@ this divine glass, they see face to face; and their converse is free, as well as
 This is the comfort of friends, that though they may be said to die, yet their friendship
 and society are, in the best sense, ever present, because immortal."
 
-- "The worst part of holding the memories is not the pain. It’s the loneliness of it.
-Memories need to be shared."
-
-- "After all, no matter how great the treasures are, our lives are more important. But if
-we work together, we can cover each other’s weaknesses. We might even be able to obtain
-serendipities.
-
 - "What I seek isn’t a Dao, but to have my mind acting as my aspiration, to have my spirit
 as my realm, and when I open my eyes, I will draw out my heart’s desires… This is the
 reason why I can draw, but you can only copy."
@@ -198,9 +191,6 @@ form of courage… Perhaps some day, you will come to understand how it feels li
 - "The past is no longer here." Su Ming turned around and cast the young man a flat look.
 "The past may be gone, but we have to keep a tight grip of the present, because what you
 do know will decide your future."
-
-- "If you want to obtain something, then you must pay for it. If the reward is great, then
-the price for it will be greater… Riches will only be gained if you take risks.
 
 - "The world changes constantly but will eventually end up the same in the end1, the white
 mountains and black waters may seem different but are all the same… Transformation to
@@ -240,21 +230,12 @@ will be no wind,"
 - "‘Perhaps this is how memories really are… Once you find the end, you will also find the
 start… Is… this Life?’"
 
-- "The Life of the stone falling into the river in the sky… will only appear when the
-falling stone appears, will only be special because of that falling stone, and will be
-alone because of itself . In the end, the splashes caused by that falling stone will fuse
-into the river, and no one will be able to find the stone ever again
-
 - "All things in the world have Lives, and this Life does not mean the state of being
 alive, but is the manifestation of what we have sensed from our past lives in our current
 lives."
 
 - "He was also a person without a home, so why should he make things hard for people
 bearing the same plight…?"
-
-- "A flower in blossom for a thousand years, watches the world change alone as time
-passes. She watches with a smile fora smile for a thousand years, to find that her beloved
-is already beside her…
 
 - "At times, prosperity did not mean living in luxury, but a bustle of activity."
 
