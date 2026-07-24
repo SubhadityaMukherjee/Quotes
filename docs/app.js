@@ -4,9 +4,11 @@
 
   var PAGE = 100;
   var ALL = window.__QUOTES__ || [];
-  var filtered = ALL;
+  var order = ALL;          // current display order: ALL, or a shuffled copy of it
+  var filtered = order;
   var page = 1;
   var query = "";
+  var shuffled = false;     // whether shuffle is on (persisted in localStorage)
 
   var $ = function (id) { return document.getElementById(id); };
   var esc = function (s) {
@@ -20,9 +22,33 @@
   };
   var totalPages = function () { return Math.max(1, Math.ceil(filtered.length / PAGE)); };
 
+  /* Shuffle --------------------------------------------------------------- */
+  function shuffle(arr) {
+    var a = arr.slice();
+    for (var i = a.length - 1; i > 0; i--) {
+      var j = Math.floor(Math.random() * (i + 1));
+      var tmp = a[i]; a[i] = a[j]; a[j] = tmp;
+    }
+    return a;
+  }
+
+  function makeOrder(on) {
+    shuffled = on;
+    try { localStorage.setItem("quotes-shuffle", on ? "1" : "0"); } catch (e) {}
+    var btn = $("shuffle");
+    if (btn) {
+      btn.setAttribute("aria-pressed", on ? "true" : "false");
+      btn.title = on ? "Shuffle on — click for source order" : "Source order — click to shuffle";
+    }
+    order = on ? shuffle(ALL) : ALL;
+    filtered = query
+      ? order.filter(function (t) { return t.toLowerCase().indexOf(query) !== -1; })
+      : order;
+  }
+
   function applyFilter(q) {
     query = q.trim().toLowerCase();
-    filtered = query ? ALL.filter(function (t) { return t.toLowerCase().indexOf(query) !== -1; }) : ALL;
+    filtered = query ? order.filter(function (t) { return t.toLowerCase().indexOf(query) !== -1; }) : order;
     page = 1;
     clampPage();
     render();
@@ -52,8 +78,8 @@
       html = '<p class="empty-state">No quotes match "' + esc(query) + '".</p>';
     } else {
       for (var i = start; i < end; i++) {
-        // Index in the full collection, so it stays stable across searches.
-        var globalIndex = ALL.indexOf(filtered[i]) + 1;
+        // Position in the current display order (source order, or shuffled).
+        var globalIndex = order.indexOf(filtered[i]) + 1;
         html += '<article class="quote"><span class="num">' + globalIndex + '</span><p>' +
                 highlight(filtered[i]) + "</p></article>";
       }
@@ -149,6 +175,15 @@
     $("search").placeholder = "Search " + fmt(ALL.length) + " quotes…";
     initTheme();
     initFloating();
+
+    /* Shuffle toggle: on by default, remembered across visits. */
+    var savedShuffle = null;
+    try { savedShuffle = localStorage.getItem("quotes-shuffle"); } catch (e) {}
+    makeOrder(savedShuffle === null ? true : savedShuffle === "1");
+    $("shuffle").addEventListener("click", function () {
+      makeOrder(!shuffled);
+      applyFilter($("search").value);   // re-derive filtered from the new order
+    });
 
     var debounce;
     $("search").addEventListener("input", function (e) {

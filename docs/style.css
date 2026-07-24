@@ -123,6 +123,10 @@ body {
 .theme:hover {
   border-color: var(--accent);
 }
+.theme[aria-pressed="true"] {
+  border-color: var(--accent);
+  color: var(--accent);
+}
 
 /* Status & pager ---------------------------------------------------------- */
 .status {
